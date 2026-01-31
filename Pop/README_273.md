@@ -1,3 +1,84 @@
+###  Публикация: 1392446   (769243) от 26.06.2020
+
+The Rentals - Q36 (2020) [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake Your Diamonds (04:18)
+ 02. Nowhere Girl (04:31)
+ 03. 9th Configuration (06:02)
+ 04. Teen Beat Cosmonaut (03:15)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A9F785710653057010283BB0BCF3C44AC4EB261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392467   (769380) от 25.06.2020
+
+Las Deblas - Dime Quien Es Esa (1980) LP [MP3|320 Kbps] <Electronic, Flamenco, Disco, Rumba, Latin, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dime Quien Es Esa (3:13)
+02. Corazon Loco (3:00)
+03. Poquito (5:30)
+04. Quiero Y No Quiero (4:33)(   Читать дальше...   )Жанр: Electronic, Flamenco, Disco, Rumba, Latin, PopПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6444839BC14988D7ECDA70749BFF7298CD5852A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392190   (769393) от 25.06.2020
+
+Janet Devlin - Confessional (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confessional (02:02)
+ 02. So Cold (03:19)
+ 03. Saint of the Sinners (03:53)
+ 04. Cinema Screen (03:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A8DA201F43B143998FACA4C7FF404B9F3C4C85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016659   (769500) от 15.05.2016
 
 Bee Gees - In The Mood Of Love (2015) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock>
@@ -609,84 +690,6 @@ Francesca Michielin - Riflessi Di Me (2012) [MP3|320 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC89D1AB81B1F67CB7E0DFA71D07BE11B9F5992C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277957   (773166) от 24.01.2019
-
-Shakira - Laundry Service (2001) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Objection - (Tango) (3:44)
-02.Underneath Your Clothes (3:45)
-03.Whenever, Wherever (3:16)
-04.Rules (3:40)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17998B6BCEDA3EC16492936A1DDB2FC2A5A5945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278327   (773179) от 24.01.2019
-
-Jumbo - 3 Albums (1976-1980) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая диско-группа. Выпустили только эти три альбома в конце 70-х годов.Список альбомов:
-1976 - Sexy Lady
-1977 - City Girls
-1980 - Get That Mojo Working(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 01:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2036A31045BC816F1C71132BC3FD5CBB8FA435
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 759458   (773195) от 13.04.2017
-
-Gürcan Erdem - Discography (2006-2008) [MP3|256-320 кб/с]<Disco, EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Megamix (by SpaceMouse)Жанр: Disco, EuroDiscoПродолжительность: 04:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB3F6B4BE88179E41CAC4EE0B799CF5FE76DB63
 ```
 
 

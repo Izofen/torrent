@@ -1,3 +1,30 @@
+###  Публикация: 1457020   (1024632) от 25.03.2021
+
+VA - E-Dance: Essential Techno Sound (2021) [MP3|320 Kbps] <Club, Dance, Techno, EDM, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024632.jpg" />
+</div>
+
+
+###  Подробнее
+
+Включив эти треки, у любого сразу же возникнет острое желание попасть на танцпол, полностью отдаться на волю киловаттам звука, от которых будет трепетать каждый орган тела. Попасть во власть стробоскопов, от которых полностью снесёт оба полушария, когда перестаешь понимать, где верх, а где низ001. Nicolas Hilton - I Don't Now
+002. Alex Dolby - Jungle Prisioners
+003. The Flamme - Sung Better
+004. Human Robot - Biochips(   Читать дальше...   )Жанр: Club, Dance, Techno, EDM, Tech HouseПродолжительность: 13:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79DBB48139B296A8A9F0AC8729ED0642B316231
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457023   (1024634) от 25.03.2021
 
 VA - Ladies Moment: Vocal House (2021) [MP3|320 Kbps] <Vocal House, Electro>
@@ -665,33 +692,6 @@ VA - The Bliss Sound (2021) [MP3|320 Kbps] <Synthpop, Electro Disco, Electropop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B116CCF3C3D04076E78D65D68B388129C929CF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455707   (1025496) от 20.03.2021
-
-VA - The Stardust: Future House Party (2021) [MP3|320 Kbps] <Future House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка и космос в наших душах. Безграничная и удивительная Вселенная, вдохновившая прогрессивных авторов эксперимента в электронной музыке на создание их шедевров.001. Simos Tagias - Neutron (Original Mix)
-002. Marco Resmann - Nevertheless
-003. Cybernalia - Emtek (Original Mix)
-004. Gmj And Matter - Perfect Storm(   Читать дальше...   )Жанр: Future House, ElectroПродолжительность: 12:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10CB4EAFE4DCD3C964B55A2B850F09A32B43EA82
 ```
 
 

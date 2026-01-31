@@ -1,3 +1,30 @@
+###  Публикация: 1001708   (850560) от 30.03.2016
+
+VA - Spring Break (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dirty Disco Feat. Debby Holiday-Was That All It Was (Wayne G & Porl Young Remix) 07:48
+02 R3hab & Headhunterz-Won't Stop Rocking (Extended Mix) 04:08
+03 Housecrusherzzz-Beast (Radio Edit) 02:56
+04 Env Feat. Teresa Furtado-I'll Be Ok (Original Mix) 03:07(   Читать дальше...   )Жанр: HouseПродолжительность: 08:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:328EA08D47047DB81CA9278370E244F7AB13D849
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001893   (850573) от 30.03.2016
 
 VA - Vocal Energy Stages (2016) [MP3|320 кб/с] <Trance>
@@ -665,33 +692,6 @@ VA - In Love (2017) [MP3|320 Kbps] <Pop, Lounge, Soul, Easy Listening>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F302DD9BBEF5A688075AE4449D31116BA28AEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110560   (852274) от 03.03.2017
-
-VA - Electro Story Grounds (2017) [MP3|320 Kbps] <House, Trance, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blasterjaxx & Jonathan Mendelsohn - Black Rose (Blasterjaxx Club Mix)  3:47
-02.  Dimitri Vegas & Like Mike ft. Deb's Daughter vs. Diplo - Hey Baby (Blasterjaxx Remix)  5:40
-03.  Mark Edward Hilder - Bad Bitch (Original Mix)  4:17
-04.  Frontload & Nicci - Osiris (Original Club Mix)  4:33(   Читать дальше...   )Жанр: House, Trance, Club, DanceПродолжительность: 02:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3622A340FA909B4533CD98EFF33B811E515B71B6
 ```
 
 

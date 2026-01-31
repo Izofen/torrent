@@ -1,3 +1,30 @@
+###  Публикация: 974232   (976510) от 11.01.2016
+
+VA - 100 популярных супер хитов от Русского Радио (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_976510.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Бурито - Мама
+002.Алексей Воробьев - Сумасшедшая
+003.Вера Брежнева - Мамочка
+004.Слава - Однолюб(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760AF4DBC0A34113CA977F530313BA9DE0B86EB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356707   (976573) от 01.02.2020
 
 VA - Night Dreams (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Relax>
@@ -714,33 +741,6 @@ VA - Dance Tropic (2016) [MP3|320 кб/с] <Dance, Club, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C24272E0D939A056CCC55576A71024CB80885DCA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974245   (978178) от 10.01.2016
-
-VA - Deep Sound Icons (2016) [MP3|320 кб/с] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978178.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmo Klein - Diggin for Gold (Extended Mix)
-002. Roberto Rich - Santorini Night - Riviera Mix
-003. Alle Farben - Danse (Drauf & Dran Remix)
-004. Ataneus - Aquamarine (Aike Remix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACC08B6F918832ABCC5174CB2E93B7B84EA4461
 ```
 
 

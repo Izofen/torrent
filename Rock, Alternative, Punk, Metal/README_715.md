@@ -1,3 +1,166 @@
+###  Публикация: 1569891   (447205) от 15.08.2022
+
+EVO - 2 Relises (2021-2022) [MP3|320 Kbps] <Alternative, Trancecore, Post-Hardcore, Electronik>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вечная зима [00:03:45]
+02. Проклятый таймлайн [00:02:49]
+03. Никому не говори [00:03:15]
+04. Босиком по Луне [00:03:13](   Читать дальше...   )Жанр: Alternative, Trancecore, Post-Hardcore, Electronik
+Страна исполнителя (группы): RussiaПродолжительность: 2 CD, 01:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50CD9CA9369024E5FB50E55ED54804F2A74168B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943631   (447215) от 04.10.2015
+
+Heart Of A Coward - Deliverance (2015) [MP3|320 кб/с]<Progressive Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollow (4:17)
+02. Miscreation (4:36)
+03. Turmoil I: Wolves (4:16)
+04. Turmoil II: The Weak Inherit The Earth (5:49)(   Читать дальше...   )Жанр: Progressive Metalcore, HardcoreПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF54C03AB682BE53359C1725BED20CADC579DD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570032   (447290) от 15.08.2022
+
+Space Of Variations - Imago (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Else [00:03:28]
+02. Vein mp3 [00:03:56]
+03. Non-Human Club 2.0 [00:03:14]
+04. DNA Molecule In A Million Of Dimensions [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55C9C60593EAA26B48400B95E4051703D60FE554
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570057   (447297) от 15.08.2022
+
+The Brave - Gravedigger (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gravedigger
+02. Bad Day
+03. BraveNation
+04. Eternal(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBD37D823C11E676287B1D208B49287A8820FE7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570048   (447298) от 15.08.2022
+
+Space Of Variations - Imago (2022) Scene [FLAC|Lossless|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone Else [00:03:28]
+02. Vein mp3 [00:03:56]
+03. Non-Human Club 2.0 [00:03:14]
+04. DNA Molecule In A Million Of Dimensions [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39FAC131AC6C5708BC1096F12F6505D12339DB91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569898   (447299) от 15.08.2022
+
+Age Of Darkness - As Essence Left Your Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Funeral March -6ft Under (00:02:47)
+02 - Black Knight (00:02:43)
+03 - Madness (Explicit Version) (00:04:25)
+04 - Age of Darkness (00:03:57)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50DB401159C09910AE4ECFFC72134CA1485B882
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569890   (447303) от 15.08.2022
 
 Хаме-леоН - Крики! (2022) [MP3|320 Kbps] <Heavy Power Metal>
@@ -533,174 +696,6 @@ Ensepulchre - Desolation (2020) [MP3|320 Kbps] <Blackened Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93FE92C8EE79C046F82A6852CBC3487467093C59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409258   (447589) от 16.09.2020
-
-Tramtracks - Then? (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Bittersweet (04:40)
-02. Call It On (03:42)
-03. Emphatic (04:33)
-04. Cat Fink (04:09)(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0195686DA26B564055E1B5B0CD59335237244318
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163510   (448147) от 06.09.2017
-
-Бранимир - Жизнь и смерть Скруджа Макдака (2017) [MP3|256 Kbps] <Acoustic, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Банга (5:16)
-02. Щенки (7:28)
-03. Нули (7:07)
-04. Малиновый Король (4:36)(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42997E1A9DD908BA590D268903B9ECDC05882777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552457   (448155) от 26.09.2012
-
-Heart Of A Coward - Hope And Hindrance (2012) [MP3|320 кб/с]<Progressive Metalcore / Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killing Fields
-02. All Eyes To The Sky
-03. Around A Girl (In 80 Days)
-04. We Stand As One
-05. Light
-06. Shade
-07. Nightmare
-08. Hope And Hindrance
-09. And Only Time Will Tell
-10. Break These ChainsЖанр: Progressive Metalcore / Math MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D93347368CB102ECE73B9342FC4EAB7E5E3E76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163648   (448280) от 06.09.2017
-
-Steven Wilson - To the Bone (2017) [FLAC|Lossless|image + .cue] <Crossover Prog ,  Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To The Bone 6:41
-02. Nowhere Now 4:03
-03. Pariah 4:46
-04. The Same Asylum As Before 5:14(   Читать дальше...   )Жанр: Crossover Prog ,  PopПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18724F09629E883233D68AF866BFF96C9740F492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163644   (448392) от 06.09.2017
-
-Epica - The Score - An Epic Journey (2005) [FLAC|Lossless|image + .cue] <Neo-Classical, Score, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448392.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Score — An Epic Journey — альбом нидерландской симфоник-метал-группы Epica, представляющий собой саундтрек к нидерландскому фильму «Joyride». Выход диска состоялся 20 сентября 2005 года на лейбле Transmission Records. Альбом попал во французский и нидерландский национальные хит-парады, где продержался одну и три недели соответственно.01. Vengeance is Mine (1:55)
-02. Unholy Trinity (3:10)
-03. The Valley (2:10)
-04. Caught in a Web (4:28)(   Читать дальше...   )Жанр: Neo-Classical, Score, Symphonic MetalПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E607805348ECF9C86367E1A548B898007099766
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322335   (448401) от 29.08.2019
-
-Demon Hunter - War (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cut to Fit (04:41)
-02. On My Side (04:04)
-03. Close Enough (04:07)
-04. Unbound (03:14)(   Читать дальше...   )Жанр: Metalcore, Modern MetalПродолжительность: 00: 42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE54F06FB06A9F44BC0D7D92511FB3412146221B
 ```
 
 

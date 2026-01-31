@@ -1,3 +1,30 @@
+###  Публикация: 870677   (574002) от 20.05.2019
+
+VA - 100 Hits Dance 2015 (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. D'Mixmasters - selfie (A. R. Mix)
+02. P. C. R. , P. C. R - Happy
+03. DJ Kee - Hey Brother
+04. D'Mixmasters - Sms (Bangerz)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:56:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19BF4B3897BA218AE77CB6B39C3F7A87FFB14380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 772452   (574005) от 20.05.2019
 
 VA - Весенний Коктейль (2014) [MP3|320 кб/с]<Classic Rock, Hard Rock, Blues Rock>
@@ -668,33 +695,6 @@ VA - Extra Trance (episode 5) (2015) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78139D0E8068EC67C58EF4AD3CEB86580EFDC8C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554450   (575565) от 31.05.2022
-
-VA - 60 Minutes. Old School Dance Music vol.8 (mixed by Dj V) (2022) [MP3|320 Kbps] <Club House, Dancecore, Eurotrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Sasha Dith - Russian Girls (Club Mix)
-02-Commander Tom - Attention (Original Club Mix)
-03-Disco Construction - Can't Get Enough (Steve Angello's Re-Mode mix)
-04-DJ Ivan Scratchin' - Госнаркоконтроль (Whiskey & Cola Extended Mix)(   Читать дальше...   )Жанр: Club House, Dancecore, EurotranceПродолжительность: 59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D868FFFF9459F4FE10B274543F550284B48019DD
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1619104   (1033399) от 14.03.2023
+
+VA - Extreme Sports Music Vol 6 (2020) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Noise - Devil's Army (Radio Edit) (3:35)
+02. Markii - Shatter (Radio Edit) (3:45)
+03. Max Stellar - The Prophecy (Radio Edit) (3:13)
+04. Moonrider - Resurrection (Radio Edit) (3:39)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBD8EA2FDD75FE248C7D7F0886384E467C6820A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095760   (1033412) от 06.02.2021
 
 Darrell Fitton (Bola, Jello) - Discography 18 Releases (1995-2017) Skam [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Abstract, Downtempo, Experimental>
@@ -652,33 +679,6 @@ VA - Liquid Drum & Bass Sessions 2020 Vol 8 (2020) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:793F4377866B69B8FA96F9B3D38C777715045110
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445246   (1033775) от 05.02.2021
-
-VA - Liquid Drum & Bass Sessions 2020 Vol 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Command Strange - Rock Steady (Lenzman Remix) (05:17)
-02. The Vanguard Project, Pat Fulgoni - Still Together (05:36)
-03. Maduk - Approaching Me (Original Mix) (04:55)
-04. Melinki, Macca, Maverick Soul - It's Over (05:37)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D21DCFFE7668414CF4C4991EA267DB5C65391B39
 ```
 
 

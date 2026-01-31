@@ -1,3 +1,30 @@
+###  Публикация: 1561173   (515588) от 04.07.2022
+
+Gorillaz - Gorillaz (2001) 2CD, 20th Anniversary, Deluxe Edition, 2021, Parlophone [FLAC|Lossless|tracks] <Art Pop, Trip-Hop, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Re-Hash (Instrumental) [00:03:32]
+02. 5/4 (Instrumental) [00:02:35]
+03. Tomorrow Comes Today (Instrumental) [00:03:07]
+04. New Genious (Brother)Жанр: Art Pop, Trip-Hop, ElectronicПродолжительность: 2CD, 01:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F18A6C3A0DCDC4EB27B8934A28076A9BF011509
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561273   (515721) от 04.07.2022
 
 Thursday - War All the Time (Live in Brooklyn) (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo>
@@ -667,33 +694,6 @@ The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:861268723D9E996A057D71D90E0EC495C479A74C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312677   (530959) от 05.07.2019
-
-Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unknown Harbours (02:00)
-02. Resisting (04:36)
-03. The Drifter (05:15)
-04. Don't Ask (05:50)(   Читать дальше...   )Жанр: Indie Rock, Pop RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D0C51B3479A0DD92AEE0E950260E043A2BA8F4
 ```
 
 

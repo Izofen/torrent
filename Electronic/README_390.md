@@ -1,3 +1,30 @@
+###  Публикация: 1212408   (776087) от 11.03.2018
+
+Koan - It's the Quiet Ones You Got to Watch (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (Blue Mix) (7:18)
+ 02. Ruins of Amber Kingdom (6:31)
+ 03. Tír na nÓg (Koan Remix) (7:27)
+ 04. Rebma (The Guardian of Four Worlds Mix) (7:22)(   Читать дальше...   )Жанр: Progressive House, Trance, AmbientПродолжительность: 01:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D44F80647E9112EB7865E56EA4A7F89D362AB541
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212441   (776119) от 11.03.2018
 
 VA - Sotto Voce Vol.2 (Compiled by Seven24) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Gym Music Ultimate Workout (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB368ADF3298728862DBF8ED39F108EEF2F0CE44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211623   (777241) от 08.03.2018
-
-VA - Love & Relax: Temptation (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_777241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Rostej  -  Ethereal (Original Mix)  6:35
-02.  Soty  -  Butterflies (Original Mix)  4:17
-03.  Der Luchs  -  How Long (Original Mix)  5:05
-04.  Seven24 & Soty feat. Maria Opale  -  Don't You Cry (Original Mix)  4:39(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C4D6EA6E315DDB5DDD1B194A9ABE4374588CA4
 ```
 
 

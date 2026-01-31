@@ -1,3 +1,328 @@
+###  Публикация: 1158631   (492091) от 16.08.2017
+
+Stan Meissner - Undertow (1992) Japanese Edition, 1-st press [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - It's No Secret (3:36)
+ 02 - River Of Fire (4:32)
+ 03 - No Way Out (3:33)
+ 04 - Someone Like You (4:33)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFAAF52C4072E536CEFA2FC0B842601074C1353F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243285   (492114) от 27.08.2018
+
+The Amity Affliction - Misery (2018) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivy (Doomsday)
+02. Feels Like I'm Dying
+03. Holier Than Heaven
+04. Burn Alive(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347624CDFBC82A9A7DBF81BBEF1D07E9B85F50E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565610   (492182) от 24.07.2022
+
+Красная плесень - Абсурдные куплеты (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492182.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Финская румынка (Huggy Wuggy full version)
+2. По реке плывёт болгарка (Чебуратор remix)
+3. Шоколадный Хагги Вагги (Polkka new version)
+4. Блоггеры, лесник-маньяк и санитар (Pampampam remix)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DA65AA77D795B4B740427ADBEF8DDE8D61AFEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054154   (492237) от 20.09.2016
+
+The Birthday Massacre - Imagica (2016) Remastered [FLAC|Lossless|tracks + .cue] <Industrial Rock, Synth-Gothic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over (04:03)
+02. Remember Me (04:59)
+03. Under the Stairs (03:59)
+04. The Birthday Massacre (03:36)(   Читать дальше...   )Жанр: Industrial Rock, Synth-GothicПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D55B6095EE505F09560EA9053B315E742E1C0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054892   (492248) от 20.09.2016
+
+Pantera - History Of Hostility (2015) LP [MP3|320 Kbps] <Thrash Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cowboys From Hell
+02. Cemetery Gates (Demon Knight Edit)
+03. Mouth For War
+04. Walk(   Читать дальше...   )Жанр: Thrash Metal, Groove MetalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15707D62CC7A77382FFDF8124DE3F629EFDB19AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565593   (492316) от 24.07.2022
+
+AC/DC - Highway To Hell (1979) Remastered, Reissue, 2003, Epic [FLAC|Lossless|tracks + .cue + scans] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway To Hell (3:27)
+02. Girls Got Rhythm (3:24)
+03. Walk All Over You (5:08)
+04. Touch Too Much (4:25)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED6A07AF46EF1F6D6342933CC44DE05B01DD375
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565600   (492324) от 24.07.2022
+
+AC/DC - High Voltage (1976) Reissue, Remastered, 2003, Epic [FLAC|Lossless|tracks + .cue + scans] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's A Long Way To The Top (If You Wanna Rock 'N' Roll) (05:02)
+02. Rock 'N' Roll Singer (05:04)
+03. The Jack (05:53)
+04. Live Wire (05:50)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D1B1E8AB674EE8FB755F7FE1101B94FA7909B49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937114   (492365) от 13.09.2015
+
+Gamma Ray - Heading For Tomorrow (1990) 25 Anniversary Edition 2CD /2015, earMUSIC/ [MP3|320 кб/с]<Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Welcome (Instrumental)
+02.	Lust For Life
+03.	Heaven Can Wait
+04.	Space Eater(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 02:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283689467AD62BBEA74205442A5CD3B15041F29F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054905   (492376) от 20.09.2016
+
+Garbage - A Darker Religion - The Singles 1995-2000 (2000) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The World Is Not Enough
+02. Get Busy With The Fizzy
+03. You Look So Fine (Eric Kupper Deep Drama Mix)
+04. Thirteen(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6732F355BE644E4000AE435E6BDA7268711285
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565584   (492441) от 24.07.2022
+
+The Goo Goo Dolls - Chaos In Bloom (2022) [MP3|320 Kbps] <Alternative Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yeah, I Like You (4:24)
+02. War (4:34)
+03. Save Me From Myself (3:16)
+04. Let the Sun (3:33)(   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A373165D357CDD6D37BDCA40B9CFF5574E16F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565557   (492443) от 24.07.2022
+
+Out Of This World - Out Of This World (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Out of This World - новая потрясающая группа, образованная гитаристом Kee Marcello (ex "Europe") и вокалистом "Fair Warning" Tommy Heart, которые выпустили свой одноименный дебютный альбом «Out of This World».
+После того, как к рок-музыкантам присоединились Ken Sandlin (Alien) на басу и Darby Todd (The Darkness, Gary Moore) за ударной установкой, (   Читать дальше...   )01. Twilight
+02. Hanging On
+03. In A Million Years
+04. Lighting Up My Dark(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFC4F7D424CD9854E026A5B20647A091D3C450F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936788   (492477) от 13.09.2015
+
+The Windmill - The Continuation (2013) [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Continuation 03:14
+02. The Masque 12:52
+03. Not Alone 09:10
+04. Giant Prize 03:15(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9E14D99C967972E6A3DE19D81278B6FC56DDF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1054874   (492491) от 20.09.2016
 
 First Signal - One Step Over The Line (2016) [FLAC|Lossless|tracks] <AOR, Melodic Hard Rock>
@@ -371,368 +696,6 @@ Elliott Smith - Figure 8 (2000) 50th Birthday Deluxe Edition, 2019, UMG Recordin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D169D0C31DF3D3277DC42967FA52915C92F0D8FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318691   (492841) от 07.08.2019
-
-Gene Loves Jezebel - Voodoo Dollies: The Best Of Gene Loves Jezebel (1999) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave, 80s>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upstairs (3:17)
- 02. Bruises (3:40)
- 03. Influenza (Release) (3:46)
- 04. Always a Flame (4:33)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, New Wave, 80sПродолжительность: 01:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552165209756096B791D6F2ABA7DF708565CE268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544041   (492989) от 06.09.2012
-
-Great White - 41 Albums (1982-2012) Дискография [MP3|192 - 320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Mama
- 02. Ain't No Way To Treat A Lady
- 03. My World
- 04. Pain Overload
- 05. Easy
- 06. Lives In Chains
- 07. Man In The Sky
- 08. Hand On The Trigger
- 09. Where Is The Love
- 10. Anyway I Can(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA5D10B9C91819F17C60E146EF7346B992D48B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404326   (493040) от 25.08.2020
-
-VA - Season Of The Witch (2011) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donovan - Season of the Witch (Re-Recorded / Remastered)
-02. Switchblade Symphony - Witches (Temple of Rain Mix)
-03. The Symphonic Rock All-Stars - Your Betrayal (Made Famous By Bullet for My Valentine)
-04. George Benson - Witchcraft(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A7982F13704F02FEDFFFBF4BB474617666E0A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543427   (493078) от 06.09.2012
-
-Bob Dylan - Tempest (2012) [FLAC (tracks+cue)|Lossless]<Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duquesne Whistle
-02. Soon After Midnight
-03. Narrow Way
-04. Long And Wasted Years
-05. Pay In Blood
-06. Scarlet Town
-07. Early Roman Kings
-08. Tin Angel
-09. Tempest
-10. Roll On JohnЖанр: Folk-RockПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 849739   (493104) от 25.08.2020
-
-Anathema - A Fine Day To Exit (2001) 2006, Music For Nations, Sony BMG Music Entertainment [FLAC|Lossless|image + .cue] <Progressive, Alternative, Doom Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pressure (6:44)
-02. Release (5:47)
-03. Looking Outside Inside (6:23)
-04. Leave No Trace (4:46)(   Читать дальше...   )Жанр: Progressive, Alternative, Doom RockПродолжительность: 01:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1A2E60A1D0A594CCF8588338C3191CEA9896B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541967   (493157) от 06.09.2012
-
-Archive - With Us Until You're Dead (2012) Special Edition [FLAC|Lossless]<Alternative Rock, Downtempo, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая пластинка одной из самых необычных групп в Европе
- Archive – одна из немногих групп, творчество которых сложно отнести к определенному жанру. В их музыке слышны отголоски прогрессив-рока, трип-хопа, электроники и даже соула, и “With Us Until Your Dead” – кульминация экспериментального звучания группы. Альбом - уже 8-й в дискографии группы - по признанию самих музыкантов, является новым этапом в творческом развитии Archive.
- Первым синглом с “With Us Until Your Dead” стал трек “Violently”, видео на который уже набрало более 85 тысяч просмотров на YouTube.01. Wiped Out :: 06:20
-02. Interlace :: 04:42
-03. Stick Me in My Heart :: 03:57
-04. Conflict :: 05:01
-05. Violently :: 06:24
-06. Calm Now :: 03:53
-07. Silent :: 05:39
-08. Twisting :: 04:01
-09. Things Going Down :: 01:51
-10. Hatchet :: 04:15(   Читать дальше...   )Жанр: Alternative Rock, Downtempo, Indie RockФормат: CD, Album, DigipackПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A60A4DEDCD9273A65AABA214042D86E5B3882BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543602   (493250) от 06.09.2012
-
-Cat Power - Sun (2012) [FLAC|Lossless]<Indie Rock / Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherokee
-02. Sun
-03. Ruin
-04. 3,6,9
-05. Always On My Own
-06. Real Life
-07. Human Being
-08. Manhattan
-09. Silent Machine
-10. Nothin But Time(   Читать дальше...   )Жанр: Indie Rock / Folk RockПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543898   (493259) от 06.09.2012
-
-Dying Fetus - Reign Supreme (2012) [APE|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invert the Idols (2:05)
-02. Subjected to a Beating (4:53)
-03. Second Skin (4:42)
-04. From Womb to Waste (4:57)
-05. Dissidence (3:28)
-06. In the Trenches (3:44)
-07. Devout Atrocity (4:28)
-08. Revisionist Past (3:57)
-09. The Blood of Power (5:23)
-10.  Dead Whores Love to Fuck (Bonus) (0:50)Жанр: Death MetalПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542687   (493263) от 06.09.2012
-
-VA - Black Night - Deep Purple Tribute According To New York (1996 (Reissue 2010, Tribute-Album)) [WavPack|Lossless]<Rock, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Lynn Turner - Black Night [04:38]
-02. Richie Kotzen - Strange Kind Of Womam [04:05]
-03. Cory Glover - Fireball [04:20]
-04. Richie Kotzen - Smoke On The Water [05:36]
-05. Tony Harnell & T.M. Stevens - Child In Time [08:52]
-06. Richie Kotzen, T.M. Stevens, Joe Lynn Turner & Tony Harnell - Woman From Tokyo [06:06]
-07. Tony Harnell & T.M. Stevens - Space Truckin' [04:54]
-08. Joe Lynn Turner - Stormbringer [04:06]
-09. Joe Lynn Turner - Speed King [03:29]
-10. Cory Glover - Burn [06:32](   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404394   (493341) от 25.08.2020
-
-David Reece - Cacophony Of Souls (2020) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing The Shadows
-02. Blood On Our Hands
-03. Judgement Day
-04. Collective Anaesthesia(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A8957EA82149F0668F00F66B47807BF23FC604
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404395   (493349) от 25.08.2020
-
-Reece - Resilient Heart (2018) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Any Time At All
-02 Wicked City Blues
-03 Karma
-04 Desire(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0972F26A0CCECEF8C929087559B4EB38D8B988C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404498   (493350) от 25.08.2020
-
-Monolithe - Okta Khora (2020) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_493350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Okta Khora (Pt.1) (04:00)
-02. Onset Of The Eighth Cycle (08:00)
-03. Dissonant Occurence (08:00)
-04. Ignite The Heavens (Pt.1) (04:00)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521BD9F289C9658182253FF2C0277928D32C6DAF
 ```
 
 

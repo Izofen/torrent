@@ -1,3 +1,27 @@
+###  Публикация: 1848507   (1052636) от 17.01.2026
+
+Лисса Адкинс | Коучинг Agile-команд. Руководство для Scrum-мастеров, Agile-коучей и руководителей проектов в переходный период (2017) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если ваши команды внедряют Agile-практики, делают все правильно, но не получают максимально возможных результатов, если у вас уже есть опыт работы в качестве Scrum-мастера или руководителя проекта и вы хотели бы стать Agile-коучем, но не уверены, что эта роль вам подходит, — тогда эта книга для вас. Она детально рассказывает, как правильно обучить команду ценностям (   Читать дальше...   )Жанр: Коучинг, Бизнес-процессыИздательство: МИФФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D29571F754C319DD5F84BFE29959349EAE972BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848350   (1052638) от 17.01.2026
 
 Иван Зуенко | Китай в эпоху Си Цзиньпина (2024) [FB2]
@@ -615,30 +639,6 @@ In this contemporary sales bible, serial entrepreneur and master sales expert Ga
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D504C7D62914D2A63FB71213813BDED20BED9E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849218   (1053436) от 21.01.2026
-
-Peter Hill | Pricing for Profit. How to Develop a Powerful Pricing Strategy for Your Business (2013) [EPUB] [EN]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Price is the most significant factor affecting the profitability of every business, profit centre or department. When the pressure is on to perform or grow, your instinct may be to discount, undercut your competitors, cut costs and promote through price. Yet these are often the last things you should do. Pricing for Profit is the most practical guide on pricing available. (   Читать дальше...   )Жанр: Ценообразование, ЭкономикаЯзык: АнглийскийИздательство: Kogan PageФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE0A7805718CAA87A23156AEE865721E10D43D7
 ```
 
 

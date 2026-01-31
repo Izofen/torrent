@@ -1,3 +1,30 @@
+###  Публикация: 1119024   (809462) от 27.03.2017
+
+VA - Отдыхаем с лучшими хитами. Звездная тусовочка выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_809462.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Виктория Черенцова - Не Остыло Сердце 3:34
+002. Lady Gaga - Diamond Heart 3:31
+003. Натали Янковских - Ты Мой 3:34
+004. Betty Who - Human Touch 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5470EF665878E7789124EB34AB2644880A431E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119020   (809465) от 27.03.2017
 
 VA - Лучший весенний хит. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Cyber World: Synthspace Mix (2017) [MP3|192-320 Kbps] <Synthspace, Synthwav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580E3C3CFF26D9FE1C372534A2BCA2624669688A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198035   (810133) от 10.01.2018
-
-VA - De Top 100 Aller Tijden 1975 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810133.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. George Baker Selection - Paloma Blanca (3:28)
-002. Kamahl - The Elephant Song (3:30)
-003. Roger Glover & Guests - Love Is All (3:16)
-004. Johnny & Orquestra Rodriguez - Hey Mal Yo (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E90C533710BCB36201F3B7139C54A8359ACFC1
 ```
 
 

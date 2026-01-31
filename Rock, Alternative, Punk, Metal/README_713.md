@@ -1,3 +1,57 @@
+###  Публикация: 1570187   (445119) от 16.08.2022
+
+Пульс Вечности - Мир-это тир (2022) [MP3|320 Kbps] <Russian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Время не ждет [00:05:06]
+02 - В новый день [00:04:56]
+03 - Мир-это тир [00:04:44]
+04 - Все мы [00:05:33](   Читать дальше...   )Жанр: Russian RockПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CF6DA7BB0AF0C6E3CB32EDA206AFB0D718BC15
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570261   (445126) от 16.08.2022
+
+The Vazeline - Подросткам плевать на весь мир (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_445126.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кто я для тебя?
+2. Подросткам плевать на весь мир
+3. Чувства неверующих
+4. Завтра уже через час(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87250BD1776F5571ED9096288E01F59F5FD2993D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570124   (445131) от 16.08.2022
 
 Stallion - Slaves Of Time (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal, Thrash>
@@ -510,6 +564,31 @@ magnet:?xt=urn:btih:E5501BF7FF08048FE298C849E571B8F1AD269B62
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243512   (445500) от 08.10.2010
+
+Florence And The Machine - Lungs (2009) [MP3|320 kbps]<Pop Rock, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_445500.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:12] 01.  - Dog Days Are Over
+[03:52] 02.  - Rabbit HeartЖанр: Pop Rock, FolkПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 552973   (445682) от 27.09.2012
 
 Smokie - Greatest Hits (2006) [MP3|320 кб/с]<Soft-Rock>
@@ -538,6 +617,39 @@ CD-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C17BC184099A052A2CDADFFBCBCB2ED4873FAB27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 243504   (445746) от 08.10.2010
+
+The Script - Science And Faith (2010) [MP3|224 kbps]<Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_445746.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:33] 01.  - You Won't Feel A Thing
+[04:12] 02.  - For The First Time
+[04:31] 03.  - Nothing
+[04:19] 04.  - Science & Faith
+[04:01] 05.  - If You Ever Come Back
+[04:17] 06.  - Long Gone And Moved On
+[03:54] 07.  - Dead Man Walking
+[04:20] 08.  - This=love
+[03:36] 09.  - Walk Away
+[04:25] 10.  - Exit WoundsЖанр: Pop-RockПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -586,115 +698,6 @@ Insomnium - Winter's Gate (2016) Japanese Edition [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1051B03F2C13487F51F20AB93CB577A93B2A824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052851   (446235) от 11.10.2016
-
-Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [MP3|320 кб/с]<Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абсолютно новый альбом одного из самых важных представителей немецкого металкора, коллектива Heaven Shall Burn. Предыдущий альбом группы - "VETO" (2013), занял вторую сточку в германском альбомном чарте. Продюсерами нового альбома выступили гитаристы Alexander Dietz и Maik Weichert. Смикшировал альбом популярный датский продюсер и звукоинженер Tue Madsen, (   Читать дальше...   )CD1 - Original Album
-CD2 - Too Good To Steal From
-CD3 - Dark Purity MixЖанр: MetalcoreПродолжительность: 02:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B708BCB55D107518A933D8EE695977464D6222A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061577   (446238) от 11.10.2016
-
-Alex Bollard - Sultan Of Swing (Mark Knopfler's Album Of Hits) 1994 [FLAC|Lossless|image + .cue] <Acoustic, Pop Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sultans Of Swing   (04:25)
-02. Private Investigations   (04:22)
-03. Water Of Love   (03:50)
-04. Romeo And Juliet   (04:16)(   Читать дальше...   )Жанр: Acoustic, Pop Rock, InstrumentalПродолжительность: 01:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D3D5B54245E6A8DD2BCBCE15B983A7CE9C96868
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061694   (446241) от 11.10.2016
-
-Meshuggah - The Violent Sleep Of Reason (2016) [FLAC|Lossless|image + .cue] <Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clockworks
-02. Born in Dissonance
-03. MonstroCity
-04. By the Ton(   Читать дальше...   )Жанр: Math MetalПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266620A3E8FE156B058A9D3E5B020E69F6D1DB6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248163   (446364) от 18.09.2018
-
-VA - Let's Have a Party (Girls Gone Rockin' Vol. 2) (2002) 3CD [FLAC|Lossless|tracks + .cue] <Rock & Roll, Rockabilly, Rhythm & Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446364.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Janis Martin - My Boy Elvis (02:12)
-02. Etta James - Shortnin' Bread Rock (02:34)
-03. Debbie Stevens - If You Can't Rock Me (01:42)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, Rhythm & BluesПродолжительность: CD1 - 00:57:51
-CD2 - 00:58:52
-CD3 - 00:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE86BF760EA57AE8EDEDFEF0B3BA52F4CA478397
 ```
 
 

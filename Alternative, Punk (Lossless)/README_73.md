@@ -1,3 +1,30 @@
+###  Публикация: 1463046   (1020460) от 18.04.2021
+
+Evanescence ‎ - The Bitter Truth (2021) 2 CD, Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artifact/The Turn (2:27)
+02. Broken Pieces Shine (3:50)
+03. The Game Is Over (4:22)
+04. Yeah Right (3:29)(   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578620BD3A587EC711264FA42059AD5494BCB12A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463052   (1020643) от 17.04.2021
 
 The Rasmus - Into (2001) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -667,33 +694,6 @@ Hum - Inlet (2020) [FLAC|Lossless|tracks + .cue] <Space Rock, Post Rock, Shoegaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1AEE5D12813F4B6D75D63B17A8B1CF6B5B0A89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450332   (1029024) от 26.02.2021
-
-Nick Cave & Warren Ellis - Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hand of God [00:05:16]
-02. Old Time [00:05:16]
-03. Carnage [00:04:47]
-04. White Elephant [00:06:08](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98443B75E60FA8CA7AF1D6BD0F3E899154FB7EC6
 ```
 
 

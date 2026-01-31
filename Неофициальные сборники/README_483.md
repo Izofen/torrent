@@ -1,3 +1,30 @@
+###  Публикация: 1522160   (760241) от 06.01.2022
+
+VA - National Pop Dance Music (Vol.30) (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_760241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многие помимо музыки родной нации предпочитают слушать композиции и других народов, в том числе и зарубежных. И если Вы именно тот меломан, которому нравятся зарубежные песни, предлагаем Вам обширный сборник популярно - танцевального жанра представляющий песни со всего мира.001. Gebrueder Doof - Tanzen
+002. Kevin Johnson - You Light My Fire
+003. Niemann - Im Osten
+004. Jagermeister DJ Alex - Auffe Aufn Berg(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 09:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79467F78D16A884D28E079E63E1C285C0BE893C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522163   (760245) от 06.01.2022
 
 VA - DC Radio: EDM Artist Of The Month (2021) [MP3|320 Kbps] <EDM, Dance, Club House>
@@ -668,33 +695,6 @@ VA - Late Night Lounge: Sexy Spring and Buddha Cafe Chillout Music (2016) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:627D437CBA3B040A12276044F364FADF9A9511C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214926   (761452) от 24.03.2018
-
-VA - De Top 100 Aller Tijden 1985 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761452.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Usa For Africa - We Are The World (6:23)
-002. Bruce Springsteen - Dancing In The Dark (4:05)
-003. Commodores - Nightshift (4:19)
-004. Madonna - Into The Groove (4:45)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6A365A47972B5B3462FE4A033A9FCBDDDA23A6
 ```
 
 

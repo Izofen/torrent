@@ -1,3 +1,30 @@
+###  Публикация: 1358708   (967226) от 09.02.2020
+
+Green Day - Father of All Motherfuckers (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Father Of All... (02:31)
+02. Fire, Ready, Aim (01:53)
+03. Oh Yeah! (02:51)
+04. Meet Me On The Roof (02:40)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF8DD668DCFFA493F76ADF49B04CFC8B83D199F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358751   (967425) от 09.02.2020
 
 Serch. - Concept (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -731,33 +758,6 @@ The Homesick - The Big Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B9A388046B7B0645472A09B34E21F033B7E1E51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354597   (987053) от 23.01.2020
-
-Jolly Goods - Slowlife (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eating Fries (04:06)
-02. The Misanthrope Years (04:34)
-03. Desintegration (04:09)
-04. The Moon (04:27)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F802D9BE2D8826B1B1E8B85E5AF5F7E6240582A
 ```
 
 

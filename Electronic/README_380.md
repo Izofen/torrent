@@ -1,3 +1,30 @@
+###  Публикация: 1017281   (761226) от 17.05.2016
+
+VA - Afternoon - Acid Jazz & Chill Out (2016) [MP3|320 кб/с] <Lounge, Chill Out, Jazzy>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_761226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beluga's Trio - The Spirit of the Hawk (04:19)
+02. Beluga's Trio - Touch the Sky (02:48)
+03. Shelly Sony - Roar (03:57)
+04. Shelly Sony - Diamonds (04:59)(   Читать дальше...   )Производство: Music BrokersЖанр: Lounge, Chill Out, JazzyПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192C86374FF023F8ADFF566B820C56F79A394622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017537   (761233) от 17.05.2016
 
 VA - Bali Chill Out Groove (2016) [MP3|320 кб/с] <Lounge, Chill Out, Easy Listening>
@@ -668,33 +695,6 @@ VA - AD Music • Compilations Collection - 17 Releases (2000-2020) [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E75CAAAA9C08F6DF16DF553D92E9CD1483C076AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280127   (763648) от 01.02.2019
-
-VA - Best Aerobic Remixes 2019 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Minds - Broken (Fitness Version 135 BPM)
-02. Morgana - Ruin My Life (Fitness Version 135 BPM)
-03. Kyria - Party for One (Fitness Version 135 BPM)
-04. Kino - Money (Fitness Version 135 BPM)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EAFF7A029FEC1EF88CE2BE0858E735E05062CB
 ```
 
 

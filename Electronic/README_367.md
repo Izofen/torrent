@@ -1,3 +1,30 @@
+###  Публикация: 1127683   (730443) от 22.04.2017
+
+VA - Nothing But... Pure Progressive House Vol.01 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Foxt - Pulsar (Original Mix)  7:05
+02.  Leoo Eco - Flying Away (Original Mix)  6:24
+03.  Platunoff - Global Connection (Phase Difference Remix)  6:28
+04.  Yearzwalker - The Night (Original Mix)  4:59(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED8C285D13CA62CBDA5E4E065F7D28F291956BC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127690   (730600) от 22.04.2017
 
 VA - Nothing But... Pure Progressive House Vol.02 (2017) [MP3|320 Kbps] <Progressive House>
@@ -666,33 +693,6 @@ autoisolation - Into the mist (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6406A6408FFCCC421ED22A22AAB431147CB04769
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127410   (732163) от 21.04.2017
-
-VA - Spectra Of Trance Vol.2 (Mixed by Daniel Kandi) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ToShuk - Amentia (Original Mix) (6:55)
-02. Andrei Pavlov - Elysium (Original Mix) (7:08)
-03. Hesham Watany - Twisted Thoughts (Original Mix) (5:59)
-04. Gabriel Volt - Night Mode (Original Mix) (7:07)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 05:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3794ECACF701D8F2D317562A5A0FBC878ED500E8
 ```
 
 

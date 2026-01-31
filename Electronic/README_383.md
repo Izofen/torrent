@@ -1,3 +1,30 @@
+###  Публикация: 1126575   (765525) от 18.04.2017
+
+Aly & Fila - Future Sound Of Egypt 492 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M.I.K.E. Push vs Robert Nickson - Tachyon (Original Mix)
+02. RAM feat. Cari - Soulfood (Original Mix)
+03. Miroslav Vrlik & Andre Visior - Raindrops (Extended Mix)
+04. Richard Durand & Neev Kennedy - Running on Empty (Hassan Jewel Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17185C1438D671550D615A040B7424301F89A722
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126534   (765536) от 18.04.2017
 
 VA - Spring Dance: The Best Dance Music (2017) [MP3|320 Kbps] <House, EDM, Dance>
@@ -668,33 +695,6 @@ VA - Best Of Trance Vol.02 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACF6C4CFF62515791BBD4F9C5973925227CE694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213893   (766591) от 19.03.2018
-
-VA - Redux Miami Selection (Mixed by Brent Rix) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_766591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Miroslav Vrlik  -  Second Reset (Original Mix)  3:07
-02.  Brent Rix  -  Solar Flare (Original Mix)  3:48
-03.  Kiyoi & Eky  -  Hide Away (Original Mix)  3:33
-04.  DJ T.H. & Miss Cortex  -  Meeting In The Orchestra (Para X Edit)  3:40(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AA321BB3651813BE2630E42609EE1BF890CF52
 ```
 
 

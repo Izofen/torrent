@@ -1,3 +1,30 @@
+###  Публикация: 1096916   (1036532) от 25.01.2021
+
+S1gns Of L1fe - Discography 4 Releases (2013-2021) Arecibo Records, Synphaera [FLAC|Lossless|tracks+.cue] <Psybient, Downtempo, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Age Of Cymatics (07:22)
+ 02. Dimensional Shift (07:34)
+ 03. Astral Alignment (08:46)
+ 04. Genetic Memory (07:50)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psybient, Downtempo, Ambient •Продолжительность: 04:01:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAECA6CD1F660B2E1E91E86764C9A8CA939DAF99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290651   (1036549) от 25.01.2021
 
 Abul Mogard - Discography 15 Releases (2012-2021) VCO Records, Ecstatic, Houndstooth [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental>
@@ -662,33 +689,6 @@ Sabled Sun - 2149 (2021) [MP3|320 Kbps] <Dark Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:976BBB8CFFC5C78A127E1582FA6C29C3DD0E4DA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442168   (1036929) от 24.01.2021
-
-ROÜGE - Ultimatum (2021) [MP3|320 Kbps] <EBM, Industrial, Techno>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036929.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome to Agartha (2:18)
-2. Potential Danger (5:26)
-3. Nuclear (4:14)
-4. Invasion (4:04)(   Читать дальше...   )Жанр: EBM, Industrial, TechnoПродолжительность: 00:34:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0C004FF2C8579B0CC778682A1D44AA01E8C735
 ```
 
 

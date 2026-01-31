@@ -1,3 +1,30 @@
+###  Публикация: 941143   (463011) от 27.09.2015
+
+VA - Ultimate Sexy Beats Vol.3 (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Vantigo - Run From Love (Original Mix)
+ 02. Stereo Flight - Mirage (Original Mix)
+ 03. Irvim - Pistol Star (Original Mix)
+ 04. Dmpr - Dark Kitty (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CFEA2126C87F3C7FB55A68B01EFE10DF885A44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941484   (463119) от 27.09.2015
 
 VA - Techno Cloud Top September 2015 (Compiled And Mixed By Deeper82) (2015) [MP3|320 кб/с]<Techno, Tech House>
@@ -704,39 +731,6 @@ VA - 98 Хитов В Дорогу Клубный (2015) [MP3|256 кб/с]<Club,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D31CE8DFE817E86C8D5A4084A17F8700900F43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548862   (464679) от 19.09.2012
-
-VA - Зарубежная Дискотека СССР (2012) [MP3|192 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_464679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Radiohead - Creep
-02 Cb Milton - A Real Love
-03 Kaoma - Lambada
-04 Depeche Mode - I Feel Loved
-05 Intrance - Te Quierro Puta (Original Mix)
-06 Ivan - Fotonovella
-07 Whitney Houston - I Learned From The Best
-08 Maxi Priest - Close To You
-09 White Town - Your Woman
-10 Kellee - My Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 08:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A101F32AE4348D160DD9805BA8FFF3D0969B52
 ```
 
 

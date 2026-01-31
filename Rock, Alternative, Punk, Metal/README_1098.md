@@ -1,3 +1,333 @@
+###  Публикация: 1498321   (856164) от 27.09.2021
+
+Voidalnaut - The Lunar Collective (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Progressive Metal, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Collective
+02 - Life upon Ganymede
+03 - Seas of Io
+04 - Umbra(   Читать дальше...   )Жанр: Progressive Metal, Technical Death MetalПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE491F6259A849F8085BAFA54D0A0CD313652D99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498470   (856169) от 27.09.2021
+
+Mordred - The Dark Parade (2021) [FLAC|Lossless|image + .cue] <Thrash Metal, Funk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856169.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Demonic #7
+2. Malignancy
+3. I Am Charlie
+4. Dragging for Bodies(   Читать дальше...   )Жанр: Thrash Metal, Funk MetalПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DB2C90864B68423784A1C383ECC60A8B9EDCF18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498472   (856170) от 27.09.2021
+
+War & Peace - The Walls Have Eyes (2004) эксклюзив [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calling (1:23)
+02. Reflections (4:26)
+03. City In Flames (3:30)
+04. The Walls Have Eyes (4:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05C655C54CF93BEBBF14C305C1F65FC927C543BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498444   (856171) от 27.09.2021
+
+The Dazed Son - Crazy (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crazy
+02. Hail Lord
+03. Death Valley
+04. Once Again(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563507F2E8413C72EE7699ABEF603FC16B302813
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498402   (856173) от 27.09.2021
+
+Банда Четырёх - 11 Альбомов (1997-2021) [MP3|320 Kbps] <Dark-Folk, Post-Punk, Punk-Rpck>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мимикрия (Время, вперёд!) [00:03:56]
+02. Порошок на купюре [00:03:51]
+03. Ева [00:03:05]
+04. Белые города [00:02:38](   Читать дальше...   )Жанр: Dark-Folk, Post-Punk, Punk-RockПродолжительность: 11CD, 07:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441C452F26E1575C04EEA5905468398D0414830E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498448   (856176) от 27.09.2021
+
+Grafvitnir - Death's Wings Widespread (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnattsskogens Isande Lockrop (Instrumental)
+02. Helvetesnatt
+03. Death's Wings Widespread
+04. In Infinitum(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FDAC8F685D6011831B22D1A0236AA25F73AA6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189215   (856222) от 09.04.2010
+
+Наутилус Помпилиус / Nautilus Pompilius - Сборник "Империя Звезд" (1995) [MP3|320 kbps]<Русский рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На берегу безымянной реки (4:11)
+02. Взгляд с экрана (4:28)
+03. Прогулки по воде (3:41)
+04. Kaзaнoвa (4:13)
+05. Скованные одной цепью (4:12)
+06. Доктор твоего тела (4:34)
+07. Крылья (3:43)
+08. Музыка на песке (4:49)
+09. Христос (4:04)
+10. Человек на луне (4:54)(   Читать дальше...   )Жанр: Русский рокПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498515   (856268) от 27.09.2021
+
+Lethargus - Eclectia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destino Cruel (07:00)
+02. A Vida o Muerte (05:14)
+03. Quiero Odiarte (07:35)
+04. Estrella Fugaz (07:59)(   Читать дальше...   )Жанр: Heavy Metal, Power Progressive MetalПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E466CFE40D004565553AAF6AA90DEA9C339EDEE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376068   (856664) от 19.04.2020
+
+R.E.M. - 7 альбомов, 16 CD (1983-2014) [FLAC|Lossless|tracks + .cue] <Rock> (обновляемая)
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856664.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1981 году R.E.M. выпустила на независимом лейбле Hib-Tone свой первый сингл «Radio Free Europe».Список альбомов:
+1983 - Murmur
+1984 - Reckoning
+1985 - Fables Of The Reconstruction(   Читать дальше...   )Жанр: Rock |Продолжительность: 13:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F4EF4B02DFB28B196644C69BA7CCEA4B3598113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376817   (856905) от 19.04.2020
+
+Олег Скобля - Крылатый Лев (2004) [FLAC|Lossless|image + .cue] <Christian Rock (Православный рок)>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поиграй в любовь  (5:30)
+02. Музыкант (4:58)
+03. Реквием (5:38)
+04. Содом  (5:28)(   Читать дальше...   )Жанр: Christian Rock (Православный рок)Продолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930B2E99B4D2C32CDA172C33110CF766CC8D3F8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376949   (857011) от 19.04.2020
+
+Gengahr - Sanctuary (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything & More (04:39)
+02. Atlas Please (02:49)
+03. Heavenly Maybe (03:26)
+04. Never A Low (03:29)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E18CF54973DC005E72B8DF34CD8F7A1AEF7DF234
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376953   (857022) от 19.04.2020
+
+Talamyus - As Long As It Flows... (2005) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter Talamyus (01:03)
+02. Hunger (06:38)
+03. Dark Land (04:22)
+04. In The Name Of Blood (05:21)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BF01C83CA6BB1794E4FFF90386602F6BDCC01E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376761   (857024) от 19.04.2020
 
 Occultus - Cosmos (2002) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -371,335 +701,6 @@ Gloria Morti - Kuebiko (2016) [FLAC|Lossless|image + .cue] <Melodic Death, Black
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0323877735C86778DBCB630E548670D2606D5607
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498155   (857671) от 26.09.2021
-
-Mono Inc. - 14 Studio Albums (2007-2020) 21xCD [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwave, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857671.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа основана в 2000 году в Гамбурге, Германия.
-
-Её основателями стали Мартин Энглер (Martin Engler), Карл Форниа (Carl Fornia) и Мики Моно (Miky Mono). Все трое до 1997 года играли в группе Wild Thing, и с 1998 по 2000 гг. в группе под названием Mono 69. В 2003 году к ним присоединился бас-гитарист Мануэль Антони (Manuel Antoni).
-(   Читать дальше...   )2007 - Temple Of The Torn
-2008 - Pain, Love & Poetry
-2009 - Voices Of Doom
-2010 - Comedown(   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Alternative RockПродолжительность: 17:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3D3C9FBDB7E925D2AE3F93A59DF14C04AC8436
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498211   (857796) от 26.09.2021
-
-Рок-опера "Элоя" (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это история-притча. О милосердии и законе. О взаимопомощи и застарелой вражде. О том, как трудно сделать шаг навстречу друг другу и о том, как легко разрушить хрупкий мир, который мы строим. И, конечно же, о любви.
-
-История стара как мир: демон полюбил ангела. Он увидел Ее, и маятник мира застыл в ожидании того, что, возможно, сейчас все изменится, что есть и другой (   Читать дальше...   )01. Увертюра [4:11]
-02. Ни единого шанса [4:45]
-03. Сестра ангелов [3:35]
-04. Кого любить? [4:01](   Читать дальше...   )Жанр: RockПродолжительность: 01:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87D3BEF0C097FD062C665FBF68B09728E07C19E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498091   (857804) от 26.09.2021
-
-Sex Pistols - 76-77 (2021) 4CD [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seventeen [00:02:10]
-02. Satellite [00:04:12]
-03. Feelings (aka 'No Feelings') [00:02:54]
-04. Just Me (aka 'I Wanna Be Me') [00:03:16](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4CD, 04:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32347FD5B464744DDD992DB63B44EA3315F9ED82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498011   (857805) от 26.09.2021
-
-Sex Pistols - 76-77 (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Problems (Chris Spedding Session / 1976) [00:04:11]
-02. Pretty Vacant (Chris Spedding Session / 1976) [00:03:38]
-03. No Feelings (Take 1 / Chris Spedding Session / 1976) [00:02:52]
-04. No Feelings (Take 2 / Chris Spedding Session / 1976) [00:02:54](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4 CD, 04:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4BED6C9AC30EFF44B33D20F50CE87648679DC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498186   (857809) от 26.09.2021
-
-Dream Theater - Lost Not Forgotten Archives: A Dramatic Tour Of Events – Select Board Mixes (2021) 2xCD, Reissue, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857809.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-1. Under A Glass Moon (Live In Phoenix, AZ 12/4/11)
-2. Forsaken (Live In London, UK 7/24/11)
-3. Peruvian Skies (Live In London, UK 7/24/11)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170BDD11E0181540C7941BA47C4A3A2C79CD4C79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498384   (857919) от 26.09.2021
-
-Status Quo - Back To Back and In The Army Now (1999) Compilation [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Album: Back To Back (1983)
-01. A Mess Of Blues (03:20)
-02. Ol' Rag Blues (02:51)
-03. Can't Be Done (03:05)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C291900233FC994265E51630D2960BE999C7FF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497974   (857921) от 26.09.2021
-
-Ringo Starr - Change The World (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let’s Change The World [00:04:14]
-02. Just That Way [00:03:29]
-03. Coming Undone [00:03:20]
-04. Rock Around The Clock [00:02:14]Жанр: RockПродолжительность: 00:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:427AC82B9C45CC1AC9FA7BF1915E8B6276DBCAB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498313   (857923) от 26.09.2021
-
-Casanova - All Beauty Must Die (2004) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psycho Lisa
-02. Dreamer
-03. Not Over You
-04. After The Love Goes(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D12CA71DEDFD270C47E1CFFE4B9868B7C590B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498202   (857929) от 26.09.2021
-
-We Butter The Bread With Butter - Das Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Das Album Intro [00:01:03]
-02. Dreh auf! [00:03:02]
-03. 20 km/h [00:03:11]
-04. N!CE [00:03:06](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22DAFE4682CEE05E21730B791C5E5E65F4061EFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498295   (858063) от 26.09.2021
-
-Nanowar Of Steel - Italian Folk Metal (2021) [FLAC|Lossless|image + .cue] <Power Metal, Folk Metal, Parody>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem per Gigi Sabani in Re minore
-02. L’Assedio di Porto Cervo
-03. La Maledizione di Capitan Findus
-04. La Marcia su Piazza Grande(   Читать дальше...   )Жанр: Power Metal, Folk Metal, ParodyПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3547B4A8382F2ABEAEC2F228C3B07D65FC185F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498311   (858064) от 26.09.2021
-
-Rhapsody of Fire - I'll Be Your Hero (2021) EP [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Your Hero
-02. Where Dragons Fly
-03. Rain of Fury
-04. The Courage to Forgive(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:39:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BE143DCDCF091979A87862CB039F3D558C6FAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498364   (858069) от 26.09.2021
-
-Анатомия Меланхолии - Мой бог (2021) [FLAC|Lossless|WEB-DL|tracks] <Melancholic Metal, Instrumental Metal, Melancholic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Разбитые мечты [00:02:41]
-02. Нелюбовь [00:05:02]
-03. Я не знаю [00:04:44]
-04. Их послали в огонь [00:05:46](   Читать дальше...   )Жанр: Melancholic Metal, Instrumental Metal, Melancholic RockПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48BE4C9193D5B3AC9C30F3EE8278F41AA1720B37
 ```
 
 

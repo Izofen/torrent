@@ -1,3 +1,30 @@
+###  Публикация: 1106289   (873636) от 19.02.2017
+
+VA - Empire Records - Club Hit 10 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hakan Akkus - I Can't Be (Eyup Celik Remix)
+02. Microwave Monkeys - Ive Been Thinking About You (feat. Nita)
+03. Danny Darko Ftjova Radevska - Butterfly (Grotesque Remix) Radiob.Mp3
+04. V.E.I feat. Metallica - Fade to Black (Deep House Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B14B45A5895706A89D68478231BB6579A87BE5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106101   (873639) от 19.02.2017
 
 VA - I Love Music! - Trap Edition Vol. 36 (2017) [MP3|320 Kbps] <Trap>
@@ -678,33 +705,6 @@ VA - Beatport Synthwave: Electro Sound Pack #52 (2020) [MP3|320 Kbps] <Synthwave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8049E0ED265C4A8BED19CCB2F5F18387774E54C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374172   (874437) от 09.04.2020
-
-VA - Beatport Deep House: Electro Sound Pack #49 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_874437.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fabrizio Giannone - Lose Control
-002. 2clic & Torsak - Magnolia
-003. Elkka - Breathe
-004. Jay Cee Morgan - En Deux Heures(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4848E77F479026F8570CCC538AE9BF320CC9D19B
 ```
 
 

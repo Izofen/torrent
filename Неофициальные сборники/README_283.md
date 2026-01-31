@@ -1,3 +1,30 @@
+###  Публикация: 939497   (473208) от 22.09.2015
+
+Suzi Quatro - The best of the Best (2015) [MP3|320 кб/с]<Rock, Hard Rock, Glam Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 15 Minutes Of Fame
+02. 48 Crash
+03. All Shook Up
+04. Back To The Drive(   Читать дальше...   )Жанр: Rock, Hard Rock, Glam RockПродолжительность: 06:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB62D76DFCAD1B7358C19F8352DD01A743EDA1F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057797   (473301) от 29.09.2016
 
 VA - Trance Flaming Beautiful (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Uplifting Trance, Energy, Progressive>
@@ -707,33 +734,6 @@ VA - Самые Лучшие Хиты 80-90-х В Современной Обр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EC2609302D04372867E0B0AB4A0B74198D3E486
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406282   (474637) от 03.09.2020
-
-VA - Native American Lounge Bar (2020) 5CD [MP3|320 Kbps] <Native American, Enigmatic, World music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_474637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Spirit - O-Loa-Ki-Lee
-02. Joanne Shenandoah - Tadodaho - Snakes in His Hair
-03. Oliver Shanti & Friends - White Mother Of The Universe
-04. Karunesh - Earthsong(   Читать дальше...   )Жанр: Native American, Enigmatic, World musicПродолжительность: 18:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B44E73B6D81E9B841111758BF57EA6A84DE635E6
 ```
 
 

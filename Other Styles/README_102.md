@@ -1,3 +1,192 @@
+###  Публикация: 909162   (627927) от 17.06.2015
+
+David Wright - Beyond the Airwaves Vol. 1 (2014) [MP3|320 кб/с]<Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drifting In
+02. Gravity Waves
+03. Isee3
+04. Forward Motion(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 01:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2547FCAF8D71925BF85491BE527A98D1E0852F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229207   (627948) от 05.06.2018
+
+Артель РОСА - Счастливые люди (2018) [MP3|320 Kbps] <Russian Urban Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ромашка
+02. Ляпота
+03. Космонавты
+04. Камушка(   Читать дальше...   )Жанр: Russian Urban FolkПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78F19AB00D523D45CA6AFBE69AC19F41C7FE4F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229259   (627949) от 05.06.2018
+
+Argishty - Трубка мира (2018) [MP3|320 Kbps] <Instrumental Folk, World, Armenian Duduk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая пластинка Argishty переполнена экспериментами и замечательными находками. Так дудук еще не звучал: тут и соединение с аутентичным фламенко, и православный распев с голосом батюшки из Александро-Невской Лавры, и даже знаменитое танго!... Argishty снова раздвигает границы эклектики в звучании древнего инструмента!01. You must return - Ты должна вернуться (PAD Version)
+02. Tsvite Teren (Ukranian folk song) - Цвите Терен (укр. нар.)
+03. Kamancha (Sayat Nova) - Кеманча (Саят Нова)
+04. Aravot Luso (Armenian folk song) - Аравот Лусо (арм. нар.)(   Читать дальше...   )Жанр: Instrumental Folk, World, Armenian DudukПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:291492038645F5E7FE0B30D973A6FA8473A47297
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035211   (628410) от 16.07.2016
+
+Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домашних животных (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Pets (02:38)
+02. Katie's Leaving (00:56)
+03. Meet Duke (03:37)
+04. Fetch Me a Stick (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660C307FC484DAA18162AF4C0D1364FB2BBF540C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035234   (628521) от 16.07.2016
+
+John Debney - Ice Age: Collision Course  / Ледниковый период Столкновение неизбежно (Original Motion Picture Score) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Age Collision Course Main Title (00:15)
+02. Cosmic Scrat-tastrophe (02:42)
+03. Earthbound Acorn (00:41)
+04. Family Bonding (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A2B48D290EA2990D389CBAAA1C411D0B4EF0D50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035221   (628535) от 16.07.2016
+
+Theodore Shapiro - Ghostbusters / Охотники за привидениями (Original Motion Picture Score) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Aldridge Mansion (02:58)
+02. The Garrett Attack (01:30)
+03. Never Invited (01:24)
+04. Distinct Human Form (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8298977E7235136BAA32490DEDB31A7D60567247
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035239   (628613) от 16.07.2016
+
+John Debney - Ice Age: Collision Course  / Ледниковый период Столкновение неизбежно (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice Age Collision Course Main Title (00:15)
+02. Cosmic Scrat-tastrophe (02:42)
+03. Earthbound Acorn (00:41)
+04. Family Bonding (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB39DF0787B2AF995AF0684A7301D3FB35A01C6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035199   (628637) от 16.07.2016
 
 Elise Lebec - Heart Song (2014) [MP3|320 Kbps] <New Age, Piano>
@@ -533,195 +722,6 @@ Chris Spheeris - Greatest Hits (2009) Compilation, 2CD [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC5BDDCC3E4081008AC38896F2E3D9BC6C6DF6D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542547   (633564) от 09.04.2022
-
-VA - Terra nostra (Banda sonora original) (1999) [FLAC|Lossless|tracks + .cue] <Classical, Folk, World, Country, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agnaldo Rayol & Charlotte Church - Tormento d' amore.
-02. Jose Augusto - 'O sole mio!.
-03. Toquinho - Comme facette mammeta.
-04. Emlio Santiago - La signora di trent' anni fa.(   Читать дальше...   )Жанр: Classical, Folk, World, Country, Stage & ScreenПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FFFF95ED63B2D1F6CAD4E6FC1DA69FFD783EC24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293964   (633610) от 05.04.2019
-
-Piano Peace - Melancholy Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Melancholia
-02 Silent Woods
-03 Wonders
-04 The Darkness(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFC5B41D8CA4C68CCF235781A34410FF10C83D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228342   (633916) от 02.06.2018
-
-VA - Flamenco Passion (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 La Jose - La Ruta
-02 Vasco Hernandez - Cal y Arena
-03 Los Alhama - Gitana
-04 Thomas Koch - Armonia(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502DFC029A9EFF84D67003FB0D1570366CDAC589
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034258   (634298) от 13.07.2016
-
-Airforce Delta / Deadly Skies (1999) unofficial [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе образа игры, музыка была извлечена из самого образа игры и записаны отдельные треки, которые сложно было извлечь01. Menu
-02. Story
-03. Intro
-04. Mission Selection Screen(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D233031FD971BC6E7AC4F408836CDDACF2AEEE8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033878   (634299) от 13.07.2016
-
-Bluchel & Von Deylen - Bi Polar (2004) [FLAC|Lossless|image + .cue]<Electronic, Ambient, Trance>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634299.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gymnopedie No.1 6:11
-2. Etoile Polaire 7:08
-3. Budapest - Bukarest 6:18
-4. Summertime 7:20(   Читать дальше...   )Жанр: Electronic, Ambient, TranceПродолжительность: 00:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AF21B29C1AABADA4D1B6E009193ADBFD67BEF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034422   (634309) от 13.07.2016
-
-VA - Legends (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medwyn Goodall - The Legend
-02. Wychazel - Druid's Grove
-03. Medwyn Goodall - The Lands Beyond
-04. Jon Richards - The Triple Goddess(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945A468B1B63DA098F36D1740E4352A96903692C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033884   (634311) от 13.07.2016
-
-The Nines - Night Surfer and the Cassette Kids (2015) [FLAC|Lossless|tracks + .cue] <Rock, Garage Rock, Power Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All In The Head
-02. Just Another Party
-03. Never Take You For Granted
-04. Waiting On The Other Side(   Читать дальше...   )Жанр: Rock, Garage Rock, Power PopПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C989504E5E651A18AABC4B06B130D17AC15DCDAE
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 937586   (488325) от 15.09.2015
+
+VA - Mental Impulse: Sound Trance City (2015) [MP3|320 кб/с]<Progressive, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488325.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Green Point - Everything Has an End (Club Mix)
+002. Jackob Roenald - Advan - Chronosapien Remix
+003. Stefan Viljoen - Divinity - Diving Analogue Remix
+004. Frozen Skies - X (Anniversary Mix)(   Читать дальше...   )Жанр: Progressive, Uplifting TranceПродолжительность: 11:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CB57711EA703B0D70CC3101BF6C71C5C35E74B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937426   (488326) от 15.09.2015
 
 VA - Sweet Lounge Esthetics (2015) [MP3|320 кб/с]<Electro Lounge, Chillout>
@@ -716,33 +743,6 @@ VA - Kiss FM: Top 40 Август 2018 [MP3|320 Kbps] <Pop, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:736A8755D1507E759528AA3B2E72F5059D538AD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243557   (489973) от 28.08.2018
-
-VA - Зайцев.нет Музыкальные новинки 4 Август 2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cher - SOS 3:22
-02. FTampa, Tom Kray & Oriente - Vibe Boa 3:39
-03. Nicky Romero & Stadiumx feat. Matluck - Rise 3:21
-04. DJ Kapral feat. Osya - Ты не верь слезам 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46B1C0B4BBF5A591B0EC34324ADD76A57062FED9
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1014048   (776931) от 06.05.2016
+
+VA - Скиталец (Хроника звездной саги) (2016) [MP3|320 кб/с] <Space Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Alex Masi - And The Wind Cries Shawn (03:52)
+02 Blue Drift - Deep Space (05:01)
+03 Erik Norlander - Fanfare for Absent Friends (06:08)
+04 Quantum Fantay - Journey from Earth (05:43)(   Читать дальше...   )Жанр: Space RockПродолжительность: 01:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76C7934F2D9F58A2AAFA33ED6FEDAF802DCA1211
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014033   (776947) от 06.05.2016
 
 VA - Звездная Сага (2016) [MP3|320 кб/с] <Prog Electronic, Post-Rock, Soundtrack & OST>
@@ -668,33 +695,6 @@ VA - Radio Record Russian Mix Top 100 May (2016) [MP3|320 кб/с] <House, Club,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C8457410D14801E250EA0B32516146847368978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013198   (777533) от 04.05.2016
-
-VA - Авто Recordный сборник хитов Vol.10 (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_777533.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Primal Scream - When The Blackout Meets The Fallout(01:49)
-2. The Dollyrots - Little Medusa(03:01)
-3. Skylar Stecker - You Got The Golden Touch(03:17)
-4. Topic - Home(03:18)(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA57A6DF287D559E9499128C219AFD95F27BD938
 ```
 
 

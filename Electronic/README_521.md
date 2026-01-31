@@ -1,3 +1,30 @@
+###  Публикация: 1619361   (1032962) от 16.03.2023
+
+A-Reis - Prominences (2023) [FLAC|Lossless|WEB-DL|tracks] <Dreamwave, Newretrowave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contemplation [00:05:00]
+02. Journey [00:04:23]
+03. Moonlight [00:03:21]
+04. Prominences [00:04:15](   Читать дальше...   )Жанр: Dreamwave, Newretrowave, RetrowaveПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E648B439F75923EC913CDB5CE680EC5013DF8CE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619372   (1032964) от 16.03.2023
 
 VA - Workout Music for Go Go & Tabledance Training (2023) [MP3|320 Kbps] <Electro House>
@@ -636,33 +663,6 @@ The 5th Galaxy Orchestra - The Land of Forgotten Tales (2016) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77BB8C0132206EFEAA6B4C8A22EA73C7CDDB8C80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619104   (1033399) от 14.03.2023
-
-VA - Extreme Sports Music Vol 6 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Noise - Devil's Army (Radio Edit) (3:35)
-02. Markii - Shatter (Radio Edit) (3:45)
-03. Max Stellar - The Prophecy (Radio Edit) (3:13)
-04. Moonrider - Resurrection (Radio Edit) (3:39)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBD8EA2FDD75FE248C7D7F0886384E467C6820A
 ```
 
 

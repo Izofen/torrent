@@ -1,3 +1,30 @@
+###  Публикация: 998968   (866378) от 21.03.2016
+
+VA - New Music N2 (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kids United - Imagine.mp3
+002. Vianney - On est bien comme зa (Album Version).mp3
+003. Madilyn Bailey - Rude.mp3
+004. Shy'M - Il Faut Vivre.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A34302E19D5D3A03F5E14B4C20E9FA0A9A1478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873769   (866428) от 01.03.2015
 
 VA - My Favourite Hits of 1972 (8CD) (2015) [MP3|320 кб/с]<Easy Listening, Chanson, Funk, Pop, Synth Pop, Pop Rock, Hard Rock>
@@ -674,33 +701,6 @@ VA - Хит FM - Восхитительная Двадцатка март (2016)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:464185B2FBCCE0729F05B86CCD03D0FC3EE6D867
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998944   (868435) от 20.03.2016
-
-VA - Pacific Music- Relax Underwater Sound (2016) [MP3|256-320 кб/с] <Chillout, Longe, Downtempo>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы поставите этот альбом на весёлой вечеринке, то приготовьтесь услышать просьбу включить «что-нибудь повеселее». Мелодии микса "Pacific Music: relax Underwater Sound" имеют размеренный и умиротворенный характер, прохлада и сдержанность морских глубин сопровождает каждый трек лонгплея. Эта музыка лучшим образом прийдётся для релакса и отдыха.001. Wellness & Ambiente - Ausklang
-002. Beautiful Instrumental Music Guys - Cool Instrumental Chill Out
-003. Lady White - Let Me Try (Ripping Mix)
-004. Moreza - Rahu(   Читать дальше...   )Жанр: Chillout, Longe, DowntempoПродолжительность: 07:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E893D14B70FF56F6397F9C6D511128F32DD7FA4
 ```
 
 

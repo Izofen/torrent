@@ -1,3 +1,30 @@
+###  Публикация: 1455707   (1025496) от 20.03.2021
+
+VA - The Stardust: Future House Party (2021) [MP3|320 Kbps] <Future House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка и космос в наших душах. Безграничная и удивительная Вселенная, вдохновившая прогрессивных авторов эксперимента в электронной музыке на создание их шедевров.001. Simos Tagias - Neutron (Original Mix)
+002. Marco Resmann - Nevertheless
+003. Cybernalia - Emtek (Original Mix)
+004. Gmj And Matter - Perfect Storm(   Читать дальше...   )Жанр: Future House, ElectroПродолжительность: 12:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CB4EAFE4DCD3C964B55A2B850F09A32B43EA82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455583   (1025617) от 19.03.2021
 
 VA - Music News vol.83 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,33 +695,6 @@ VA - Intimacy (2021) [MP3|320 Kbps] <Easy Listening, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBB7D6F2327A849109126E67550BF50E1B3CC225
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453734   (1026781) от 12.03.2021
-
-VA - Beatport Progressive House: Electro Sound Pack #253 (2021) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличный танцевальный саунд сборник для завершения зимнего сезона! Лонгплей не оставит равнодушным ни слушателя, ни ди-джея, который ищет подходящий материал для своего сета. А все потому, что здесь приятная мелодика, обыгранная множеством инструментов от классических инструментов до винтажных синтов и прогрессирующий ритм, придающий трекам отличную динамику.001. Matt Fax - Collide (Original Mix)
-002. Mustafa Yildirim - The Perfect Storm
-003. Ariya - The Challenger Deep (Original Mix)
-004. Lnyx & Epidemika - Without U (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 13:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2974DD57887A120C48F27165E48052A912FB4AE0
 ```
 
 

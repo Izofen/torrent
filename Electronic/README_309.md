@@ -1,3 +1,30 @@
+###  Публикация: 1296971   (606805) от 20.04.2019
+
+Jay-Jay Johanson - Tattoo (1998) [FLAC|Lossless|tracks + .cue] <Electro, Trip Hop, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Even In The Darkest Hour (03:53)
+02. Quel Dommage (04:17)
+03. Murderans (00:32)
+04. Milan, Madrid, Chicago, Paris (04:11)(   Читать дальше...   )Жанр: Electro, Trip Hop, Synth-popПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB5A9C74285427AA8A707121292E834815552B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038450   (606825) от 28.07.2016
 
 VA - Paris Lounge Night (2016) [FLAC|Lossless|tracks] <Еаsу-Lіstеnіng>
@@ -670,33 +697,6 @@ Northern Lite - Hollywood Girl (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:433E07C6FEE042D44427818F58B3E117B24B3CC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546146   (609507) от 22.04.2022
-
-IC3PEAK - Kiss Of Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Darkwave, Witch House>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss Of Death [00:02:23]
-02. VAMPIR (feat. Oli Sykes of Bring Me The Horizon) [00:02:22]
-03. Last Day / Новый День [00:03:06]
-04. Bad Night [00:02:21](   Читать дальше...   )Жанр: Alternative, Coldwave, Darkwave, Minimal Synth, Witch HouseПродолжительность: 00:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF765348653BB3572BB5C22F421361E0BBD2EA81
 ```
 
 

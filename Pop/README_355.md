@@ -1,3 +1,84 @@
+###  Публикация: 1451931   (1027932) от 05.03.2021
+
+Женя Белоусов - Девчонка-девчоночка (1994) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вечером на лавочке (04:18)
+02. У любви глаза разлуки (05:12)
+03. Девчонка-девчоночка (04:55)
+04. Дрянная девчонка (04:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7052C77AF235EB088522E6C60BCA27051694330E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451850   (1027952) от 05.03.2021
+
+VA - Greetings from Sanremo Festival Best Songs (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michele Bravi - Il Diario Degli Errori (3:26)
+02. Mahmood - Soldi (3:15)
+03. Boomdabash - Per Un Milione (2:54)
+04. Elettra Lamborghini - Musica (E Il Resto Scompare) (3:14)(   Читать дальше...   )Жанр: PopПродолжительность: 04:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1465359CCF2139B89BFBF70785153E1D75820392
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451731   (1028158) от 03.03.2021
+
+Дискотека Авария - Лучшее 1995 - 2020 (Mixed By Atanov Cosperiva) (2021) [MP3|~225 Kbps (V1)] <Dance, Pop, Club>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дискотека Авария - Ат аффтара (Intro 1 Bar Version) (0:49)
+002. Дискотека Авария (Intro 2 Dance version) (1:45)
+003. Некуда деваться (2:47)
+004. Двигай-двигай (2:35)(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 01:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06746D60FC41BD211C22DE139F1D3DCEE53A56BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451577   (1028219) от 03.03.2021
 
 VA - Pop Acoustic Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -614,87 +695,6 @@ Lida - Музло из гаражей (2021) [MP3|320 Kbps] <Pop, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0608199F2F9361B3B931345065CE5A38A669341D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622813   (1029794) от 30.03.2023
-
-VA - Pop Classics (2023) [MP3|320 Kbps] <Disco, Funk, R&B, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lizzo - About Damn Time
-02. Ed Sheeran - Shivers
-03. Bruno Mars - Locked Out of Heaven
-04. Ava Max - Maybe You're the Problem(   Читать дальше...   )Жанр: Disco, Funk, R&B, Synth-popПродолжительность: 02:37:15 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640CCB1835784D858A5D55929EE6CC6EA8AF2624
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622877   (1029799) от 30.03.2023
-
-VA - Party Mix (2023) [MP3|320 Kbps] <Electropop, Dance, Future House, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KXXMA - Herz an Herz
-02. Drenchill, Jorik Burema - Starlight
-03. nullzwei, Chris Sigl, BERTHAJU - JESUS IN BERLIN
-04. Felix Jaehn - Wishlist(   Читать дальше...   )Жанр: Electropop, Dance, Future House, SynthpopПродолжительность: 02:30:53 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BFC4D2B1C0C261421EF8B7359025AA899AD73A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449366   (1029966) от 21.02.2021
-
-Ariana Grande - Positions (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. shut up
-02. 34+35
-03. motive (feat. Doja Cat)
-04. just like magic(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3AC11FADF02F66E2C4D44B651E7E2893806EB57
 ```
 
 

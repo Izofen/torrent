@@ -1,3 +1,84 @@
+###  Публикация: 1059464   (461717) от 04.10.2016
+
+VA - Серебряный диск 2 (1995) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алёна Апина - Семечек стакан
+02. Любовь Успенская - Хрустальная стена
+03. Игорь Саруханов - Сима
+04. Наталья Ветлицкая - Раба любви(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA62E42CD27D59D22C6E6D4079E873AD88637838
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059286   (461720) от 04.10.2016
+
+Supermax - Love Machine (1996) [FLAC|Lossless|image + .cue] <Electronic, Funk/Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Machine (4:32)
+02. Musicexpress (3:42)
+03. Be What You Are (2:56)
+04. Dance Dance Dance (3:45)(   Читать дальше...   )Жанр: Electronic, Funk/SoulПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD99B57541FF230462835E1D4BF81BF0CF537FF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059654   (461832) от 04.10.2016
+
+Venus Gang - Galactic Soul (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект известного французского музыканта, композитора и продюсера - Jean-Pierre Massiera.01. Cosmic Daddy (5:19)
+02. Space Inferno (3:41)
+03. Take Me Back To My Planet (3:43)
+04. Telstar (3:22)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:699AE570D9EFC7F9E9F9BE4AACDA257A0A4BE276
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549251   (462377) от 20.09.2012
 
 VA - Ciao Italia! 2 The ultimate Italian collection (2012) 4CD [MP3|320 кб/с]<Pop, Rock, Disco, Oldes>
@@ -639,97 +720,6 @@ magnet:?xt=urn:btih:7A4B2F6D1D1CC4DE4451AD774636698DD8CAC837
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F5CA77B97859034CEA430D71F01FF3FA935C807
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058695   (465873) от 02.10.2016
-
-VA - Radio 538 Hitzone 79 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1
-01. DJ Snake feat. Justin Bieber - Let Me Love You  (3:26)
-02. Jonas Blue feat. JP Cooper - Perfect Strangers  (3:15)
-03. Bastille - Good Grief  (3:28)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9E3AB00C0B117ED647AA14BC97FF76EEAF5A18D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568089   (466013) от 06.08.2022
-
-Gilbert O'sullivan - Driven (2022) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Невероятно, но пятьдесят лет прошло с тех пор, как Гилберт О'Салливан праздновал шестинедельное пребывание на вершине чарта Billboard США с песней Alone Again (Naturally) — песней, которая побудила Америку начать невероятный роман с этим ирландцем, но он всё же остаётся самым британским автором-исполнителем.
-Новый альбом Гилберта Driven последовал за его знаменитым (   Читать дальше...   )01. Love Casualty
-02. Blue Anchor Bay
-03. Let Bygones Be Bygones (feat. Mick Hucknall)
-04. Body and Mind(   Читать дальше...   )Жанр: Pop, Pop Rock, Folk RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7F69DAA42AF3389C984ADAD8E1971FA9A8E6DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547780   (466451) от 18.09.2012
-
-Boney M. - Original Version - Long Version - Rarities (2012) 4xCD Box Set / CD Records / [FLAC|Lossless]<Disco, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Chain Gang (Long Version) (5:41)
-02. Exodus (Maxi Version) (5:47)
-03. Gotta Go Home (Long 12'' Version) (5:07)
-04. Help! Help! (Long Version) (6:06) и т.д.01. Silly Confusion (12'' Version) (4:01)
-02. African Moon (Long Version) (6:43)
-03. I See A Boat On The River (Long 12'' Version) (6:07)
-04. I'm Alive  (Fr. Farian Corp. Long Version) (5:15)
-05. Going Back West (3:12)
-06. Hooray! Hooray! It's A Holi-Holiday (3:39)
-07. Love For Sale (4:15)
-08. Hold On! I'm Comin' (3:38)
-09. Bang Bang Lulu (3:01)
-10. Barbarella Fortuneteller (2:56)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 05:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0872B34A69D3E9F51E05A76C7507536AE1DB9622
 ```
 
 

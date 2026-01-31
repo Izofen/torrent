@@ -1,3 +1,30 @@
+###  Публикация: 1291656   (668800) от 25.03.2019
+
+Петля Нестерова - Кто здесь (1989) Maschina Records, 2019 [FLAC|lossless|image + .cue] <Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Право голоса (02:43)
+02. Кто здесь? (02:52)
+03. Попытка уснуть (03:49)
+04. К... (02:38)(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 01:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEF71A734FBD054A58BBA1243C98C42DB8BA8E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536954   (669323) от 15.03.2022
 
 Ork Bastards - Warmongers Of The Gloomy Lands (2019) [FLAC|Lossless|image + .cue] <Speed Metal, Black Metal>
@@ -686,33 +713,6 @@ magnet:?xt=urn:btih:56B0BBD858DF09423EE2362FCF3A28A51C5820D4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E3D9CFD77257639746867F51D75547CEFF2E006
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402706   (698023) от 16.08.2020
-
-Maestro Nosferatu - Maestro Nosferatu (2020) [FLAC|Lossless|WEB-DL|tracks] <Gothic Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blood [00:03:25]
-02. I Need a Knife [00:04:18]
-03. Dance Mephisto [00:03:36]
-04. Save Me [00:03:55](   Читать дальше...   )Жанр: Gothic IndustrialПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4931C05E0EBBA828D157A3AD0AF13361D0B64145
 ```
 
 

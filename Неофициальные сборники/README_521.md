@@ -1,3 +1,30 @@
+###  Публикация: 1386614   (793414) от 30.05.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 29.05.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz feat. Alida - In Your Eyes 3:28
+02. Trevor Daniel - Falling 2:39
+03. Topic & A7S - Breaking Me 2:47
+04. Doja Cat - Say So 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB12D23E88C34F313C363BF44DAFEBE7F3CBEAB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012319   (793450) от 01.05.2016
 
 VA - Вспомним 90-2000 от Виталия 72 - 5 (2016) [MP3|320 кб/с] <Поп>
@@ -668,33 +695,6 @@ VA - Рок впрок 11 (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F8C49E4971AB3979662B3A1A90B952D7C4C913
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509625   (794027) от 13.11.2021
-
-VA - Beatport Techno: Sound Pack #367 (2021) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Trym - Power
-002. Axones - Signal
-003. Mbm - X Pression
-004. Sin Sin - Vision(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F11E528B3FA0F94E84ADA6544448949D77DC94D
 ```
 
 

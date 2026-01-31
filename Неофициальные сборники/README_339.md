@@ -1,3 +1,30 @@
+###  Публикация: 1044263   (567571) от 19.08.2016
+
+VA - Ibiza Progressive Sessions Unleashed (2016) [MP3|320 Kbps] <House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vadim Spark  -  New Life  7:20
+02. Sean Marx  -  Southbound  6:54
+03. Rufus K  -  Moonlight  6:53
+04. Jelly For The Babies & Filip Fisher  -  And Then Came You  5:13(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 02:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A11EC28D02CE73EE99E5882C1A90F0E4C9A59BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922717   (568203) от 29.07.2015
 
 VA - Extra House (episode 4) (2015) [MP3|320 кб/с]<Deep House, Club House>
@@ -704,33 +731,6 @@ VA - 100 Золотых Танцевальных Хитов (2013) [MP3|256 - 32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0062A9B66BF48FDEDC9CE1CD1D2FE620705129D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922323   (569817) от 28.07.2015
-
-VA - Летние super новинки. Часть 3 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_569817.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eduard De Costa - Summer Time
-002. Валенсия И Андрей Гражданкин - Лепестки Белых Роз
-003. Lx24 - Когда Ты Рядом Со Мной
-004. Dami Im - One More Time(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98B1C9CA852A5EC1C12E41946162B11A0090264
 ```
 
 

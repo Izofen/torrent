@@ -1,3 +1,145 @@
+###  Публикация: 552548   (446230) от 27.09.2012
+
+Steve Stevens - Atomic Playboys (1989) [WavPack|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic Playboys
+02. Power Of Suggestion
+03. Action
+04. Desperate Heart
+05. Soul On Ice
+06. Crackdown
+07. Pet The Hot Kitty
+08. Evening Eye
+09. Woman Of 1,000 Years
+10. Run Across Desert Sands (Instrumental)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052851   (446235) от 11.10.2016
+
+Heaven Shall Burn - Wanderer (2016) Limited Artbook Edition, 3CD [MP3|320 кб/с]<Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Абсолютно новый альбом одного из самых важных представителей немецкого металкора, коллектива Heaven Shall Burn. Предыдущий альбом группы - "VETO" (2013), занял вторую сточку в германском альбомном чарте. Продюсерами нового альбома выступили гитаристы Alexander Dietz и Maik Weichert. Смикшировал альбом популярный датский продюсер и звукоинженер Tue Madsen, (   Читать дальше...   )CD1 - Original Album
+CD2 - Too Good To Steal From
+CD3 - Dark Purity MixЖанр: MetalcoreПродолжительность: 02:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B708BCB55D107518A933D8EE695977464D6222A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061577   (446238) от 11.10.2016
+
+Alex Bollard - Sultan Of Swing (Mark Knopfler's Album Of Hits) 1994 [FLAC|Lossless|image + .cue] <Acoustic, Pop Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultans Of Swing   (04:25)
+02. Private Investigations   (04:22)
+03. Water Of Love   (03:50)
+04. Romeo And Juliet   (04:16)(   Читать дальше...   )Жанр: Acoustic, Pop Rock, InstrumentalПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3D5B54245E6A8DD2BCBCE15B983A7CE9C96868
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061694   (446241) от 11.10.2016
+
+Meshuggah - The Violent Sleep Of Reason (2016) [FLAC|Lossless|image + .cue] <Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clockworks
+02. Born in Dissonance
+03. MonstroCity
+04. By the Ton(   Читать дальше...   )Жанр: Math MetalПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266620A3E8FE156B058A9D3E5B020E69F6D1DB6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248163   (446364) от 18.09.2018
+
+VA - Let's Have a Party (Girls Gone Rockin' Vol. 2) (2002) 3CD [FLAC|Lossless|tracks + .cue] <Rock & Roll, Rockabilly, Rhythm & Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446364.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Janis Martin - My Boy Elvis (02:12)
+02. Etta James - Shortnin' Bread Rock (02:34)
+03. Debbie Stevens - If You Can't Rock Me (01:42)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, Rhythm & BluesПродолжительность: CD1 - 00:57:51
+CD2 - 00:58:52
+CD3 - 00:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE86BF760EA57AE8EDEDFEF0B3BA52F4CA478397
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322566   (446577) от 30.08.2019
 
 Saor - Forgotten Paths (2019) [FLAC|Lossless|tracks + .cue] <Black Metal, Caledonian Metal>
@@ -268,6 +410,33 @@ magnet:?xt=urn:btih:526603265CBE71676BE80DDB1101407876CDFD57
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390781   (447051) от 22.09.2011
+
+Sigue Sigue Sputnik - Flaunt It (1986) [FLAC|Lossless]<Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sigue Sigue Sputnik - английская группа, музыкальный стиль которой можно охарактеризовать как электронный пост-панк. Образована в 1984-м году Тони Джеймсом (Tony James), Мартином Дигвиллом (Martin Degville), Нилом Экс (Neal X), Рэйем Мэйхью (Ray Mayhew) и Крисом Кавана01. Love Missile F1-11
+02. Atari Baby
+03. Sex-Bomb-Boogie
+04. Rockit Miss U-S-A(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569861   (447097) от 15.08.2022
 
 Frumpy (8 Days In April / Inga Rumpf) - 10 albums, 14 CD (1970-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Krautrock, Prog Rock, Blues Rock>
@@ -533,169 +702,6 @@ magnet:?xt=urn:btih:591276C6B8D24644728762B1F3691CEB465163F9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A3E4ECC9D161DFF1C83064F16846AD92DC00B3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569891   (447205) от 15.08.2022
-
-EVO - 2 Relises (2021-2022) [MP3|320 Kbps] <Alternative, Trancecore, Post-Hardcore, Electronik>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вечная зима [00:03:45]
-02. Проклятый таймлайн [00:02:49]
-03. Никому не говори [00:03:15]
-04. Босиком по Луне [00:03:13](   Читать дальше...   )Жанр: Alternative, Trancecore, Post-Hardcore, Electronik
-Страна исполнителя (группы): RussiaПродолжительность: 2 CD, 01:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CD9CA9369024E5FB50E55ED54804F2A74168B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943631   (447215) от 04.10.2015
-
-Heart Of A Coward - Deliverance (2015) [MP3|320 кб/с]<Progressive Metalcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollow (4:17)
-02. Miscreation (4:36)
-03. Turmoil I: Wolves (4:16)
-04. Turmoil II: The Weak Inherit The Earth (5:49)(   Читать дальше...   )Жанр: Progressive Metalcore, HardcoreПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF54C03AB682BE53359C1725BED20CADC579DD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570032   (447290) от 15.08.2022
-
-Space Of Variations - Imago (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone Else [00:03:28]
-02. Vein mp3 [00:03:56]
-03. Non-Human Club 2.0 [00:03:14]
-04. DNA Molecule In A Million Of Dimensions [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C9C60593EAA26B48400B95E4051703D60FE554
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570057   (447297) от 15.08.2022
-
-The Brave - Gravedigger (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gravedigger
-02. Bad Day
-03. BraveNation
-04. Eternal(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD37D823C11E676287B1D208B49287A8820FE7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570048   (447298) от 15.08.2022
-
-Space Of Variations - Imago (2022) Scene [FLAC|Lossless|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone Else [00:03:28]
-02. Vein mp3 [00:03:56]
-03. Non-Human Club 2.0 [00:03:14]
-04. DNA Molecule In A Million Of Dimensions [00:03:28](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39FAC131AC6C5708BC1096F12F6505D12339DB91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569898   (447299) от 15.08.2022
-
-Age Of Darkness - As Essence Left Your Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_447299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Funeral March -6ft Under (00:02:47)
-02 - Black Knight (00:02:43)
-03 - Madness (Explicit Version) (00:04:25)
-04 - Age of Darkness (00:03:57)(   Читать дальше...   )Жанр: Black, Death MetalПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50DB401159C09910AE4ECFFC72134CA1485B882
 ```
 
 

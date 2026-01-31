@@ -1,3 +1,202 @@
+###  Публикация: 1562174   (509027) от 09.07.2022
+
+Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpan>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky & Sand
+02. Breath
+03. Lifeline
+04. Lotus Unfolding(   Читать дальше...   )Жанр: Meditative, HandpanПродолжительность: 01:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2393BFC6D6C726E4521FF4F32942889D6AAB3D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932411   (509362) от 29.08.2015
+
+VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]<Relaxation, New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larry Dalton - Minuet in G Minor, Suite No. 1
+02. Shannon Devos - Ambiance of a Piano
+03. Peng Jing - Days of Sunshine
+04. Gonella - Notturno No. 3(   Читать дальше...   )Жанр: Relaxation, New AgeПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F35FC38EA887BA674287CC1B495E5C6EE89BEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377252   (509520) от 18.08.2011
+
+Franz Lambert - Pur (2001) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франц Ламберт (родился 11 марта 1948 года в Heppenheim, Германия) - немецкий композитор и органист. Он является страстным исполнителем на Хаммонд-органе, однако в последние годы предпочитает электронные органы Wersi . За свою карьеру он выпустил более 100 альбомов.
+Его первой заметным публичным выступлением было выступление в 1969 году в немецком телешоу Zum Blauen (   Читать дальше...   )01. El Torero 				(03:12)
+02. Baby Elephant Walk 		(03:27)
+03. Watermelon Man 			(03:05)
+04. Hello Josephine 			(02:45)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4289948189A70C6290BECF60E5C438487A2602D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537163   (510491) от 22.08.2012
+
+Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxophone , World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Namaste (05:26)
+02. Brhama-Vishnu-Shiva (05:29)
+03. Dance Of The Elephant God (04:54)
+04. Lotus Lovers (04:57)
+05. Transcendental Consciousness (05:13)
+06. Valley Of Flowers (05:58)
+07. Silsila (06:38)
+08. Om Shanti (04:10)
+09. Transcendental Consciousness (Walter A. Remix) (03:44)
+10. Namaste (Soul Seekerz Club Mix) (03:38)Жанр: Smooth Jazz , Saxophone , WorldПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537652   (510545) от 22.08.2012
+
+VA - Mystic & Relax Vol.1(2007) [MP3|192 кб/с]<Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Enigmatic, New Age, Electronic Music, Ambient, EthnoПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52214B19ED1535670C6BB5A5DE842289064ABBFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315791   (510698) от 22.07.2019
+
+Donald Quan - Zen Garden: Music For Relaxation (2013) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510698.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Arise (8:15)
+2.Sunrise at Guilin (7:57)
+3.Inward Reflections (4:58)
+4.Whispers in the Breeze (5:54)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8014C277E08C761E65A5EAC15D0F9E838809FE43
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537626   (511469) от 21.08.2012
+
+Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Muppets & Joanna Newsom - The Muppet Show Theme
+02. Walter - Muppet Studios, I Can't Believe It
+03. Mickey Rooney, Feist, Amy Adam - Life's A Happy Song
+04. Jason Segel & Kermit - I Haven't Seen The Old Gang
+05. Gonzo, Fozzie, Swedish Chef, K - Pictures In My Head
+06. Walter & Kermit - We Drive
+07. Paul Simon - Me And Julio Down By The Schoolyard
+08. Amy Adams & 80's Robot - That Spells Reno
+09. The Moopets - Rainbow Connection
+10. Fozzie, Walter, Kermit & Dr. T - Welcome back(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071C38B229115B52A41F1474D51622B157E293DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536792   (512278) от 20.08.2012
 
 Emilie Autumn - Fight Like A Girl (2012) [FLAC|Lossless]<Dark Cabaret, Gothic, Darkwave, Alternative, Female vocalists>
@@ -515,195 +714,6 @@ Yakuro - Spirits Of The Worlds Full & Remaster (2009-2019) [MP3|192 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FE3BA3C107A6673FEA3B126E376B3B45D3B2547
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314716   (517031) от 16.07.2019
-
-Wychazel - White Wolf Spirit 3 (2019) [MP3|320 Kbps] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517031.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The Shaman's Dream (8:18)
-2.Running Barefoot (7:58)
-3.White Wolf Vision Quest (12:32)
-4.The Song of the Wind (8:20)(   Читать дальше...   )Жанр: New ageПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5F98E6DEEDFCEFED012DF431310140F59598E9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314389   (517971) от 15.07.2019
-
-VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_517971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дарья Антонюк - Круг жизни (04:02)
-02. Hans Zimmer - Life's Not Fair (01:44)
-03. Hans Zimmer - Rafiki's Fireflies (01:53)
-04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCD54BE20175793046177C97202302C0D20EDB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314390   (518071) от 15.07.2019
-
-VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дарья Антонюк - Круг жизни (04:02)
-02. Hans Zimmer - Life's Not Fair (01:44)
-03. Hans Zimmer - Rafiki's Fireflies (01:53)
-04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1F1A650AECDCA185AD1AEFFC6E98F0A800E40A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241204   (518122) от 19.08.2018
-
-VA - 70's Soul: Classic Singles (2018) [MP3|320 Kbps] <Soul, Disco, Philly Soul, Rhythm and Blues, Funk>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben E. King - Supernatural Thing
-02. Donny Hathaway - The Ghetto
-03. Aretha Franklin - Im In Love
-04. Wilson Pickett - Engine Number 9(   Читать дальше...   )Жанр: Soul, Disco, Philly Soul, Rhythm and Blues, FunkПродолжительность: 01:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEBDB44C38333EDA6BCFF59C435DC72594A4D70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314388   (518170) от 15.07.2019
-
-VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lindiwe Mkhize & Lebo M. - Circle Of Life/Nants' Ingonyama (04:02)
-02. Hans Zimmer - Life's Not Fair (01:44)
-03. Hans Zimmer - Rafiki's Fireflies (01:53)
-04. JD McCrary & Shahadi Wright Joseph & John Oliver - I Just Can't Wait To Be King (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230318E1CD56D768B4E7C5B3DC185AB31EFEF381
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241205   (518215) от 19.08.2018
-
-VA - Absolute 60's (2018) [MP3|320 Kbps] <Blue-Eyed Soul, Rhythm and Blues, Schlager, Europop, Folk, Country>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Animals - The House of the Rising Sun
-02. Frankie Valli - Can't Take My Eyes Off You
-03. Hep Stars - Sunny Girl
-04. Ben E. King - Stand By Me(   Читать дальше...   )Жанр: Blue-Eyed Soul, Rhythm and Blues, Schlager, Europop, Folk, CountryПродолжительность: 01:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7FF4FE7DCC7597C6E6F56ADBBDE41A52879181
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241485   (518410) от 19.08.2018
-
-Lisa Mitts - Heart Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abide in My Love
-02. Divine Breath
-03. Falling into Winter
-04. Heart Song(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92065969537487A70D85CA70831DE8C6EFEF81D7
 ```
 
 

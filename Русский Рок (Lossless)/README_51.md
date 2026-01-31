@@ -270,6 +270,39 @@ magnet:?xt=urn:btih:99A0757954C1521B070DB09588FF1825F62F2DD5
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552133   (449032) от 26.09.2012
+
+Затмение - Затмение (2005) [FLAC|lossless] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ангел (03:56)
+02. Затмение (04:11)
+03. Дорога в рай (03:43)
+04. Сила (Не было ответа) (03:16)
+05. Воздаяние или месть (03:52)
+06. Навсегда (04:57)
+07. За тобой (04:43)
+08. Я не твой слуга (04:08)
+09. Пришел за советом (01:27)
+10. Любовь (08:25)Жанр: Power MetalПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569291   (449567) от 14.08.2022
 
 Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
@@ -688,33 +721,6 @@ magnet:?xt=urn:btih:58A23399D72BCF10DF0539F1EDBC6441B609BEAD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3B508075462C086FB7640FDF1017E9D4DF8C88A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940228   (469163) от 24.09.2015
-
-Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cue]<Symphonic Black / Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcane Grail
-02. Of Snake and Raven
-03. Autumn Wed Us, Sinned and Lone
-04. Renaissant the Reverie(   Читать дальше...   )Жанр: Symphonic Black / Melodic Death MetalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564705FE98B83A77987F1B3965E39F01E7B5948F
 ```
 
 

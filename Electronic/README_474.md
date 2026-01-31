@@ -1,3 +1,30 @@
+###  Публикация: 1095547   (924566) от 21.01.2017
+
+VA - Wind In The Field (Downtempo Series)  Vol.009 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Moj@r - Sex (Original Mix)  5:01
+02.  Valefim Planet - I'll Be With You (Original Mix)  4:23
+03.  Sergio Gray - Cuckoo (Original Mix)  6:05
+04.  Yevgeniy Khon - Autumn Fall Of The Leaf (Original Mix)  5:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722C88F19461B4FB28FF53E2E62E24B9125AA7BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095720   (924570) от 21.01.2017
 
 VA - Future Funk Meets Electro (2017) [MP3|320 Kbps] <Progressive House>
@@ -664,33 +691,6 @@ VA - Best Of Dance 2005 (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C38C1164ABAACA94D28007820C0742CD27003E31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094955   (927809) от 19.01.2017
-
-VA - Extreme Cardio Vol 2 (2017) [MP3|320 Kbps] <Hard House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robbie Teeze - Go Away (Original Mix) 06:29
-02. Karlston Khaos - The Drop (Original Mix) 06:32
-03. Bassik - Dark Dreams (Original Mix) 06:56
-04. Fierce Djs - Animal Funk (Original Mix) 06:44(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D015F05948C3CE0CFA600FB2C2BB2854DF0922B8
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1031036   (670239) от 02.07.2016
+
+VA - Kamasutra Erotic and Sexy Compilation 2016: Love Making Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radney Lee - Free Your Mind
+02. Jagdish Kay - Purity of Mind
+03. Sanjay Farrell - Cloud Line
+04. Deepak Rajesh - Body of Joy(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:696DBA56948BC748580A0CF2E21C23F7EDD976EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031087   (670244) от 02.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 46 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -665,33 +692,6 @@ VA - Loungers 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD8D5E64C01B0C7DC92FDFDDFB856FE7CE57A70B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291235   (670493) от 24.03.2019
-
-VA - Сегодня на радио хиты FM Vol.5 (2019) [MP3|256 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chainsmokers, 5 Seconds Of Summer - Who Do You Love (3:46)
-02. A Boogie wit da Hoodie, Olexesh - Look Back At It (2:58)
-03. Aaron Smith - Dancin (3:18)
-04. Achtabahn - Boten Anna (2:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:397DCE8B5022E166BFA34DF6CBF993759EF60584
 ```
 
 

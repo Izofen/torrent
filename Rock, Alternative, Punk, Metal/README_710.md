@@ -1,3 +1,54 @@
+###  Публикация: 1164430   (441297) от 09.09.2017
+
+Би-2 feat. John Grant - Виски (2017) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441297.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ВискиЖанр: RockПродолжительность: 00:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D9008A9DF64C765BBF7233EC39BCA9AED49045
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164433   (441311) от 09.09.2017
+
+Tori Amos - Native Invader (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reindeer King
+02. Wings
+03. Broken Arrow
+04. Cloud Riders(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAFA157DF9171D008B875C934374B73F5C850959
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553444   (441349) от 29.09.2012
 
 Tori Amos - Gold Dust (2012) [MP3|320 кб/с]<Alternative Rock, Piano Rock, Baroque Pop>
@@ -658,60 +709,6 @@ Almendra - En vivo en el Teatro del Globo (2004) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD542DB2788E554558D51EBADBEDB032237CB84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248530   (442670) от 20.09.2018
-
-Manticora - Safe (2010) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Abyss Of Desperation (5:32)
-02. Silence The Freedom (7:05)
-03. Complete (5:30)
-04. From The Pain Of Loss (I Learned About The Truth) (4:37)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8FDFE390A2DE7E219608E9ECF8AD69444C438D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248532   (442671) от 20.09.2018
-
-Manticora - The Black Circus Part 1 - Letters (2006) [APE|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter The Carnival (2:07)
-02. The Black Circus (5:27)
-03. Intunerie I (0:32)
-04. Enchanted Mind (5:30)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704348F165CA4F488110389DEF3ED0088B4A58A5
 ```
 
 

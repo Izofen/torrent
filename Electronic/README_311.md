@@ -1,3 +1,30 @@
+###  Публикация: 1296538   (611842) от 17.04.2019
+
+VA - Solo Vol.I (Mixed by Simon Patterson) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Astrix & Freedom Fighters - Burning Stones (Original Mix)
+02. Greg Downey & Sunscreem - Perfect Motion (Short Mix)
+03. Denis Sender & DJ T.H. & Cari - I Found You (Maywave Dub Mix)
+04. Peter Steele & Simon Bostock Ft. Kate Miles - My Place (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF5E62F88C1484A3B7DE7AA7437CD33FE17F9A04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296490   (611845) от 17.04.2019
 
 VA - Clubparty (2019) [MP3|320 Kbps] <Deep House>
@@ -674,33 +701,6 @@ Entheogenic - Kykeon (2018) Universal Symbiosis [FLAC|Lossless|WEB-DL|tracks] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D34C41EC4108E228D70E0DB5961FFE8C187D46D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230552   (614060) от 13.06.2018
-
-Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Environment (06:10)
- 02. Road to Nowhere (04:18)
- 03. Solar Halos (05:01)
- 04. Beyond the Edge (05:14)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23602095E43B601B4BC4D9C93243BB985DA7803D
 ```
 
 

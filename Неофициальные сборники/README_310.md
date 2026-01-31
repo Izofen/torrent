@@ -1,3 +1,30 @@
+###  Публикация: 928420   (522219) от 16.08.2015
+
+VA - The Best Dance Hits Of 90's-2 (2015) [MP3|320 кб/с]<Pop, Eurodance, House,Techno, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 La Bouche-Be My Lover 4:01
+002 Masterboy-Feel The Heat Of The Night 6:43
+003 Sash!-Adelante 6:49
+004 Jam & Spoon-Right In The Night(Fall In Love With Music) 3:47(   Читать дальше...   )Жанр: Pop, Eurodance, House,Techno, TranceПродолжительность: 16:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F1D30122D7DEE9608F826206A4452CE3907E62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313908   (522264) от 11.07.2019
 
 VA - Little Known Disco (2019) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -677,33 +704,6 @@ Dance:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE1D9DEA524BE57EA278D349929B7C1A5AB60144
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240648   (523389) от 13.08.2018
-
-VA - Mega Pack Russian Retro 90's Remix 2018 [MP3|320 Kbps] <Euro-House, Eurodance, Europop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523389.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 - t.A.T.u - Скажи зачем
-002 - Лика - Одинокая луна (Ural DJ's Boot Extended Mix)
-003 - Светлана Разина - Зима (Efimenko Synthpop Remix)
-004 - A-Mase Sharliz - Мало огня (Линда Cover Radio Mix)(   Читать дальше...   )Жанр: Euro-House, Eurodance, EuropopПродолжительность: 45:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA83F119D3DABB507DCBD9290D7DE5482E65E01
 ```
 
 

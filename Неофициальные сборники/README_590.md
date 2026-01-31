@@ -1,3 +1,30 @@
+###  Публикация: 1102323   (890337) от 09.02.2017
+
+VA - 100 Gold Classic Music Vol.2 (2017) [MP3|320 Kbps] <Classical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Johann Sebastian Bach - Badinerie  1:25
+002.  Johann Sebastian Bach - Menuett  1:20
+003.  Franz von Suppe - O du mein Osterreich  2:06
+004.  Franz von Suppe - Leichte Kavallerie  6:48(   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2254188FDB592D006A327C306B9A0DEB91B1CD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 638533   (891191) от 05.04.2013
 
 VA - Ibiza Lounge Classics Vol 2 (2013) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -673,33 +700,6 @@ Eminem - Best of Eminem (2017) [MP3|192-320 Kbps] <Rap, R&B, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C35337490F565C35AECC4C349CF7C469C39939F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493947   (891991) от 05.09.2021
-
-VA - Shazam Хит-парад World Top 200 Август (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891991.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Kid LAROI, Justin Bieber - STAY (2:21)
-002. Ed Sheeran - Bad Habits (3:51)
-003. Lil Nas X, Jack Harlow - INDUSTRY BABY (3:32)
-004. Shouse - Love Tonight - Edit (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91BA05C9D56D4F694F5B29CBE3109E47743C64B
 ```
 
 

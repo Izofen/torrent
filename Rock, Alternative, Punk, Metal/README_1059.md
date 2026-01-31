@@ -1,3 +1,324 @@
+###  Публикация: 1505175   (806156) от 26.10.2021
+
+Pink Floyd - A Foot in the Door: The Best Of Pink Floyd (2011) Remastered Version [FLAC 2.0|192.0/24|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey You (2011 Remastered Version) (04:39)
+02. See Emily Play (2011 Remastered Version) (02:43)
+03. The Happiest Days Of Our Lives (2011 Remastered Version) (01:38)
+04. Another Brick In The Wall, Pt. 2 (2011 Remastered Version) (03:49)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC8CAFC24D1F6D2A4F2572939731CA81DD4087B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198597   (806194) от 12.01.2018
+
+Joe Satriani - What Happens Next (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Energy
+ 02. Catbot
+ 03. Thunder High on the Mountain
+ 04. Cherry Blossoms(   Читать дальше...   )Жанр: Rock, InstrumentalПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E9307DA984A966420B2940510E51A7DD759373
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504376   (806238) от 26.10.2021
+
+Элизиум - Жыве Беларусь (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жыве БеларусьЖанр: RockПродолжительность: 00:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2BB1654AB41BC992A71C18232B529676ECA2BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505181   (806239) от 26.10.2021
+
+Pink Floyd - Atom Heart Mother (1970) Reissue, 2016, Pink Floyd Records [FLAC 2.0|192.0/24|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atom Heart Mother (23:42)
+02. If (4:31)
+03. Summer '68 (5:28)
+04. Fat Old Sun (5:24)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D21A98A59B8DE8825AFFAFAF2017AD7A92A1A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504953   (806243) от 26.10.2021
+
+Pink Floyd - Animals (1977) remastered 2011, reissue 2021 [FLAC 2.0|192/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806243.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pigs On The Wing (Part One)
+2. Dogs
+3. Pigs (Three Different Ones)
+4. Sheep(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7CE8FB2F37AA4B9BEE17E3617879B8E595175FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504879   (806248) от 26.10.2021
+
+Pink Floyd - A Momentary Lapse Of Reason (1987) 2019 Remix, Reissue, 2021, Rhino - Parlophone [FLAC 2.0|96/24|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signs of Life
+02. Learning to Fly
+03. The Dogs of War
+04. One Slip(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4214A69F173638491BDB82300E09220D9265073D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504965   (806255) от 26.10.2021
+
+Pink Floyd - A Collection Of Great Dance Songs (1981) Remastered 2001, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Of These Days (2001 Remastered Version) (05:50)
+02. Money (2001 Remastered Version) (06:47)
+03. Sheep (2001 Remastered Version) (10:19)
+04. Shine On You Crazy Diamond (Pt. One) [1-5] (2001 Remastered Version) (10:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:587E677566ACCCD04FE60F1A554ED95633AA298F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505067   (806256) от 26.10.2021
+
+Pink Floyd - The Final Cut (1983) Reissue 2016, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806256.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 The Post War Dream
+2 Your Possible Pasts
+3 One Of The Few
+4 When The Tigers Broke Free(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE73DF5E42C0C92DA83C0584BA9A6DA932A61453
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198630   (806278) от 12.01.2018
+
+Nothing More - The Stories We Tell Ourselves (2017) [MP3|320 Kbps] <Alternative Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806278.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ambition / Destruction (0:18)
+2. Do You Really Want It? (3:53)
+3. Convict / Divide (0:41)
+4. Let 'Em Burn (3:56)(   Читать дальше...   )Жанр: Alternative Rock, Progressive RockПродолжительность: 00:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA7653E9B0CEB640FCBF03A7CA3BF539DF5C57A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198633   (806286) от 12.01.2018
+
+Nothing More - Nothing More (2013) Deluxe Edition [MP3|320 Kbps] <Alternative Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Floor (01:00)
+02. This Is The Time (Ballast) (03:41)
+03. Christ Copyright (03:18)
+04. Mr. MTV (04:00)(   Читать дальше...   )Жанр: Alternative Rock, Progressive RockПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5BF0B4FEF47AB572EF57C55E547B3060FB326CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504973   (806303) от 26.10.2021
+
+Ozzy Osbourne - Blizzard Of Ozz (1980) 40th Anniversary Expanded Edition, 2020, Epic Records [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Know (5:15)
+02. Crazy Train (4:53)
+03. Goodbye to Romance (5:36)
+04. Dee (0:50)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90D24F85D259AE50903E3BC784A02B5E61A141D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504998   (806306) от 26.10.2021
+
+Dream Theater - A View from the Top of the World (2021) 2xCD, Limited Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806306.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Alien 09:32
+02. Answering The Call 07:35
+03. Invisible Monster 06:31(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C34D6BAF4C221E52766A9AC839059ABFD90A5FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504947   (806307) от 26.10.2021
 
 Pink Floyd - Meddle (1971) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
@@ -365,332 +686,6 @@ magnet:?xt=urn:btih:3BFFA3ED5C050DC0ED29AFA5D1CC01D83A8A5C2F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:869C75060ED873D071D4F524AF483059B088DAD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505046   (806439) от 26.10.2021
-
-Александр Невский - Русью Вскормлен (2021) Limited Edition, Remastered [FLAC|Lossless|image + .cue] <Russian Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро 0:52
-02. Русью вскормлен 5:16
-03. Вкус речи родной 5:00
-04. Александр Невский 5:05(   Читать дальше...   )Жанр: Russian Heavy MetalФормат: CD, Album, Limited Edition, Remastered
-
-13 мая 2021 года вышло переиздание единственного альбома советской хэви-метал группы Александр Невский. Релиз пластинки состоялся на лейбле OldWise Records и приурочен к 800-летию со дня рождения Великого Князя Киевского Александра Ярославича Невского.
-(   Читать дальше...   )Продолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6838DB4EF3A792E8A506EABCA619BF5FE0385F69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505118   (806442) от 26.10.2021
-
-Павел Колесник (Август) - Всему свой срок (2017) Limited Edition, Reissue, Remastered, 2020, OldWise Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806442.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Всему Свой Срок	4:54
-2		На Гребне Волны	5:59
-3		Время Покажет	5:10
-4		Ну И Что	4:20(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901F912CF16499B7A330AEC9A9852F662117C69C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504977   (806446) от 26.10.2021
-
-1914 - Where Fear and Weapons Meet (2021) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Black Metal, Melodic Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War In [00:01:11]
-02. Fn .380 Acp#19074 [00:05:54]
-03. Vimy Ridge (In Memory Of Filip Konowal) [00:05:11]
-04. Pillars Of Fire (The Battle Of Messines) [00:07:04](   Читать дальше...   )Жанр: Black Metal, Melodic Death, Doom MetalПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDFDFBA13DE3847ECD6462EE038D7BC05E711AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505157   (806511) от 26.10.2021
-
-Little Gerard L'Her (ex. Rockets) - A Perfect World (2008) CD [MP3|320 Kbps] <Electronic, Prog Rock, Synth-pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806511.jpg" />
-</div>
-
-
-###  Подробнее
-
-'Little' Gérard L'Her - певец, бас-гитарист, композитор и основатель исторического образования Rockets. Первый сольный альбом под названием "A perfect world" включает в себя десять композиций, в т.ч. новую версию Legion of Aliens.01. Everybody (4:10)
-02. Up And Down (3:04)
-03. How (3:29)
-04. Passing By (4:27)(   Читать дальше...   )Жанр: Electronic, Prog Rock, Synth-popПродолжительность: 00:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DF6139299F3601D74B4A11F14C7BC594623618
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505200   (806512) от 26.10.2021
-
-Winter Rose - Winter Rose (1989) Japanese Edition, Reissue, 1997, Victor [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Winter Rose (в переводе с англ. — «зимняя роза») — канадская хард-рок-группа, образованная в Монреале. Группа выпустила лишь одноимённый альбом в 1989 году, вскоре после чего развалилась. В 1997 году альбом был переиздан немецким лейблом InsideOut Music.
-
-Группа появилась в середине 1980-х и называлась Hope. В её состав входили гитарист Ричард Чики и (   Читать дальше...   )01. Asylum City (3:34)
-02. I'll Never Fall In Love Again (3:49)
-03. Rough Boys (4:26)
-04. Dianna (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4E63D8DF8044C34DA5BCA9136FC9ED801B3AD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505013   (806521) от 26.10.2021
-
-Silent Opera - Reflections (2014) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond the Gate of a Deep Slumber
-02. Nightmare Circus
-03. Dorian
-04. The Great Chessboard(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FC62059AA8EB602BFD2F7186D6AC6F552E6BA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505281   (806523) от 26.10.2021
-
-Galahad Electric Company - Soul Therapy (2021) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Therapy 04:14
-02. All That Glitters 06:50
-03. Gone To Ground 05:29
-04. Fluidity 03:54(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DA256BC52D273930026D7A4BC4C7CAF8F8832F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884321   (806782) от 03.04.2015
-
-Александр Ф. Скляр - Годы и песни. Лучшее (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песни моряков
-02. Моя жизнь
-03. Люба-бабавая
-04. Вася-совесть(   Читать дальше...   )Жанр: RockПродолжительность: 03:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F21D59EF278A8F85E59563C010799097D875E042
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119701   (806963) от 28.03.2017
-
-Александр Иванов - Этой весной (2017) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Этой весной
-02. Друг мой
-03. Городские цветы
-04. В облаках у водопадаЖанр: RockПродолжительность: 00:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEAC5D93142B95D7DFBA391DF2C7E8848EDA3385
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199083   (807004) от 08.05.2010
-
-Electric Light Orchestra - Flashback (box set compilation) (2000) [MP3|320 kbps]<Progressive & Art-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive & Art-RockПродолжительность: 03:33:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119592   (807094) от 28.03.2017
-
-Ольга Арефьева и Ковчег - Ангел и девочка (2017) [FLAC|Lossless|tracks+ .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полночь
-02. Пирамида Хео
-03. Моа-моа
-04. Двойное дно(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E84002E9D96B49DBA5CF50DE48846757A609CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884540   (807198) от 03.04.2015
-
-Agnostic Front - The American Dream Died (2015) [MP3|320 кб/с]<Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:01)
-02. The American Died (01:31)
-03. Police Violence (00:58)
-04. Only In America (01:39)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:27:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1855C1DB0E40F66CCB65A64DA582CF674C0D7CBB
 ```
 
 

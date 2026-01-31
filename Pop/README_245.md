@@ -1,3 +1,84 @@
+###  Публикация: 1222927   (680784) от 01.05.2018
+
+Kylie Minogue - Golden (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing
+02. Stop Me From Falling
+03. Golden
+04. A Lifetime To Repair(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6480251E79EB406E8FD0B6F17B2F20E4C6268B46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222978   (680920) от 01.05.2018
+
+Leroy Gomez & Santa Esmeralda - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_680920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Родился в городе Cape Cod, штат Массачусетс. В возрасте 14 лет уже сформировал свою собственную группу. После работы с местными группами и освоив вокал и саксофон был привлечен на тур с Tavares по США, Канаде и Европе, где влюбился в Париж и решил сделать его своим домом. Первый солист группы Santa Esmeralda. Альбом "Don`t Let Me Be Misunderstood" получил (   Читать дальше...   )Список альбомов:
+1977 - Santa Esmeralda Starring Leroy Gomez - Don't Let Me Be Misunderstood
+1978 - Leroy Gomes - Gipsy Woman
+1978 - Leroy Gomez - Number One Man(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B90F3C18214810AD9E34CDF5954CC927ACF43E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222862   (681081) от 01.05.2018
+
+VA - Ultimate... Party Anthems (2018) 4CD [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Ronson Feat. Bruno Mars - Uptown Funk
+02. R. Kelly - Ignition (Remix)
+03. Meghan Trainor - All About That Bass
+04. P!nk - Get The Party Started(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B9F532DCCF7E24D2363472E5E232B422074110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222790   (681083) от 01.05.2018
 
 VA - Mallorca Megaparty 2018 - Die WM Party! (2018) [MP3|320 Kbps] <Pop, Schlager>
@@ -626,87 +707,6 @@ Kristy & Jimmy McNichol - Kristy & Jimmy McNichol (1978) LP [MP3|320 Kbps] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3C1B2841163644CF2E34A60E99A4B3343D172C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289887   (684324) от 17.03.2019
-
-David Cassidy - Rock Me Baby (1972) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684324.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Rock Me Baby 3:25
-A2. Lonely Too Long 3:19
-A3. Two Time Loser 3:15
-A4. Warm My Soul 2:54(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217DBC4CF7260CDBB13199525345C80C9888C5C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289886   (684325) от 17.03.2019
-
-Orchester Anthony Ventura - Fantastic Dance Party (1978) LP [MP3|320 Kbps] <Pop, Disco, Easy Listening, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ha!Ha! Said The Clown / Peggy Sue (3:31)
-02. Rivers Of Babylon / Hang On Sloopy (4:58)
-03. Oh, Carol / Zusammenleben (4:09)
-04. Mr. Tambourine Man (3:07)(   Читать дальше...   )Жанр: Pop, Disco, Easy Listening, SchlagerПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D705E2C937F13FFBBE9AC75F8712967ACD0534CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289740   (684330) от 17.03.2019
-
-VA - Let's Dance - Party Pur (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fyah George - Chant
-02. DJ Jazzy James feat. Lara Gee - Where Is My Horse Gone (Funky Western Mix)
-03. Alex Zind - Calling Home
-04. MC Duro - Supergirl (Radio Edit)(   Читать дальше...   )Жанр: Euro-dance, PopПродолжительность: 02:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B72E5A27747B2752EC828E1AE1BC79FF5A7216
 ```
 
 

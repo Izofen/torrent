@@ -1,3 +1,57 @@
+###  Публикация: 921569   (575216) от 25.07.2015
+
+Dio - Live In London - Hammersmith Apollo (1993/2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертная запись Dio «Live In London: Hammersmith Apollo», сделанная 12 декабря 1993 года. Это было одно из первых выступлений группы после двухлетнего перерыва. Оно было приурочено к выходу альбома «Strange Highways».01. Stand Up and Shout
+02. Strange Highways
+03. Don't Talk to Strangers
+04. Evilution(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFF3781854E272A7A3663507B28ED8A03DAE0C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920730   (575276) от 25.07.2015
+
+Белый Орел - Как упоительны в России вечера Юбилейный концерт (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575276.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подарочное издание (digipack). Официальная версия юбилейного концерта группы Белый орел01. Интро
+02. Без тебя не могу
+03. Потому, что нельзя быть красивой такой
+04. Ностальгия(   Читать дальше...   )Производство: РоссияЖанр: Музыкальный, концертПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F65DA0F7CC5F4A44511DA1B63DDC1225A55B7C93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921289   (575372) от 25.07.2015
 
 Bon Jovi - Live at Madison Square Garden (2008) BDRip [H.264/1080p]
@@ -622,54 +676,6 @@ U2: 360° at the Rose Bowl (2010) DVD9
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300917   (585992) от 10.05.2019
-
-Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) BDRemux [H.264/1080p] [EN]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585992.jpg" />
-</div>
-
-
-###  Подробнее
-
-The iconic duo's acclaimed production, first presented at the Royal Opera House in 2016 over four sold-out shows, was reprised at the venue for a further four nights in July 2018 as part of their 'Super' tour. Staged by long-term PSB designer Es Devlin and choreographer/director Lynne Page, the show was filmed by director David Barnard. Filmed on 27 and 28 July 2018, (   Читать дальше...   )Производство: Великобритания, Pet Shop Boys Partnership LimitedЖанр: Synth-pop, Dance-pop, New waveРежиссер: David BarnardПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF83C61444553C30D48F430539D4999A5C657B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300929   (586050) от 10.05.2019
-
-Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) Blu-ray [H.264/1080p] [EN]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586050.jpg" />
-</div>
-
-
-###  Подробнее
-
-The iconic duo's acclaimed production, first presented at the Royal Opera House in 2016 over four sold-out shows, was reprised at the venue for a further four nights in July 2018 as part of their 'Super' tour. Staged by long-term PSB designer Es Devlin and choreographer/director Lynne Page, the show was filmed by director David Barnard. Filmed on 27 and 28 July 2018, (   Читать дальше...   )Производство: Великобритания, Pet Shop Boys Partnership LimitedЖанр: Synth-pop, Dance-pop, New waveРежиссер: David BarnardПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:15 + 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21BCEB820F947EC0F658BF8B6BDE79D310B957C
 ```
 
 

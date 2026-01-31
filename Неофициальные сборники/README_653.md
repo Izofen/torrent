@@ -1,3 +1,30 @@
+###  Публикация: 1487910   (1002822) от 08.08.2021
+
+VA - The Official UK Top 100 Singles Chart 06.08.2021 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Sheeran - Bad Habits
+02. The Kid Laroi, Justin Bieber - STAY
+03. Jonasu - Black Magic
+04. Dave, Stormzy - Clash(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F31102179EFDDB233530678FF72945134218C25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350674   (1002871) от 07.01.2020
 
 VA - Ремиксы 2К20 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
@@ -668,33 +695,6 @@ VA - Rock Classics (2021) [MP3|320 Kbps] <Classic Rock, Hard Rock, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77FCA245448C13E25A41924A6ED539CEA3762AAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349900   (1003577) от 05.01.2020
-
-VA - 5oFoF: Five Years of Friends of Friends (2014) [MP3|320 Kbps] <Electronic, Trip Hop, Downtempo, Experimental>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perera Elsewhere - Bizarre (02:40)
-02. Shlohmo - Places (05:02)
-03. Different Sleep - Conflict (03:44)
-04. Ernest Gonzales - We Can Live In the Forest (03:26)(   Читать дальше...   )Жанр: Electronic, Trip Hop, Downtempo, ExperimentalПродолжительность: 02:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD9E6A1AC695C53620CCE3AD035F911DF633936
 ```
 
 

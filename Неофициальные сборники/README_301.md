@@ -1,3 +1,30 @@
+###  Публикация: 1316426   (506719) от 25.07.2019
+
+VA - Shazam Хит-парад Russia Top 100 Июль (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506719.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.HammAli & Navai - Прятки (3:13)
+2.Billie Eilish - Bad Guy (3:14)
+3.Meduza feat. Goodboys - Piece Of Your Heart (2:32)
+4.Элджей feat. Era Istrefi - Sayonara детка (2:44)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3CDA1E97C57B780D3BA44DD7052498C48C7CEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539338   (506729) от 26.08.2012
 
 VA - Progressive Breaks v.2 (2012) [MP3|320 кб/с]<Atmospheric, Progressive Breaks>
@@ -723,33 +750,6 @@ VA - Music News vol.201 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D037564FB68BA83FF4DBEDBFCA9959DFF17FEF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932860   (507973) от 30.08.2015
-
-VA - Автоледи: Популярный автосборник (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Атаманка - 16 Лет
-02. Deorro - Five Hours
-03. Koven - Miracle
-04. Ph Electro - Back Home(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD437149D62272B22E35DEBACDA5905A21DB574C
 ```
 
 

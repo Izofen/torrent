@@ -1,3 +1,30 @@
+###  Публикация: 1498011   (857805) от 26.09.2021
+
+Sex Pistols - 76-77 (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Problems (Chris Spedding Session / 1976) [00:04:11]
+02. Pretty Vacant (Chris Spedding Session / 1976) [00:03:38]
+03. No Feelings (Take 1 / Chris Spedding Session / 1976) [00:02:52]
+04. No Feelings (Take 2 / Chris Spedding Session / 1976) [00:02:54](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4 CD, 04:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4BED6C9AC30EFF44B33D20F50CE87648679DC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498202   (857929) от 26.09.2021
 
 We Butter The Bread With Butter - Das Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Electronic>
@@ -744,33 +771,6 @@ Iggy Pop - Post Pop Depression (2016) [FLAC|Lossless|tracks + .cue] <Alternative
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACC74EC7ED37560DD555728C61ADA62F7082F042
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997455   (873684) от 17.03.2016
-
-Tommy Lee - TommyLand: The Ride (2005) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Good Times	(03:06)
-02.	Hello, Again	(04:04)
-03.	Tryin To Be Me (03:33)
-04.	Sister Mary	(03:27)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFA8F16AD81842EC06A25CDE91BE2D728B0BB0D9
 ```
 
 

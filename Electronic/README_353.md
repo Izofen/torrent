@@ -1,3 +1,30 @@
+###  Публикация: 1220985   (698807) от 22.04.2018
+
+VA - Artworx Vol.1. (Mixed by Nicholson) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Yorrin – Nebula (Original Mix)
+02. Melvin Sheppard – Telekinetic (Original Mix)
+03. Nicholson – Perfect Storm (Original Mix)
+04. Nicholson feat. Niki Mak – To The Flame (Charlotte’s Theme) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2F315F7FF4E9BC4683FFA06AF88781E74DD6F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132736   (698968) от 10.05.2017
 
 Aly & Fila - Future Sound Of Egypt 495 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -667,33 +694,6 @@ VA - Deepalma Ibiza 2017 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F007B32805EF04D5D6003D5D56D4649A6D949DF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132352   (702825) от 08.05.2017
-
-Stars Crusaders - Welcome To Hydra (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue II (01:49)
-02. The Great Exodus (03:50)
-03. Once Again (05:22)
-04. Mystic Forest (04:41)(   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E0CBA1647E6FECDDB188D10745565A9A7DFA09
 ```
 
 

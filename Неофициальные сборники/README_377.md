@@ -1,3 +1,30 @@
+###  Публикация: 1295457   (620341) от 12.04.2019
+
+VA - 100 хитов в дорогу: Русский выпуск (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620341.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zivert - Life (Lavrushkin & Mephisto Remix) 3:16
+002. RASA - Под фонарем (ARTUR HOX Remix) 3:20
+003. Rauf & Faik - Детство (Rakurs & Eddie G Radio Remix) 4:08
+004. ANIVAR - Украду (DiandM Remix 2019) 2:52(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3026A35349D2E9285B70C087B296547DDBC3D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910776   (620360) от 21.06.2015
 
 VA - Extra House (episode 3) (2015) [MP3|320 кб/с]<House, Club House, Deep House, Dance>
@@ -725,33 +752,6 @@ VA - Romantic Collection - Summer Dreams (2011) [MP3|320 kbps]<Insrtumental / Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B2EAC2145403691D0F35F07CE6115725436254F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145510   (621423) от 25.06.2017
-
-VA - Blues Collection 10 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Supersonic Blues Machine - Let's Call It A Day (feat. Robben Ford)  (03:32) 
-02. Vargas Blues Band - Plegaria Para Un Niсo Dormido  (04:23) 
-03. Shaw Davis & the Black Ties - Missy  (04:21) 
-04. Oli Brown - All We Had To Give  (03:41) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B613CE0DD118E5AAB25EBAA833F2B4E921C57B5
 ```
 
 

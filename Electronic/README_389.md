@@ -1,3 +1,30 @@
+###  Публикация: 1277797   (775019) от 22.01.2019
+
+VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Syntouch & Spins - Desolation (Intro Mix)
+02.Playme - The Great Bay (Original Mix)
+03.Akku - Megumi (Emotional Mix)
+04.Sandro Mireno - It's Your Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C298530DD87A3D188483E887314FD291A0BE5A1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015092   (775077) от 10.05.2016
 
 VA - Maximum House Expressions Vol.1 (2016) [MP3|320 кб/с] <House, Electro House, Club>
@@ -659,33 +686,6 @@ BCee - Volume Two (2018) [MP3|320 Kbps] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAE2027C3C5BBDB48F2DB64974D89DE8183F53E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212408   (776087) от 11.03.2018
-
-Koan - It's the Quiet Ones You Got to Watch (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening (Blue Mix) (7:18)
- 02. Ruins of Amber Kingdom (6:31)
- 03. Tír na nÓg (Koan Remix) (7:27)
- 04. Rebma (The Guardian of Four Worlds Mix) (7:22)(   Читать дальше...   )Жанр: Progressive House, Trance, AmbientПродолжительность: 01:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D44F80647E9112EB7865E56EA4A7F89D362AB541
 ```
 
 

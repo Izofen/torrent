@@ -1,3 +1,30 @@
+###  Публикация: 1227962   (641202) от 29.05.2018
+
+VA - Deep House Superstyle (2018) [MP3|256-320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641202.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Clark Funspace - Inca (Cut Version)
+002. Misha G, Mixline - All About House Music
+003. Adisyn - Departure  (Original Mix)
+004. Francesco Sambero - Uoy (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484B5AA946F21884A16F7EEBB1B5638489379C8B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227433   (641205) от 29.05.2018
 
 Noetik - Shen Sessions (2018) [MP3|320 Kbps] <Trip-hop, Bass, Jungle>
@@ -687,33 +714,6 @@ VA - All New Rock 2 (2022) [MP3|320 Kbps] <Rock, Hard Rock, Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3350E49DFDB8DDE10CA3801612BD9DD9CDD1E7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541098   (642611) от 04.04.2022
-
-DJ PafTron - My Name Is DJ (2022) [MP3|320 Kbps] <G-House, Deep House, Trance, Techno, Dance, Rave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_642611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 My Name Is DJ (skit)
-02 DJ Battle Africa Club set
-03 Train Techno
-04 My House Party(   Читать дальше...   )Жанр: G-House, Deep House, Trance, Techno, Dance, RaveПродолжительность: 09:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55654FC59DDFF6EA9BDEF2D15CA74B7D268D1490
 ```
 
 

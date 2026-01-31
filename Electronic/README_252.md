@@ -1,3 +1,30 @@
+###  Публикация: 1407119   (468602) от 06.09.2020
+
+VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech House, Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tm Shuffle & Kalle-M - Androidien Maailma (07:22)
+ 02. Genning - Life Of Faraway Birds (07:07)
+ 03. Dan Goul - Automation (07:30)
+ 04. Supply-Demand - What Came Before (07:56)Жанр: Tech House, Techno, ElectroПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF33E280B53D236F283E5BA04380A5FC74887973
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407121   (468611) от 06.09.2020
 
 KMRU - Peel (2020) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
@@ -667,33 +694,6 @@ Arcturus - Templates (2020) Merkaba Music [FLAC|Lossless|WEB-DL|tracks] <Psychil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:493C696B8B232A503F4889141E7F8FCD83FB161B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406807   (470992) от 05.09.2020
-
-Black Magnet - Hallucination Scene (2020) [MP3|320 Kbps] <Industrial Metal, Alternative Metal>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1﻿. Divination Equipment (2:06)
-2. Anubis (4:22)
-3. Punishment Map (1:34)
-4. Neuroprophet (3:42)﻿(   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357B5852E943C994144CB2AF7BB78A121A361AAC
 ```
 
 

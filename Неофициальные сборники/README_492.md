@@ -1,3 +1,30 @@
+###  Публикация: 1391978   (769396) от 25.06.2020
+
+VA - Cajmere - Wheels Of Steel Vol.1 (1998) авторская раздача [MP3|320 Kbps] <House, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre L. Prioleau & Gene Santiago - One Small Step (5:09)
+02. Djaimin & Djaybee - Fever (2:25)
+03. Cajmere - Only 4 U (Mark Grant Mix) (4:52)
+04. Kerri Chandler - It's You (3:32)(   Читать дальше...   )Жанр: House, Minimal, Tech House, TechnoПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB091F7393BD117ECEED8EE5C0E81102328E03C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016862   (769521) от 15.05.2016
 
 VA - Promo DJ TOP 100 Remixes Spring (2016) [MP3|320 кб/с] <Club House, Vocal House, Deep House, Dance Pop, Electro House, Progressive House, Trance, Chillout>
@@ -666,33 +693,6 @@ VA - Soft Rock Cafe (2020) [MP3|320 Kbps] <Rock, Alternative, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA2A3B5244CFC41C8811EDC134149B81F49D914
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016157   (771120) от 13.05.2016
-
-VA - Зайцев.Нет: Лучшие Новинки Мая (2016) [MP3|192-320 кб/с] <Рор, Dance, Rock, R&B, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - One Dance (Ft. Wizkid & Kyla)
-02. Imany - No Reason No Rhyme
-03. Radiohead - Burn The Witch
-04. Дима Билан - Романс(   Читать дальше...   )Жанр: Рор, Dance, Rock, R&B, RapПродолжительность: 03:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D55A25571A070E64953F6829A1108271E40478
 ```
 
 

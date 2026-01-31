@@ -1,3 +1,30 @@
+###  Публикация: 1105151   (876540) от 17.02.2017
+
+VA - St Valentine Lounge and Piano Chill for Lovers (2017) [MP3|320 Kbps] <Lounge, Chill Out, Jazzy>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Jazz - Jazz Valentine (3:50)
+02. Floyd & Jones Lounge Bar Music Club - Waiting a Call (5:32)
+03. Bollywood Buddha Indian Music Cafe - Nightlife (Bar Music Love) (3:22)
+04. Chill Out - Love Song (Uplifting Music) (4:49)(   Читать дальше...   )Производство: Winter Hill RecordsЖанр: Lounge, Chill Out, JazzyПродолжительность: 02:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7C6ECE8659AD342394C8305F693458A18B73A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105189   (876543) от 17.02.2017
 
 VA - Acoustic Covers Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
@@ -668,33 +695,6 @@ VA - Glamour Chill House - Fashion and Rafinated Beats (2016) [MP3|320 кб/с] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4411EFB2229C168BBFA3BAF8A08E26FC69652CC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871629   (879593) от 22.02.2015
-
-Lauge - Pusterum (2015) [FLAC|Lossless|WEB-DL]<Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Bottom To Shore (10:25)
- 02. Himalaya (06:54)
- 03. For Altid Og Evigt (10:00)
- 04. Fjeld (04:54)(   Читать дальше...   )Жанр: AmbientПродолжительность: 02:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCEAE43C5ED7980D85E2599EADCF6B5BB7925E40
 ```
 
 

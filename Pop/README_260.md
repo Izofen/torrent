@@ -1,3 +1,84 @@
+###  Публикация: 1128923   (726367) от 26.04.2017
+
+Филипп Киркоров - For You ... (2007) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я эту жизнь тебе отдам 03:31
+02. Полетели 03:56
+03. Холодно в городе (дуэт с Аллой Пугачёвой) 03:40
+04. История 03:37(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F13FA8D486461B07141F364B07AE3F302DD9E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128984   (726447) от 26.04.2017
+
+VA - New Italian Disco (1984) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandy Marton - People From Ibiza (4:17)
+02. Rofo - You've Got To Move It On (4:11)
+03. Savage - Don't Cry Tonight (3:58)
+04. Carmelo La Bionda - I Love You (3:17)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B19F69F5267C0D80A5BA5CD9264F4D91DDE2B419
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284650   (726542) от 23.02.2019
+
+Mariah Carey - MTV Unplugged (1992) EP [FLAC|Lossless|image + .cue] <Hip Hop, Soul, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emotions
+02. If It's Over
+03. Someday
+04. Vision Of Love(   Читать дальше...   )Жанр: Hip Hop, Soul, RnBПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C757F38E77B4A7C634FCECE83DADD99C9C32B28D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128928   (726555) от 26.04.2017
 
 The Splash Band - The Music Of John Carpenter (1984) Reissue CD, 2015, ZYX Music [MP3|320 Kbps] <Electronic, Experimental, Synth-pop, Disco>
@@ -611,87 +692,6 @@ The High Violets - Heroes and Halos (2016) [FLAC|Lossless|tracks] <Alternative P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5716830C68EABE214377CB2FB5C86C8842957ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128216   (729732) от 23.04.2017
-
-Tom Hooker - Back In Time (2017) 2CD [MP3|320 Kbps] <Electronic, Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый проект, вышедший в самом конце марта очень ограниченным изданием от известного исполнителя Italo-Disco 80х - начала 90х - Tom Hooker и итало-американского музыканта, диджея и продюсера Miki Chieregato, уже успевших недавно нашуметь своим предыдущим: Tam Harrow01. I Don't Want To Fight (5:44)
-02. King Of The World (5:13)
-03. I Want You Tonight (5:45)
-04. Give Me Your Love (4:24)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-DiscoПродолжительность: 02:18:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8963C6DAE45F62A658472FD0EF9DF4B1E457EC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022342   (729767) от 01.06.2016
-
-Suzi Lane - Ooh, La, La (1979) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Единственно вышедший и спродюсированный Джорджио Мородером в 1979 году альбом. Тяжелая автомобильная авария весной 1980 года, положила конец ее музыкальной карьере.01. Ooh, La, La   (7:40)
-02. Givin' It Up   (3:57)
-03. No One Home In The City   (5:02)
-04. Harmony   (7:01)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30F686EEC643542ED6EE4936EF55D60427C878BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128118   (729849) от 23.04.2017
-
-VA - Pop & Rock Hits Made for Dancing (2017) [MP3|320 Kbps] <Dance, Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Parker – Only You (Tbo Vega remix) 03:47
-02. Danky Brain – Chasing Cars (Rick remix) 04:45
-03. Bass Boom Deejays – Faded (Jason Parker remix edit) 03:40
-04. Elaine Winter – Forever Young (Tbo Vega remix) 04:48(   Читать дальше...   )Жанр: Dance, Pop, RockПродолжительность: 01:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C349FB85CFCF1A1B0D8627985599CBBFA72C54D4
 ```
 
 

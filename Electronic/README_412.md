@@ -1,3 +1,30 @@
+###  Публикация: 1275312   (791153) от 10.01.2019
+
+VA - Best Of LW Trance III (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judge Jules x Ronnie Canada & Tristan D - The Verdict (Ronnie's Vocal Mix)
+02. Estiva & Johan Vilborg - Mondays (Original Mix)
+03. Lange & Tom Tyler - On Your Side (Willem de Roo Remix)
+04. Sean Truby & Solis feat. Irina Makosh - Forever (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E988968CA114F3EA32E9B9C32D8A04B442F9DD2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275207   (791154) от 10.01.2019
 
 VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
@@ -666,33 +693,6 @@ VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274991   (791710) от 09.01.2019
-
-VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
-02. Jay Frog & Amfree - Is This Love (Radio Edit)
-03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
-04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
 ```
 
 

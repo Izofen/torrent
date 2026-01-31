@@ -1,3 +1,84 @@
+###  Публикация: 1090956   (944489) от 08.01.2017
+
+Ibiza Dance Party - Big Ibiza Dance Mix (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pon De Floor  02:59
+02.  Applause  02:52
+03.  Just Give Me A Reason  03:55
+04.  One More Time  03:34(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D264E3EB9A2C9881CE42575D367E7A0F49839DDD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091084   (944558) от 08.01.2017
+
+Rumer - The Magic of Sarah Joyce (2017) [MP3|320 Kbps] <Female vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Sebastian's Girl (03:52)
+02. Aretha (03:17)
+03. Welcome Back (03:36)
+04. Slow (03:36)(   Читать дальше...   )Жанр: Female vocal, Pop, Easy listening, Soul, Smooth JazzПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67842DCA458188110E60B13B127EC5E53D071FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 98717   (944935) от 26.02.2020
+
+Chilly - For Your Love(1978)-Come To L.A(1979)-Secret Lies(1982) [FLAC+Cue|940 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dimension 5 (3:18)
+02. Secret Lies (3:11)
+03. Ten Million Dollar Baby (2:40)
+04. Brain Storming (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518B8467F9DEB7EE9AD5F832F96225986A162BDA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 88838   (944941) от 26.02.2020
 
 Chilly - Showbiz (1980) [FLAC|951 Kbps]<Pop/Disco>
@@ -612,87 +693,6 @@ Wolfram - Wolfram (2011) [FLAC|Lossless|tracks + .cue] <Electropop, Euro-House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6495B5DAF450F5EC5170AA1883BA870514505376
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982022   (948136) от 03.02.2016
-
-VA - Ultimate Love • 4CDs Of Great Love Songs (2015) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Pop, Soul, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greatest Love All Of All (Whitney Houston) [04:51]
-02. She's Always A Woman (Billy Joel) [03:21]
-03. Brown Eyed Girl (Van Morrison) [03:05]
-04. All Of Me (John Legend) [04:31](   Читать дальше...   )Жанр: Pop, Soul, R&B, BalladПродолжительность: 04:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDEE974BB612930E8486F829ACD0520D95C2FA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362637   (948317) от 24.02.2020
-
-Frank Lozano - The Album (2018) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948317.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Fotonovela 5:56
-2 Las Manos Quietas 5:08
-3 Vuela Vuela (Classic Mix) 4:17
-4 I Wanna Fly 3:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751D43C883C1EB9AC65515BF47168BD033EFA183
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 277611   (948700) от 11.01.2011
-
-Ace Of Base - 37 альбомов (1993-2010) [FLAC|Lossless]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Ace of Base» основана была в Швеции в начале 90-х годов. Ее родоначальниками считаются Йонас Берггрен и Ульф Экберг, которые стали пробовать свои силы в музыке, первоначально работая в стиле техно. Название коллектив менял несколько раз, пока не появилось самое удачное, под которым коллектив и добился мировой известности.Albums
-1993 - Happy Nation
-1993 - Happy Nation (U.S. Version)
-1993 - The Sign(   Читать дальше...   )Жанр: EurodanceПродолжительность: 19:37:21
-
-## Скачать торент
-```bash
-нет
 ```
 
 

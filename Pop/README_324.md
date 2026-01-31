@@ -1,3 +1,84 @@
+###  Публикация: 988029   (922729) от 19.02.2016
+
+VA - I Saw You Dancing (2001) S&V #03/2001 [FLAC|Lossless|tracks + .cue] <Euro-Disco, Disco, Mambo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaft - Mucho Mambo (3:29)
+02. Q-pow! - Summer Holiday (3:19)
+03. Loona - Bailando (3:36)
+04. Crystal Waters - 100% Pure Love (4:40)(   Читать дальше...   )Жанр: Euro-Disco, Disco, Mambo, Euro HouseПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1263673D52D449F83CA47E20DB30F7F0917736
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095804   (922800) от 22.01.2017
+
+VA - Brazilian Lifestyle (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922800.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rosferra Marsalis, Toni Macles - Bossa de Saudad 4:34
+ 2. Nandy Xavier - Garota de Vitine 4:37
+ 3. Joao Martins - Don't Speak (Bossa Style) 4:05
+ 4. Sergio Augusto - Nao Ha Nada Como Aqui 3:07(   Читать дальше...   )Жанр: Pop, Bossa Nova, LatinПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4141AED490D76DEB7DD1549FAB376790BEC302C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 176681   (923065) от 26.02.2010
+
+Ирина Аллегрова - Дискография (1994-2008) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 02:42:09
+
+1.Всё сначала (5:26)
+2.Не верю (дуэт с Григорием Лепсом) (4:05)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094044   (924320) от 21.01.2017
 
 VA - 10 песен о любви (2004) бесплатное приложение к журналу Yes! [FLAC|Lossless|image + .cue] <Pop, Rock>
@@ -613,87 +694,6 @@ magnet:?xt=urn:btih:BAD50855584FB3474C11EFC7AEB1DDB2522E407A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD5420E42ACD82E49B6F590768832CE381CCB893
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365416   (930162) от 07.03.2020
-
-A-ha - Greatest Hits: Japanese Single Collection (2020) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me
-02. The Sun Always Shines On T.V. (Single Mix)
-03. Train Of Thought (Remix)
-04. Hunting High And Low (Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E43263AD7C065B3623C5100A882C82DBD81FD65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365044   (930392) от 07.03.2020
-
-George Michael - Older (1996) [FLAC|Lossless|image + .cue] <Electronic, Jazz, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus To A Child [06:51]
-02. Fastlove [05:25]
-03. Older [05:34]
-04. Spinning The Wheel [06:22](   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:59:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FDCC2B052D49CE437FB33C14E33C36B4D6D51C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365385   (930394) от 07.03.2020
-
-МГК - Звёздная серия (Новые и лучшие песни) (2000) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ты забыл я помню (3:42)
-02. Ещё раз про любовь (4:09)
-03. Позвони (3:44)
-04. Ах какие ты... (4:40)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47763B0F6D9E9EF63829C9006D4488FE8E1059A3
 ```
 
 

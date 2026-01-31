@@ -1,3 +1,30 @@
+###  Публикация: 1050961   (534652) от 10.09.2016
+
+VA - Танцевальная хитовая дискотека. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_534652.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Good Lyfe & Vermosa Feat. Brkln - After Midnight
+002. Florrie - Real Love
+003. Robin Schulz & M-22 Feat. Aleesia - Love Me Loud
+004. Felix Jaehn Feat. Polina - Book Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD15A628B7771F51BD2DB582ABED4AFC595CAFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050915   (534655) от 10.09.2016
 
 VA - Звездный Хит - Парад. Русский Выпуск (2016) [MP3|256 Kbps] <Pop>
@@ -680,33 +707,6 @@ VA - Tropical Vibes vol. 5 (2018) [MP3|320 Kbps] <Chillout, Tropical House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D55A09A099DEB8E1A897A247C0B73A545578128A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050891   (535252) от 10.09.2016
-
-VA - Reality Essence Emotional (2016) [MP3|320 Kbps] <Trance, Energy, Melodic, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Gravell  -  Battlefront (Extended Mix)  5:23
-02. Dan Dobson  -  Bali Sunrise (Original Mix)  6:29
-03. Aurora Night  -  Estrella (Original Mix)  6:04
-04. Mind-X  -  Eternal Waves (Radio Mix)  3:40(   Читать дальше...   )Жанр: Trance, Energy, Melodic, ProgressiveПродолжительность: 03:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F79A8ACF747F1A16D01A3FD23458E54C619F72B
 ```
 
 

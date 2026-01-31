@@ -1,3 +1,30 @@
+###  Публикация: 1135097   (682901) от 18.05.2017
+
+VA - Italo Disco Hits Vol.14 (2017) [MP3|320 Kbps] <Disco, Italo-DIsco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  NEA! - It's A Sin (Maxi Version)  7:09
+02.  Italove & TQ - I Need Your Love  4:22
+03.  Cliff Wedge - Touch Me (Radio Edit)  3:23
+04.  Digitalo - Russian Man (ZYX Extended Version)  5:19(   Читать дальше...   )Жанр: Disco, Italo-DIscoПродолжительность: 05:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C16AA7B16999BFFC3F896F5F85EF73C4AC85D48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222706   (683023) от 30.04.2018
 
 VA - Melodic Techno Tom VI [Compiled by ZeByte] (2018) [MP3|320 Kbps] <Melodic Techno>
@@ -686,30 +713,6 @@ VA - The Official UK Top 40 Singles Chart 21.08.2020 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B25CD02834E2A406A1D10C3B7C4775BC3FE67FED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222570   (684436) от 29.04.2018
-
-Кино (Виктор Цой) - Печаль (2018) Remix [MP3|256 Kbps] <Инструментальный рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684436.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Печаль (Remix)Жанр: Инструментальный рок, ЭлектроПродолжительность: 00:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8CC548211EC19A91119C004352AAE8B8289DCE
 ```
 
 

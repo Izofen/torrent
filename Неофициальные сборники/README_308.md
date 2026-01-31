@@ -1,3 +1,36 @@
+###  Публикация: 534932   (518897) от 14.08.2012
+
+VA - Best Of MTV Hits (2012) [MP3|128 кб/с]<Dance, Pop, RnB, Hip Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Inna - Ai Se Eu Te Pego
+002 Andreea Banica Feat. Play & Win - Sexy (Radio Edit)
+003 Akon - Love Handles
+004 Nicole Scherzinger - Funky Town
+005 Nelly - Just A Dream
+006 David Guetta Feat. Sia - Titanium
+007 Snoop Dogg & Wiz Khalifa Feat. Bruno Mars - Young, Wild & Free
+008 Jennifer Lopez Feat. Pitbull - On The Floor (Radio Edit)
+009 Massari - Live It Up
+010 Alex Gaudino Feat. Kelly Rowland - What A Feeling (Radio Edit)Жанр: Dance, Pop, RnB, Hip HopПродолжительность: 12:22 :09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A543F39B1D90F667362CC7C63011916E9E450ED8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534703   (519057) от 14.08.2012
 
 VA - Trance In Motion Vol.123 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Progressive>
@@ -692,33 +725,6 @@ VA - EDM: Ultimate Sound (2018) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6286AE3737FFBDF07DDD0B35F71DDCBF82FC4C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241089   (521149) от 16.08.2018
-
-VA - Летняя сессия 2018 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Funky House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521149.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01-Diana Ross - I'm Coming Out _ Upside Down 2018 (Eric Kupper Mix)
-02-Dolls Combers - Let the music play (DJ Che MashUp)
-03-Puro Beat feat. Henry Floyd - Keep on Movin (Extended Mix)(   Читать дальше...   )Жанр: Club House, Funky House, DanceПродолжительность: 02:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EAD5B8FF82993C8E17B381FD2065CE4600E20A
 ```
 
 

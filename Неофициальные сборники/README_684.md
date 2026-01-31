@@ -1,3 +1,30 @@
+###  Публикация: 1438955   (1040475) от 10.01.2021
+
+VA - Дискотека Пионер FM По-Русски vol.14 (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040475.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Евгений Кемеровский - Белая зима
+002. Gallina - Белым Снегом
+003. София Ротару - Ты позови меня
+004. Премьер-Министр - Дорогая(   Читать дальше...   )Жанр: Pop, Dance,Продолжительность: 06:28:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB37B7A53AAEC7B2AC0BEBC006A9C3B69D32BE76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612058   (1040526) от 14.02.2023
 
 VA - Music News vol.245 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Record Super Chart 2020 Итоговый [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FE0F0D2030D3DC237B90F3511E9AD5DD256A7F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437104   (1042259) от 04.01.2021
-
-VA - Music for You vol.15 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pyramaze - Transcendence (04:17)
- 02. Black Fate - Secret Place (04:16)
- 03. Pomegranate Tiger - Maxims (05:06)
- 04. Nevermore - Born (05:58)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 04:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7886697AE44328E5C3ED3F2A84F18D46A8E024C2
 ```
 
 

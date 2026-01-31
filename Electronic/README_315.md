@@ -1,3 +1,30 @@
+###  Публикация: 1145483   (621412) от 25.06.2017
+
+Talamasca - A Brief History of Goa-Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talamasca – A Brief History Of Goa-Trance Astral Projection (07:53)
+02. Talamasca – A Brief History Of Goa-Trance Electric Universe (07:47)
+03. Talamasca – A Brief History Of Goa-Trance Etnica (08:34)
+04. Talamasca – A Brief History Of Goa-Trance Hallucinogen (08:14)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A598A9759022A05B66EA413B303CCB73000CEA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145445   (621547) от 25.06.2017
 
 Alizee Moreau - Sexy Relaxing Lounge And Chill Out Music (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -668,33 +695,6 @@ VA - Bella Mar 03 (Compiled by Einmusik) (2016) [FLAC|Lossless|WEB-DL|tracks] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66864478C35D2C8809CFA3D36AAE96F8E70E5F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543831   (623685) от 14.04.2022
-
-VA - FGVIII (Mixed by Miss Monique) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Monique - FG VIII (Continuous DJ Mix) (57:06)
-02. Kamilo Sanclemente - From The Sky (Original Mix) (8:55)
-03. Kamilo Sanclemente - Venus (Original Mix) (7:51)
-04. Juan Deminicis - Aldebaran (Original Mix) (8:19)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:482AC2E464B8CECFA15547436BDA8BF2DB88F902
 ```
 
 

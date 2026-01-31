@@ -1,3 +1,328 @@
+###  Публикация: 1501447   (835203) от 10.10.2021
+
+Dream Theater - Train Of Thought (2003) Reissue, Remastered, 2009, Elektra [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As I Am (7:49)
+02. This Dying Soul (11:28)
+03. Endless Sacrifice (11:25)
+04. Honor Thy Father (10:15)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24A6E9805719D22FCE3F4D4C831F5986B572286
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501608   (835246) от 10.10.2021
+
+Roderick Falconer - Victory In Rock City (1977) LP [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock City (3:19)
+02. That's Not Normal (4:46)
+03. Show Me Something More (4:50)
+04. Empire Man (4:28)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B6F9671DBFE7FF7604EC4122058332D77EB785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501360   (835247) от 10.10.2021
+
+Gus G. - Quantum Leap (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Guitar Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Греческий гитарист-виртуоз Гас Джи (Gus G.), хорошо известный в рок- и метал-кругах по работе с Оззи Осборном (Ozzy Osbourne) и собственной группой FIREWIND, выпустит новый сольный альбом "Quantum Leap" 8 октября на лейбле AFM.
+Он заявил: "Это мой первый полностью инструментальный сольный альбом. Это означает, что там вообще нет вокала, нет гостевых (   Читать дальше...   )01. Into the Unknown (05:22)
+02. Exosphere (03:39)
+03. Quantum Leap (04:48)
+04. Chronesthesia (05:01)(   Читать дальше...   )Жанр: Heavy Metal, Guitar InstrumentalПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FD31B137C945A12931B885607740AB446304D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501419   (835248) от 10.10.2021
+
+Dream Theater - Metropolis Pt. 2: Scenes From A Memory (1999) Reissue, Remastered, 2009, Elektra [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Act I: Scene One: Regression (2:08)
+02. Act I: Scene Two: I. Overture 1928 (3:38)
+03. Act I: Scene Two: II. Strange Dйjа Vu (5:13)
+04. Act I: Scene Three: I. Through My Words (1:02)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7AC1F9517802AE819DFD8D78602ACAA33B09D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501533   (835249) от 10.10.2021
+
+Rivers Of Nihil - Where Owls Know My Name (2018) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rivers of Nihil (Реки Ничего) — американская Technical/Progressive Death Metal группа из Рединга, штат Пенсильвания. В настоящее время они подписаны на лейбл Metal Blade. Этот релиз, Where Owls Know My Name (2018), дебютировал на 61 позиции в чарте Billboard 200, разойдясь за первую неделю в количестве 2750 экземпляров01. Cancer / Moonspeak
+02. The Silent Life
+03. A Home
+04. Old Nothing(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19C2E1819FF97FF6718C52BB6A8A87592E53AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501436   (835250) от 10.10.2021
+
+Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, Remastered, 2009, Elektra [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Glass Prison (13:54)
+02. Blind Faith (10:21)
+03. Misunderstood (9:33)
+04. The Great Debate (13:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9948DD18A09F5266E2F8F2DE313F879D526E14B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501466   (835251) от 10.10.2021
+
+Agressor - The Arrival (2021) 2xCD,  Compilation, Remastered, Season Of Mist [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа "Agressor" из курортного городка Антиб по праву считается основоположницей французского трэш- и дэт-металла. Сколотил банду еще в 1986 году гитарила-вокалер Алекс Колин-Токвэйн, который с тех пор и оставался ее бессменным лидером.CD - 1 - NEVERENDING DESTINY (1990):
+01. Paralytic Disease (2:48)
+02. The Unknown Spell (2:17)
+03. Elemental Decay (4:44)(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 02:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D0EA2DDB8B7AE62886FCE8715BD122A936EB6A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501560   (835254) от 10.10.2021
+
+Agressor - The Order Of Chaos (2020) 3xCD, Compilation, Box Set [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа "Agressor" из курортного городка Антиб по праву считается основоположницей французского трэш- и дэт-металла. Сколотил банду еще в 1986 году гитарила-вокалер Алекс Колин-Токвэйн, который с тех пор и оставался ее бессменным лидером.CD - 1 - 1999 - Medieval Rites:
+01. Medieval Rites (6:20)
+02. Bloodshed (3:16)
+03. The Woodguy Vs the Black Beast (1:44)(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 03:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8EC7F3B7FF6BCCF51017D76AB31077347FD0C9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501411   (835256) от 10.10.2021
+
+Dream Theater - Falling Into Infinity (1997) 2CD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Millennium (8:21)
+02. You Not Me (4:59)
+03. Peruvian Skies (6:44)
+04. Hollow Years (5:54)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5CAE0BF55FF561A49A0DAD216C27888B6365BFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501393   (835257) от 10.10.2021
+
+Dream Theater - Dream Theater (2013) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. False Awakening Suite (2:43)
+02. The Enemy Inside (6:18)
+03. The Looking Glass (4:54)
+04. Enigma Machine (6:02)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76EC6A3D5C10A3750305D530653766D74FD99FE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501589   (835261) от 10.10.2021
+
+Desire - Legacy of the Past (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry for the Children (05:40)
+02. Insane (06:44)
+03. Madness (04:42)
+04. Kiss Your Tears Away (05:06)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D41D5724978EFD231A3B17AD469893E01F5A505
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501588   (835263) от 10.10.2021
+
+Spectral Darkwave - At Outer Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Insertion [00:00:44]
+02. 731 [00:05:41]
+03. The March of Sses [00:04:36]
+04. The First Church of Chaos [00:05:28](   Читать дальше...   )Жанр: Symphonic Death, Doom MetalПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:490B865C48ACD3D3077E9885F0816EF0EB6ADE80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501443   (835265) от 10.10.2021
 
 Dream Theater - Six Degrees Of Inner Turbulence (2001) 2CD, Reissue, 2002, Elektra [FLAC|Lossless|image + .cue] <Progressive Metal>
@@ -371,330 +696,6 @@ Chicano Batman - Invisible People (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Psyched
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75865C2333F7FAD2AA0E25BC875B643444A395A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310393   (836102) от 19.03.2011
-
-Satyros - Riven (2011) [MP3|320 kbps]<Black metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Purify 03:08
-02. Sardonica 05:06
-03. Eyes of Eternity 04:08
-04. Wermode's Fall 03:59
-05. Ataraxia 05:45
-06. Seizing the Sceptre of God 03:08
-07. Riven 06:30
-08. Irasyati 04:00
-09. Traumhallen 05:38
-10. Lost in Grey 05:46(   Читать дальше...)Жанр: Black metalПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DD3DB161F30B20D4C6416D888D2F8A8671EE31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004692   (836161) от 07.04.2016
-
-Electric Light Orchestra - The Very Best Of (2015) Japanese Edition [MP3|320 кб/с] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Blue Sky
-02. Evil Woman
-03. Don't Bring Me Down
-04. Sweet Talkin' Woman(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D62415C3ECCC6F9C4DB19E1E51B10D88A6E72CA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004922   (836165) от 07.04.2016
-
-Deftones - Gore (2016) [MP3|320 кб/с] <Alternative Metal, Post-Metal, Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayers / Triangles
- 02. Acid Hologram
- 03. Doomed User
- 04. Geometric Headdress(   Читать дальше...   )Жанр: Alternative Metal, Post-Metal, Experimental RockПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0B5F7B1579A978BD5480DC42233DD896FAED9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005002   (836166) от 07.04.2016
-
-Ленинград & The Tiger Lillies - Huinya (2005) [FLAC|Lossless|image + .cue] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Суд
-02. Рвота
-03. Х...я
-04. Водка(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:471712D3FBA9F04BF8AC1BEF7B72E52227ABC45F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113671   (836210) от 12.03.2017
-
-Eclipse - Monumentum (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertigo (03:24)
- 02. Never Look Back (03:21)
- 03. Killing Me (03:47)
- 04. The Downfall Of Eden (04:22)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C59C3DB26E9FF5977FEF16E4EBD61E540EB8719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380120   (836259) от 01.05.2020
-
-Dругой Ветер & Элизиум - Чёрный флаг (2020) Single [MP3|320 Kbps] <Ska, Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836259.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чёрный флагЖанр: Ska, Punk, RockПродолжительность: 00:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F76D07296161852B67F3FA5C0132069FE4E12C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380117   (836267) от 01.05.2020
-
-Ногу свело! - Золотое Время (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836267.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Золотое ВремяЖанр: RockПродолжительность: 00:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729020290BF6A34EAE6B9C003E34D35DAB001731
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379960   (836374) от 01.05.2020
-
-Car Seat Headrest - Making a Door Less Open (2020) [MP3|320 Kbps] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weightlifters
-02. Can't Cool Me Down
-03. Hollywood
-04. There Must Be More Than Blood(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF5D3FA5BE1EA5619D8FD8DED113B624C579B9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380125   (836383) от 01.05.2020
-
-The Apples In Stereo - 7 Albums (1995-2010) Collection [MP3|320 Kbps] <Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836383.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Apples In Stereo - американская рок-группа, связанная с Elephant Six Collective. Группа в значительной степени является продуктом ведущего вокалиста/гитариста/продюсера Роберта Шнайдера, который пишет большинство музыки и текстов группы. Звучание группы сравнивают с психоделическим роком от The Beatles и The Beach Boys в 1960-е годы, а также таких групп как Electric (   Читать дальше...   )Список альбомов:
-1995 - Fun Trick Noisemaker
-1997 - Tone Soul Evolution
-1999 - Her Wallpaper Reverie(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 04:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1879EFF995CE80412412FC5E97854CC29301C1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379951   (836393) от 01.05.2020
-
-Car Seat Headrest - Making a Door Less Open (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weightlifters (05:40)
-02. Can't Cool Me Down (05:09)
-03. Deadlines (Hostile) (04:21)
-04. Hollywood (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCB814A0DB7679961B864487E02DDD8BB4EE8765
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501216   (836397) от 09.10.2021
-
-Кипелов - Часы Судного дня (2021) EP [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Огненная дуга (6:50)
-02. Часы Судного дня (5:31)
-03. Лунный ковчег (5:15)
-04. Крик тишины (5:23)Жанр: Heavy MetalПродолжительность: 00:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B19D64C0E70F9FBA9212CBF6B0E58E64B621342
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004677   (836416) от 07.04.2016
-
-Би-2 - #16плюсTour @ Stadium Live (2016) [FLAC|Lossless|image + .cue] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не умирать молодым
-02. Темные небеса
-03. Революция
-04. Дурочка(   Читать дальше...   )Жанр: РокПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3851E9D9ED79503A4A93D92CDDD322D9FAA58FE
 ```
 
 

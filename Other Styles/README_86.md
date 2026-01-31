@@ -1,3 +1,198 @@
+###  Публикация: 1050159   (540378) от 07.09.2016
+
+Valentina Babor - Piano Princess (2015) [FLAC|Lossless|tracks + .cue] <Instrumental, Classical, Piano Solo>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children 4:21
+02. Nobody Does It Better 3:27
+03. I Believe I Can Fly 4:16
+04. When The Rain Begins To Fall 3:49(   Читать дальше...   )Жанр: Instrumental, Classical, Piano SoloПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819712ABBE8C36FBA8818C5FC2C18C3FC8117F83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050290   (540515) от 07.09.2016
+
+VA - Angels of Hope (An Angelic Compilation) (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gandalf - Angel of Light [00:04:44]
+02. Kevin Kern - And the Light is Forever [00:03:23]
+03. Peter Kater - Heaven’s Window [00:08:00]
+04. Omar Akram - Angel of Hope [00:03:33](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB18F932CAA51BB53CB2A0FFA030A8CF214FEF79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531652   (540733) от 06.08.2012
+
+Stefano Mocini - A Cat Playing (2011) [MP3|128-256 кб/с]<Relax,New Age,Melodic,Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Injustice (2:51)
+2. The Dragonfly (2:01)
+3. Awesome Lie (3:02)
+4. Calm Before (3:06)
+5. Aginst Fate (3:13)
+6. Joke (3:02)
+7. Hope You Will Fine  (2:18)
+8. It Hurts (3:20)
+9. Leaving You (3:39)
+10. Half Moon Ball Pianosolo Version (3:50)Жанр: Relax,New Age,Melodic,PianoПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5112353AC2F21E3A9C31509A6F0FA74EC16B767A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050149   (540756) от 07.09.2016
+
+Timothy Olson - Bedtime (2016) [MP3|320 Kbps] <Electronic, Easy Listening, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_540756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awake All Night
+02. Baby Dream
+03. Bedtime Stories
+04. Breeze(   Читать дальше...   )Жанр: Electronic, Easy Listening, New AgeПродолжительность: 00:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAD00CA8F0644874238B9BAC80E34F037FAABED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925493   (541102) от 06.08.2015
+
+VA - LOVE Instrumentals (2002) [FLAC|image+.cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже сама восточная интерпретация известных лирических треков в таком инструментальном исполнении была для меня интересна. Но, к тому же, она ещё оказалась и очень мелодична. Думаю, что эти "любимые инструменталки" станут любимыми и для Вас.01. original singer LEANN RIMES - Can't Fight The Moonlight (Theme from 'Coyote Ugly')  (3:38)
+02. original singer SAVAGE GARDEN - I Knew I Loved You  (3:58)
+03. original singer CELINE DION - My Heart Will Go On (Love Theme from 'Titanic')  (4:37)
+04. original singer MARIAH CAREY - Without You  (3:38)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A565A5B66C7F8951438747B3B762211EDB32D819
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925308   (541109) от 06.08.2015
+
+Claude Ciari - Sentimental (2003) [FLAC|Lossless]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shinobi Meet Yogiri
+02. White Guitar
+03. Leave the Lapse Of Time
+04. See No One(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37415B47166AC4C3853DF024A9B2E912130C4EC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925471   (541322) от 06.08.2015
+
+Kaan Luum - Potala Mousse (2015) [MP3|320 кб/с]<New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Space
+02. Feathers
+03. Silver Lake
+04. Letter from Kaan Luum(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80738A44B01C470FDEBDCDE99B75C8E6C9717639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049929   (541573) от 06.09.2016
 
 Ocean Waves For Sleep - Collection Of Ocean Sounds (2016) [MP3|320 Kbps] <New Age, Relax>
@@ -521,195 +716,6 @@ Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <cou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07254E5E757E15209592F3BE5B24AD3ECD7223F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049051   (545598) от 03.09.2016
-
-Stive Morgan - Flights In Dream (2016) [MP3|320 Kbps] <New Age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygen Music (4:19)
-02. Window To Paradise (6:56)
-03. Global Transformation (5:57)
-04. Flights In Dream (7:04)(   Читать дальше...   )Жанр: New Age, ElectronicПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D511CACD621DB88FBE2F838B8ECACF260C4BF53
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048758   (545735) от 03.09.2016
-
-Artur Mena - Sabia Medicina (2013) [MP3|192 Kbps] <World: South American>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabia Medicina (Chuntunqul) [3:28]
-02. Canta Sirenita (Carnaval) [4:02]
-03. Canta Ayaymama (Huayno Cancion) [5:12]
-04. Aguita de Puqulo (San Juanito) [3:29](   Читать дальше...   )Жанр: World: South AmericanПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D262544E6A28FF8D541F07E00A4C7B5FC7627541
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238541   (546195) от 30.07.2018
-
-Pavlo & Remigio - Guitarradas (2015) Single [MP3|320 Kbps] <New Age, Flamenco, Instumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiempo (4:02)
-02. El Tango (4:04)
-03. Guitarradas (3:14)
-04. Preludio Del Amor (Prelude to Love) (4:54)(   Читать дальше...   )Жанр: New Age, Flamenco, InstumentalПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9B959777027E75229F9B4F79E85DB67F195C6B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694695   (546333) от 29.08.2013
-
-Era - Arielle Dombasle By Era (2013) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria
-02. Cold Song
-03. Don't Take Pleasure Of My Pain
-04. Adagio Of Barber (Edit "Agnus Dei")(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9535874F8810A7E2D90D4070BA6BF564E88529
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309960   (546950) от 24.06.2019
-
-Алексей Айги (Alexei Aigui) - Гибель Империи (2005) [FLAC|Lossless|tracks + .cue] <Score, Orchestral>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гибель империи. Пролог (2:09)
-02. 1914 (4:29)
-03. Война объявлена (4:16)
-04. Петербургская ночь (3:46)(   Читать дальше...   )Жанр: Score, OrchestralПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E8933060F16CB83C1A5D848B671DC63D4D060CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047957   (547352) от 01.09.2016
-
-Casey Barnes - Live As One (2016) [MP3|320 Kbps] <Country Rock, Pop Rock, Blues>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live As One  03:23
-02. Saving All My Love  03:17
-03. The One You Love  03:08
-04. Flesh & Bone  02:52(   Читать дальше...   )Жанр: Country Rock, Pop Rock, BluesПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E5B2A44A6632C8A0B13A1E875C72AB8307F1D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310042   (547844) от 23.06.2019
-
-Sun Kil Moon ‎ - I Also Want To Die In New Orleans (2019) 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coyote (12:31)
-02. Day in America (15:06)
-03. L-48 (04:51)
-04. Cows (09:58)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 01:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBE75B6679AF06AF5D258EA118DDB877AB340F3
 ```
 
 

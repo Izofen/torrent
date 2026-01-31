@@ -1,3 +1,327 @@
+###  Публикация: 1288964   (692078) от 13.03.2019
+
+Год Змеи - Год Змеи (The Best) (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692078.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Семь жизней
+2. Ангел (Последний путь)
+3. Малыш
+4. Тук-тук(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6DFB9570339BB6543CDCE9E3F2FB8B68F74005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288943   (692082) от 13.03.2019
+
+Изумрудный город - Мир не прервётся (2019) [MP3|320 kbps] <Hard'n'Heavy, Female vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гинденбург (04:17)
+02. Октябрь (04:21)
+03. Капитан (04:25)
+04. Небо красное (04:38)(   Читать дальше...   )Жанр: Hard'n'Heavy, Female vocalФормат: LPПродолжительность: 00:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA1034798B953D3EE83392C765215FAF0B582D01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534663   (692283) от 03.03.2022
+
+Annihilator - Metal II (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing The High
+02. Downright Dominate
+03. Army Of One
+04. Couple Suicide(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09062D6C7D5D4E03F6C7A15B7C6366597D7B60E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403342   (692324) от 19.08.2020
+
+Unleash the Archers - Abyss (2020) 2CD, Earbook [FLAC|Lossless|tracks + .cue] <Power Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waking Dream
+02. Abyss
+03. Through Stars
+04. Legacy(   Читать дальше...   )Жанр: Power Metal, Melodic Death MetalПродолжительность: 02:05:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4004E11BC4E3242237C1556B64AAA96E6CEAD0A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403347   (692340) от 19.08.2020
+
+Полюса - Невесомые (2016) [FLAC|Lossless|tracks + .cue] <Rock, Jazz-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Даю слово
+02 Без названия
+03 Сука любовь (Михей cover)
+04 Пустота(   Читать дальше...   )Жанр: Rock, Jazz-RockПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B9A862065715674F9DE19F12DEE7304BEBDA3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403391   (692349) от 19.08.2020
+
+Tokyo Motor Fist - Lions (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Youngblood (03:29)
+02. Monster In Me (04:33)
+03. Around Midnight (02:48)
+04. Mean It (04:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB682B7BC267BD6C853D816B920F34882B657D17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403398   (692434) от 19.08.2020
+
+Oz - Forced Commandments (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin’ Down (03:29)
+02. Prison Of Time (04:26)
+03. Switchblade Alley (06:55)
+04. Revival (04:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BE8E76CFB5ABAB368860C81E0BDDAF64F44113
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534683   (692463) от 03.03.2022
+
+Татьяна Зыкина - Седьмой альбом (2022) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692463.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Призрак
+2. Подарок
+3. Сквозь этажи
+4. Пара дней(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3086C057ADA9CD996F3581C0FD87DDCFD614A19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534681   (692468) от 03.03.2022
+
+Капитан Лис - Пристрастие (2022) [MP3|320 Kbps] <Folk Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692468.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. О'Женщины
+2. Гачимучи
+3. Дай Мне
+4. У Этой Песни Очень Длинное Название(   Читать дальше...   )Жанр: Folk PunkПродолжительность: 00:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692D2067033B928CBAD70EDF21C6840F3D10D093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534689   (692469) от 03.03.2022
+
+Nalien - Твоей маме понравится (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692469.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Твоей маме понравится
+2. Мультики
+3. Выключи стерву
+4. 500 рублей(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F97C0216F2592D67FEA2AC1BD54C77CB49D73E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028224   (692498) от 21.06.2016
+
+Смысловые Галлюцинации и DJ Nejtrino - Волна 1 / Волна 2 (2015-2016) 2EP [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Зачем топтать мою любовь
+2. Мысленный волк
+3. Звёзды
+4. Волна(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F28DC832319822DDC3D2A92C75CAC25984558E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133752   (692846) от 13.05.2017
+
+Imelda May - Life Love Flesh Blood (Special Edition) (2017) [FLAC|Lossless|image + .cue] <Pop-Rock, Blues, Bluegrass>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Me
+02. Black Tears (feat. Jeff Beck)
+03. Should've Been You
+04. Sixth Sense(   Читать дальше...   )Жанр: Pop-Rock, Blues, BluegrassПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEEDC21BB2C7063FA7C7996953A6D040A6CF210E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221690   (692894) от 25.04.2018
 
 BrainStorm - Wonderful Day (2018) [MP3|320 Kbps] <Pop Rock>
@@ -377,330 +701,6 @@ Alice Jayne - Inside The Cover (2017) [MP3|320 Kbps] <Rockabilly, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46D6B8061C4AE9D168ECCC971F665AC360203F97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133849   (693327) от 13.05.2017
-
-Blue Max - Limited Edition (1976) Reissue, 2003, Gear Fab Records [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Lovin'
-02. Prisoner
-03. Life Long
-04. Teaser(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94F8AF042D11423B71025BAE39296CD4109E7EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133460   (693541) от 13.05.2017
-
-Saturnalia Temple - To The Other (2015) [FLAC|Lossless|image + .cue] <Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:19
-02. ZazelSorath 06:06
-03. To The Other 08:49
-04. Snow Of Reason 07:59(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79881A3DCE2E10E45B7CF08A025C775949985C23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534465   (694002) от 02.03.2022
-
-Scorpions - Rock Believer (2022) Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gas In The Tank (3:41)
-02. Roots In My Boots (3:17)
-03. Knock 'em Dead (4:11)
-04. Rock Believer (3:57)Жанр: Hard RockПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158A5E1B1E3DFD48E453034206FBE5BA9BC6E587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403241   (694032) от 18.08.2020
-
-VA - Rock Now (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Believer (3:26)
-02. Bon Jovi - Livin' On A Prayer (4:08)
-03. Lynyrd Skynyrd - Sweet Home Alabama (4:44)
-04. Smash Mouth - All Star (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 05:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2F4679F15756182A3E9EEFBFDB1B41DDF81D185
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288711   (694068) от 12.03.2019
-
-Burning Rain - Face The Music (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Revolution
-02. Lorelei
-03. Nasty Hustle
-04. Midnight Train(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5498EA97262364E51C78ED825F7300E456650AB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288757   (694074) от 12.03.2019
-
-VA - Охота 86 (2019) [MP3|320 Kbps] <Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AZ'BEST - Мама
-02. Московское время - Меланхолия
-03. Сергей Даткай - Дельфин
-04. Corwine - Funkynation(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 01:15:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8719864A0425058CF5E202E51446871BB7D2DB77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288492   (694186) от 12.03.2019
-
-The Faint - Egowerk (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694186.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Child Asleep 4:39
-2 Chameleon Nights 3:32
-3 Life’s a Joke 4:52
-4 Alien Angel 3:38(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E821F6AF03FABD2524A5DB232CF78285E3DA27C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534486   (694251) от 02.03.2022
-
-Мамульки Bend - Эта песня обо мне (2022) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694251.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Максим
-2. Нина
-3. Офелия
-4. Света(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:779A5D0A1A02473303A8BFFBF6D52683F398BC8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534420   (694257) от 02.03.2022
-
-Dream Theater - The Majesty Demos (1985-1986) (2003) Reissue, Remastered, 2022, Inside Out Music [FLAC|Lossless|image + .cue] <Progressive Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Particle E. Motion (1:40)
-02. Another Won (instrumental version) (5:28)
-03. The Saurus (1:25)
-04. Cry for Freedom (6:34)(   Читать дальше...   )Жанр: Progressive Metal, Heavy MetalПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C35DC725C5914B731E14353808775030D8A1D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534381   (694259) от 02.03.2022
-
-HammerFall - Hammer Of Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brotherhood
-02. Hammer Of Dawn
-03. No Son Of Odin
-04. Venerate Me(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DBEEFFDC549CA2DF8AE0735B78CADDE9FB626C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403109   (694272) от 18.08.2020
-
-Vanishing Point - Dead Elysium (2020) [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Elysium
-02. Count Your Days
-03. To the Wolves
-04. Salvus(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56A7FC50551D5B21B1AE4C08F5DD6D18B7E2E9A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288507   (694300) от 12.03.2019
-
-The Mekons - Deserted (2019) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694300.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Lawrence of California 4:38
-2 Harar 1883 3:12
-3 In the Sun 4:55
-4 How Many Stars? 4:02(   Читать дальше...   )Жанр: Rock, Country RockПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3E005800DD086CE3829373155E5C4288E3F5E9
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1556441   (559721) от 09.06.2022
+
+VA - I'm Listening Now (2022) [MP3|320 Kbps] <Club, House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anturage & Alexey Union - I Can't Hide (Original Mix) (7:00)
+02. Elazion feat. George Sunday - One Step Closer (Retriv Remix) (3:35)
+03. Chris Yank - Люби меня (Winstep Remix) (3:38)
+04. MATUNO DADDY DJ - Komissar - Ты Уйдешь (Matuno Radio Remix) (3:45)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 04:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E07FD7BD1E6D6ECDCD863BE2C14379C37A9CD2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045327   (559824) от 23.08.2016
 
 VA - Portrayed Trance Synth - Epic Discovery (2016) [MP3|320 Kbps] <Trance, Melodic, Vocal Trance, Emotional, Uplifting Trance>
@@ -698,33 +725,6 @@ VA - Танцевальный Экстаз. Зарубежный Выпуск (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC5AEB2DB8F73DA47FAE1C7C29E0CBE2CA6A6E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304673   (561168) от 27.05.2019
-
-VA - Top 100 Club Tracks Vol.1 (2019) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Billie Eilish - Bad Guy (Division 4 Remix) 5:22
-002. Dr. Dre feat. Snoop Dogg - Still D.R.E. (DJ Dark & Mentol Bootleg) 3:55
-003. 50 Cent x Sunstars x Chester Young - How We Work (Stas Limonoff Mashup) 3:09
-004. Artik & Asti - Привет (Lavrushkin & Max Roven Remix) 4:23(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:24:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F03D3D93E8C0383820567273BFD40453454BF6
 ```
 
 

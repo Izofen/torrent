@@ -1,3 +1,30 @@
+###  Публикация: 997455   (873684) от 17.03.2016
+
+Tommy Lee - TommyLand: The Ride (2005) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Good Times	(03:06)
+02.	Hello, Again	(04:04)
+03.	Tryin To Be Me (03:33)
+04.	Sister Mary	(03:27)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA8F16AD81842EC06A25CDE91BE2D728B0BB0D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105987   (874997) от 18.02.2017
 
 Electric Guest - Plural (2017) [FLAC|Lossless|tracks + .cue] <Indie, Rock, Synthpop, Electronic>
@@ -727,33 +754,6 @@ Icon For Hire - Scripted (2011) [FLAC|Lossless|image + .cue]<Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFE202FFC76C134474857D580047762B783EF922
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102668   (889456) от 10.02.2017
-
-R.E.M. - Reckoning (The I.R.S. Years) (1984) Reissue, 1992 [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harborcoat (3:54)
-02. 7 Chinese Bros. (4:18)
-03. So. Central Rain (3:16)
-04. Pretty Persuasion (3:53)(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70581604C8D2DA9DB882279B3C357D67A373C60F
 ```
 
 

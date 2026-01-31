@@ -1,3 +1,30 @@
+###  Публикация: 1376722   (858806) от 18.04.2020
+
+VA - Beatport Trance: Electro Sound Pack #60 (2020) [MP3|320 Kbps] <Trance, Uplifting, Progressive, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858806.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zumbo - Information Psy
+002. Aquarius Orb - F.P.N.S.
+003. Lange - Nearly Home
+004. Estiva - Perpetual (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting, Progressive, VocalПродолжительность: 12:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88077E53657D22850FDE326FACCF2442241E2125
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109415   (858896) от 27.02.2017
 
 Janis Joplin - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -665,33 +692,6 @@ VA - The Presents Of Autumn (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF53664991C56566FFE59F56DEE65F6A85AAC56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497915   (859645) от 25.09.2021
-
-VA - Synthwave Dream Collection (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Raiders Of The Lost Arp - Sinetheme
-002. DJ T. - Harem Disco
-003. Kukuzenko - Sweet As Candy
-004. Maxnickel - 2er(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 07:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1C9F513571C91A0EE7CD3D1127A389BB012086
 ```
 
 

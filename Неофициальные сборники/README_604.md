@@ -1,3 +1,30 @@
+###  Публикация: 1098608   (908725) от 30.01.2017
+
+VA - Trance Elegance On This Year 008 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aurosonic & Axelpolo ft. Cathy Burton - Loving Overflow (Original Mix)  6:34
+02.  A.R.D.I & Linnea Schossow - Your Everything  4:03
+03.  Independent Art - Lines Of Hope (Original Mix)  7:39
+04.  Hamza Khammessi - A World For Us (Original Mix)  6:33(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06FA928DEDD7B55E33C465ED6F3B5052950891EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098758   (908824) от 30.01.2017
 
 VA - Rush Funky - Essential Deep House (2017) [MP3|320 Kbps] <Tech House, Soulful, Club, Nu Disco>
@@ -662,33 +689,6 @@ VA - International Sports Collective 4 (2017) [MP3|320 Kbps] <Eurodance, Vocal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B7B9F02FEBE36F5221F360FE02E0597DAD6C2DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098055   (910613) от 29.01.2017
-
-VA - Chilltrap Vol.8 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Chilltrap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flume - Say It Feat. Tove Lo (Illenium Remix) [04:28]
- 02. Zara Larsson & Mnek - Never Forget You (Shoolz Remix) [03:47]
- 03. Alan Walker - Faded (Dsert Remix) [02:31]
- 04. Anevo Ft. Ameria - Electric Heart [03:21](   Читать дальше...   )Жанр: ChilltrapПродолжительность: 01:44:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC2A01F52C83F1A2008C45C2C310A7120718E64
 ```
 
 

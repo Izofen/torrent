@@ -1,3 +1,345 @@
+###  Публикация: 1540514   (652647) от 30.03.2022
+
+The Electric - After the Flood (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Might Hurt
+02. We Feed at Night
+03. I Can't Hear Her (Anymore)
+04. Memento Man(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EF0C66339E93FF41BA99036A8554B7D8F2BF7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291808   (652661) от 26.03.2019
+
+Stahlmann - Kinder der Sehnsucht (2019) Limited Edition [FLAC|lossless|image + .cue] <Neue Deutsche Harte, Industrial, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vom Himmel verloren (04:02)
+02. Wahrheit oder Pflicht (03:58)
+03. Die Besten (03:27)
+04. Mein Leben fallt (03:53)(   Читать дальше...   )Жанр: Neue Deutsche Harte, Industrial, Gothic MetalПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861BF439738569F118E3FA515EF21E0F8CF97531
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291595   (652669) от 26.03.2019
+
+Wild Nothing - Indigo (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letting Go (03:42)
+02. Oscillation (03:51)
+03. Partners in Motion (04:21)
+04. Wheel of Misfortune (04:16)(   Читать дальше...   )Жанр: Indie Rock, ShoegazeПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906C83CBC5F5B2DB093F6797B3CFB4604D39248C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540318   (652709) от 30.03.2022
+
+Desert Clouds - Planexit (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Retro Acid Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planexit
+02. Mamarse
+03. Wheelchair
+04. Staring at the Midnight Sun(   Читать дальше...   )Жанр: Psychedelic Rock, Retro Acid Hard Rock, Stoner RockПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD5F2EB8B525CBB03D1A50DA79541950C418BEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540483   (652718) от 30.03.2022
+
+The Fallen State - Between Hope & Disillusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running from the Sun (03:33)
+02. Wolves (03:33)
+03. Knives (03:35)
+04. River (03:43)(   Читать дальше...   )Жанр: Alt. Rock, Modern RockПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBB9D0DE2426C482E92E5148F62C513A189AE1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540305   (652724) от 30.03.2022
+
+Turbo Lovers - Lettin' It Fly (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Should’ve Known Better (4:26)
+02. Reasons That We Rhyme (3:19)
+03. Too Cocky (4:27)
+04. Lettin’ It Fly (3:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E76C92FACC28A3DE819C755B3A93A000984B9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540520   (652725) от 30.03.2022
+
+The Holy Family - The Holy Family (2021) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Krautrock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Have Seen The Lion Walking. 5:15
+02. Skulls The .... 6:43
+03. Inward Turning Suns. 6:42
+04. Stones To Water. 7:19(   Читать дальше...   )Жанр: Psychedelic Rock, Krautrock, ExperimentalПродолжительность: 01:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3BE4F9421ED7CF5FCC224CB74261E5888BD26B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514631   (653028) от 28.06.2012
+
+Виктор Цой - Белый альбом (2002) [MP3|320 кб/с]<Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653028.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вопрос
+2. Сосны На Морском Берегу
+3. Blood Type
+4. Кончится Лето
+5. Красно-Желтые Дни
+6. Нам С Тобой
+7. Звезда
+8. Кукушка
+9. Когда Твоя Девушка Больна
+10. Муравейник(   Читать дальше...   )Жанр: РокПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E4968D08757639FE7116FE6DD36FAD68FAE964
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516420   (653119) от 28.06.2012
+
+Красная Плесень - Golden Ballads (2012) [MP3|320 kbps] <Punk Rock Ballads>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 20 Лет (02:57)
+02. Афганистан (04:18)
+03. Белокурая Девчонка (05:28)
+04. В Полнолунную Ночь (01:59)
+05. Клиническая смерть (04:04)
+06. Мама (04:20)
+07. Мир абстрактных иллюзий (03:55)
+08. На Землю Капает Дождь (04:40)
+09. Не Улетай (05:12)
+10. Ночка (03:12)(   Читать дальше...   )Жанр: Punk Rock BalladsПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D296B754C063CCB910ED8C8E9B28B8655C8D0EC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904840   (653384) от 04.06.2015
+
+Jeff Beck - Performing This Week... Live At Ronnie Scott's (2015) Deluxe Edition [MP3|320 кб/с]<Blues Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beck's Bolero (Live) (3:29)
+02. Eternity's Breath (Live) (1:14)
+03. Stratus (Live) (4:47)
+04. Cause We've Ended As Lovers (Live) (5:17)(   Читать дальше...   )Жанр: Blues Rock, RockПродолжительность: 01:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A8FFFF970FA091FAC1B3ED62E10C38057C7335E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904757   (653386) от 04.06.2015
+
+Александр Ф. Скляр, Олег Литвишко - Город X (2008) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной том музыкальных путешествий Александра Ф. Скляра, концептуальный альбом про воображаемый город, «который есть в каждом из нас». Однако нельзя сказать, что у автора получился свой «Уездный город N». Мы слышим совсем другие песни, пронизанные вовсе не городской атмосферой, а экзотической романтикой: море, прибрежные таверны и разбойники-контрабандисты.01.	Полночь
+02.	Высший Пилотаж
+03.	Таверна Парадиз
+04.	Меланхолия Разлуки(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE0FB3DEA769CBBF3BA1115693B1BC6289241D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516314   (653420) от 28.06.2012
+
+Zodiac - A Bit of Devil (2012) [MP3|244-265 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 — A Bit of Devil [00:04:37]
+ 02 — Carnival [00:05:12]
+ 03 — Blue Jean Blues [00:06:48]
+ 04 — Horror Vision [00:04:54]
+ 05 — Assembly Line [00:06:52]
+ 06 — Thunder [00:04:45]
+ 07 — Diamond Shoes [00:04:52]
+ 08 — Coming Home [00:10:09]
+
+Дебютный альбом немецкой группы «Zodiac», исполняющей отменный сплав классического рока и хард-рока на блюзовой основеЖанр: Hard RockПродолжительность: 00:48:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DD7AE9147EB01780B3F9A9C467D8E6068CB6EB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904866   (653434) от 04.06.2015
 
 No More Pain - The Post Human Condition (2014) [FLAC|image+.cue]<Progressive Rock>
@@ -397,335 +739,6 @@ Can - Delay 1968 (1981) Reissue, 1989, Spoon Records [MP3|320 Kbps] <Heavy Psych
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C13DF33543A4B5C3D3311B399720EEDA14B187E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226760   (653865) от 22.05.2018
-
-Oceans of Slumber - The Banished Heart (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Decay of Disregard (8:59)
-02. Fleeting Vigilance (5:26)
-03. At Dawn (8:30)
-04. The Banished Heart (9:05)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142E657146846A0ADB9FB4A036FBC7B069C0B27E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515930   (653918) от 28.06.2012
-
-ALTERNA - Правда (2012) [MP3|320 кб/с]<Alternative Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Правда
-02. НаперекорЖанр: Alternative RapcoreПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0E8FEF877FE24BD3A751502054D4CD1EE756CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539601   (654034) от 29.03.2022
-
-Architects (UK) - For Those That Wish To Exist At Abbey Road (2022) Abbey Road Version [FLAC 2.0|48/24|WEB-DL|tracks] <Metalcore, Post Hardcore, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Dream Of Armageddon? (1:45)
-02. Black Lungs (3:54)
-03. Giving Blood (3:37)
-04. Discourse Is Dead (3:46)(   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Post Hardcore, Arena RockПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C807B668A4F247C4C13BB481FF1A68897B3974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904409   (654200) от 03.06.2015
-
-BrainStorm - 7 Steps Of Fresh Air (2015) [MP3|320 кб/с]<Brit-pop, pop-rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Lights Go Out
-02. Snow Falls In Reverse
-03. Непокой
-04. Stay Young And Beautiful(   Читать дальше...   )Жанр: Brit-pop, pop-rockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBFF61DAA93B8A815C121C35C474C4E12E3BFEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904371   (654207) от 03.06.2015
-
-Bryan Ferry - Albums Collection (1973-1985) 6 CD Remastered /2015, Universal Music/ [FLAC|image+.cue]<Rock, Pop Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensation 05:04
-02. Slave To Love 04:26
-03. Don't Stop The Dance 04:19
-04. A Waste Land 01:00(   Читать дальше...   )Жанр: Rock, Pop Rock, GlamПродолжительность: 04:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68873DCBB593EFA27F3955E24A7DAB481E46DAF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904403   (654261) от 03.06.2015
-
-Paradise Lost - The Plague Within (2015) Limited Mediabook [FLAC|image+.cue]<Gothic Metal / Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Hope in Sight
-02. Terminal
-03. An Eternity of Lies
-04. Punishment Through Time(   Читать дальше...   )Жанр: Gothic Metal / Doom MetalПродолжительность: 00:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A4795FF21000DC7DD4C46ECA53C7855EEFF53EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904383   (654324) от 03.06.2015
-
-The Dead Daisies - Revolucion (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mexico
- 02. Evil
- 03. Looking For The One
- 04. Empty Heart(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4ABFCF5B777BBF12FED4024DD34C7A18ABC935B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904414   (654325) от 03.06.2015
-
-The Rolling Stones - 2120 South Michigan Avenue (The Unreleased 1964 Blues Album) (2010) [MP3|320 кб/с]<Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Recorded At Chess Studio Chicago, USA, 2120 South Michigan Avenue, 10/11 June 1964:
-01 - It's All Over Now 3:24
-02 - I Can't Be Satisfied 3:25
-03 - Stewed And Keefed 4:07(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7359DA86668755BCAC584E950CCF0F21154A107
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515283   (654352) от 27.06.2012
-
-Caspian - 3 albums (2005-2009) [FLAC|Lossless] <Post-Rock, Instrumental, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_654352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mie (04:09)
-02. La Cerva (04:59)
-03. Ghosts of the Garden City (07:31)
-04. Malacoda (05:03)
-05. Epochs in Dmaj (03:19)
-06. Of Foam and Wave (06:16)
-07. Concrescence (04:26)
-08. The Raven (07:10)
-09. Vienna (06:14)
-10. Sycamore (09:05)Жанр: Post-Rock, Instrumental, ExperimentalПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904518   (654386) от 03.06.2015
-
-Bay City All Stars - Rock & Roll Diner (1996) Remastered /2001, Menus And Music Productions/ [FLAC|image+.cue]<Rock & Roll, Pop Rock, R&B>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake, Rattle And Roll (Charles Calhoun) 03:17
-02. My Guy (William Smokey Robinson) 03:01
-03. Mustang Sally (Bonny Rice) 04:22
-04. Heatwave (Eddie Holland, Lamont Dozier, Brian Holland) 03:23(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock, R&BПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FDF0C164FBCCB1F60A293645239A21D517ACA55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904660   (654387) от 03.06.2015
-
-Circuit Des Yeux - In Plain Speech (2015) [FLAC|Lossless|Web-DL] <Experimental, Rock, Folk, Noise>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654387.jpg" />
-</div>
-
-
-###  Подробнее
-
-Circuit Des Yeux – девушка из Чикаго Хэйли Фо, обладательница удивительного мощного голоса, который то густыми низкими нотами разрывает пространство и прибивает к земле, то высокими опереточными распевами вгоняет в священный трепет. Последнему способствует и общая музыкальная парадигма драматичного торжественно-возвышенного дарк-фолка.
-  Причем на данной пластинке, (   Читать дальше...   )01. KT 1 (0:45)
-02. Do The Dishes (3:33)
-03. Ride Blind (3:56)
-04. Dream Of TV (7:49)(   Читать дальше...   )Производство: Thrill Jockey Records – thrill 392Жанр: Experimental, Rock, Folk, NoiseПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CF03077B89A411ABD42E7C263248DFC78684F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904422   (654388) от 03.06.2015
-
-Обход - Нормальные (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я с тобой
- 02. Бегущий человек
- 03. Молчание
- 04. С камня на камень(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A24E02BA5300422DDFAE573A2C0DC97648FE0A
 ```
 
 

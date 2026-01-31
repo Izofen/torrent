@@ -1,3 +1,30 @@
+###  Публикация: 1145040   (622981) от 24.06.2017
+
+VA - Дискотека 2017 Dance Club Vol.165 от NNNB (2017) [MP3|320 Kbps] <Pop, House, Trance, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622981.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Dimaro - Mystery (Extended Mix)  3:55
+002.  DJ Khaled & Rihanna feat. Bryson Tiller - Wild Thoughts  3:25
+003.  DJ Nil - Status Pam Pam  4:40
+004.  Ruslan Radridges & Cari - Follow The Sun (Extended Mix)  4:25(   Читать дальше...   )Жанр: Pop, House, Trance, Club, DanceПродолжительность: 09:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485B16AA5B65062E18891C776B68DD1335EFC460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522005   (623014) от 13.07.2012
 
 VA - Top 55 Tracks For Cars 11 (2012) [MP3|320 кб/с]<Electronic, Club, Electro House, Dutch House, Electro, Drum'n'Bass, Trance, Psytrance>
@@ -710,33 +737,6 @@ VA - Новинки Русского Рока. Выпуск 1 (2015) [MP3|320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4043FE91F788E4ECF0E82DD7173E17C3BD16B328
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543796   (625410) от 13.04.2022
-
-Buck 69 - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead End Road
-02. All Night Long
-03. Sometimes
-04. When She Whispers Your Name(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF452CE18A5C86E01401D11AF27260AF6A8676B4
 ```
 
 

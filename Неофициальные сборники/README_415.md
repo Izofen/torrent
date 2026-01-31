@@ -1,3 +1,30 @@
+###  Публикация: 1137010   (668691) от 25.05.2017
+
+VA - Дискотека 2017 Dance Club Vol. 164 от NNNB (2017) [MP3|320 Kbps] <Pop, House, Trance, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668691.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  DJ Sava feat. Barbara Isasi - Nena 3:25
+002.  Mahmut Orhan feat. Eneli - Save Me 2:52
+003.  Antonio Jose & Cali Y El Dandee - Tu Me Obligaste 3:24
+004.  ATB - Connected 3:36(   Читать дальше...   )Жанр: Pop, House, Trance, Club, DanceПродолжительность: 17:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1123D58748FEC2EDAD7B15A6A8CD2B1E71256E25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031323   (668772) от 03.07.2016
 
 VA - Club Dance Ambience vol.76 (2016) [MP3|320 Kbps] <House, Electro House, Club>
@@ -664,33 +691,6 @@ DJ AFFecta - МиксоПляс выпуск №1 (2016) [MP3|320 Kbps] <Dance P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B716F865450C846DB5A04C15C5857CE6D31FA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031036   (670239) от 02.07.2016
-
-VA - Kamasutra Erotic and Sexy Compilation 2016: Love Making Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radney Lee - Free Your Mind
-02. Jagdish Kay - Purity of Mind
-03. Sanjay Farrell - Cloud Line
-04. Deepak Rajesh - Body of Joy(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:696DBA56948BC748580A0CF2E21C23F7EDD976EE
 ```
 
 

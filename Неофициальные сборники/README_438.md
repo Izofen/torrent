@@ -1,3 +1,30 @@
+###  Публикация: 1220973   (698612) от 22.04.2018
+
+VA - The Official UK Top 40 Singles Chart 20.04.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_698612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris, Dua Lipa - One Kiss (03:35)
+02. Drake, Big Freedia, 5thward Weebie - Nice For What (03:32)
+03. Lil Dicky - Freaky Friday (feat. Chris Brown) (03:37)
+04. George Ezra - Paradise (03:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:20:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069FC8C7CF17088FDAA542839CCB7999BD27165A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132630   (698689) от 10.05.2017
 
 VA - Fleeting Moment: Dream Blues Compilation (2017) [MP3|320 Kbps] <Rock Blues, Country>
@@ -665,33 +692,6 @@ VA - ЕвроХит Топ 40 Europa Plus 08.03.2019 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6D024F7F9A08459F2C189AE4B5F23B9AD0005EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287963   (699634) от 09.03.2019
-
-VA - Sing A New Song (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699634.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bobby Kalphat & The New Establishment - Adis A Wa Wa
-002. Glen Washington - One Day
-003. Mister Bis - Champagne A Flot
-004. Nomad - Celebration(   Читать дальше...   )Жанр: Reggae, Dub Ska, SoulПродолжительность: 09:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AAA32A3BA5695F0428B6A7E577C4CC510974217
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 510121   (672692) от 13.06.2012
+
+VA - Deep Line. Erotic Lounge Vol. 2 (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bageri - Lady Of My Life
+02.Sawa Kobayashi - Patience
+03.Mooli - One Design
+04.The Perfect Backdrop - How Far, How Long
+05.Le Berry - Message In The Botte
+06.Sweet Velvet - Eres Tu - Ibiza Mix
+07.Crystin - Take Me Home
+08.B-Floor Feat. Hilary Costa & Vida Nova - Meu Amor
+09.Jaci Velasquez - Imagine Me Without You
+10.Sherrie Lea - No Ordinary Love (Arnold T Chill Mix)(   Читать дальше...   )2012Жанр: Downtempo|Lounge|ChilloutПродолжительность: 03:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8EF4647B78AAB822319BA647C60B327F7174B54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136526   (672761) от 23.05.2017
 
 VA - Дискотека Хит FM. Любимая музыка выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -698,33 +731,6 @@ VA - German Top 100 Single Charts 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93B511ADE139DD2154A11A9606548C429C47095
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223492   (673465) от 05.05.2018
-
-VA - The Official UK Top 40 Singles Chart 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_673465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris, Dua Lipa - One Kiss
-02. Ariana Grande - No Tears Left to Cry
-03. Drake, Big Freedia, 5thward Weebie - Nice For What
-04. Lil Dicky - Freaky Friday (feat. Chris Brown)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
 ```
 
 

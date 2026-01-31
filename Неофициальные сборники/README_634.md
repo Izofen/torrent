@@ -1,3 +1,30 @@
+###  Публикация: 979272   (959653) от 26.01.2016
+
+VA - Зимняя 100-ка Популярных Треков (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ева Польна - Мало
+02. Ёлка - Праздник К Нам Приходит!
+03. Kristina Si - Не Обижай Меня
+04. Milki - Лапочка(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE9014694044E490120935A9D6A18EA9522641D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979283   (959699) от 26.01.2016
 
 VA - Cafe Italiano, Vol. 1 (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, ChillOut>
@@ -672,33 +699,6 @@ VA - Best of Nachtcafe: A Smooth Sax and Piano Jazz Session (2015) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9D3CB5F2524165684D33A03558D46611CB7F3BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978854   (962525) от 24.01.2016
-
-VA - Chillhouse Winter Beats (2016) [MP3|320 кб/с] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Salvatore Stallone - Silvia's Element
-2. White Beach (Crystal Blue Sea mix) - Best Of Chillout Lounge
-3. Erdinc Erdogdu - Enjoy The Silence
-4. I Live My Life (Beach Lounge Session) - Pearls Of Ibiza(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C1EF17A18DE30977BD7399BC924D21E5F2A77CE
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1390920   (782260) от 17.06.2020
+
+James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikola Melnikov & Max Sorokin - Sun Wakes Up Earlier Than All (Mixed) (04:59)
+02. Nordfold - Trondheim (Mixed) (04:22)
+03. Nikola Melnikov & Max Sorokin - Pandawa (Mixed) (03:49)
+04. Rezident - Pure (Mixed) (04:04)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297937A22264F215BBA54AA124A65F01D7B1A8C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390802   (782261) от 17.06.2020
 
 VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
@@ -668,33 +695,6 @@ Associates - Sulk (1982) Bonus Tracks, Remastered, Reissue, 2000, V2 Music Ltd. 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F7EC8547596564E8EBEF1D988EBE279074A608B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206024   (782914) от 12.02.2018
-
-Don Diablo - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to Us (feat. Mike Waters) (03:00)
-02. Everybody's Somebody (feat. Bully Songs) (03:18)
-03. Put It On For Me (feat. Nina Nesbitt) (03:23)
-04. Give Me Love (feat. Calum Scott) (03:28)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4C5CA7D139D61D588E260F8FB2880A6BE44BD4F
 ```
 
 

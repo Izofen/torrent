@@ -1,3 +1,327 @@
+###  Публикация: 1129547   (720789) от 29.04.2017
+
+Alien - 1983 - Cosmic Fantasy (1983) EP, Vinyl Rip [MP3|256 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Space Prelude
+02. Cosmic Fantasy
+03. Star Lover
+04. Headbangin'(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:21:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4244C04066CCE5EB044BB59CE16F81F2C3C61F51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129676   (720790) от 29.04.2017
+
+Big Apple - Rock Area (1995) Japanese Edition 1-st Press [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:11
+02. Groovy 05:09
+03. Fly 05:15
+04. Livewire 06:16(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1F361547BED473DEA37CC123268A725D52F757
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129669   (720794) от 29.04.2017
+
+The Doomsday Kingdom - The Doomsday Kingdom (2017) [FLAC|Lossless|tracks + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Kingdom 05:11
+02. Never Machine 06:35
+03. A Spoonful of Darkness 05:50
+04. See You Tomorrow 04:36(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD467EA83BB62EFC0FA998F687FFC38E978265A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285598   (720865) от 26.02.2019
+
+Нервы - Слэм и депрессия (2019) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зажигалки
+02. Будь осторожен
+03. Еле бьется
+04. Укачу(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B50BA3EBACC72A6409B60F30C6FB28291ECFDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285547   (720941) от 26.02.2019
+
+Смех - Мёртвый Анархист (2019) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бомж
+02. Камнем по голове
+03. Лёд под ногами майора
+04. Танец(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66AC26CB1E32C43B26D1CA8F4B9F0D55792639F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285091   (720951) от 26.02.2019
+
+Dream Theater - Distance Over Time (2019) Special Edition, Digipak [FLAC|Lossless|tracks + .cue] <Heavy Metal, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untethered Angel (06:15)
+02. Paralyzed (04:18)
+03. Fall into the Light (07:05)
+04. Barstool Warrior (06:43)(   Читать дальше...   )Жанр: Heavy Metal, Prog RockПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E03B37CD7B82F16C2DBC0FF6AE81AAF8E9FED06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285115   (721085) от 26.02.2019
+
+Teeth Of The Sea - Wraith (2019) [FLAC|Lossless|WEB-DL|tracks] <Metal, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'd Rather, Jack (04:55)
+02. Hiraeth (07:07)
+03. Burn of the Shieling (04:40)
+04. Fortean Steed (03:59)(   Читать дальше...   )Жанр: Metal, ExperimentalПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32623B6B3EE4E634D888A269798273A831971B7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285177   (721086) от 26.02.2019
+
+Holy Terror - Guardians Of The Netherworld: A Tribute To Keith Deen (2015) [FLAC|Lossless|image + .cue] <Thrash Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Blessed Sacrament
+02 - Black Plague
+03 - Distant Calling
+04 - Guardians Of The Netherworld(   Читать дальше...   )Жанр: Thrash Metal, Speed MetalПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA9119459AC0F63C0F5ED40A4ED2CF8D121946B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285156   (721088) от 26.02.2019
+
+Cytotoxin - Radiophobia (2012) [WavPack|Lossless|image + .cue] <Technical Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Survival Matrix (2:58)
+02 - Ionosphere (2:48)
+03 - Frontier of Perception (5:04)
+04 - Radiophobia (3:49)(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55357FA704E235D9E9E97F7EBB50CBCF9B3232D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285155   (721189) от 26.02.2019
+
+Cytotoxin - Gammageddon (2017) [WavPack|Lossless|image + .cue] <Technical Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Radiatus Generis (4:15)
+02 - Chaos Cascade (4:11)
+03 - Gammageddon (3:52)
+04 - Chernopolis (6:54)(   Читать дальше...   )Жанр: Technical Brutal Death MetalПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEC1936D208A13A2C7763982A776F6BD6E39156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285066   (721190) от 26.02.2019
+
+Agatus - The Eternalist (2016) [FLAC|Lossless|image + .cue] <Black Metal, Heavy Meral>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Eternalist
+02 - The Invisible (The Fifth Portal To Atlantis)
+03 - The Oath (Of Magic And Fire)
+04 - Gods Of Fire(   Читать дальше...   )Жанр: Black Metal, Heavy MeralПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6BC4B06E9C40DBFAA47D3E7E0F3DB6DAE4B0EC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285179   (721191) от 26.02.2019
+
+Illdisposed - 1-800 Vindication (2004) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_721191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Believe In Me 04:33
+02. Dark	04:05
+03. Now We're History	04:39
+04. When You Scream	03:08(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136AA198C73BF6BC1DC87001317A31E9A4F1C950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285597   (721192) от 26.02.2019
 
 Hybernoid - The Last Day Begins ? (1994) [FLAC|Lossless|tracks + .cue] <Goth Rock, Doom Metal>
@@ -372,349 +696,6 @@ Miss Crazy - Inception (2014) [FLAC|Lossless|image + .cue] <Glam Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE0AFA54495108FCE374AFFC97DBF5E5FAF7EF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327025   (721774) от 23.04.2011
-
-Макс ИвАнов - Акустика 2 (2011) [MP3|320 kbps] <Русский рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс ИвАнов — душа питерской группы «Торба-на-Круче», образованной в 1998 году. Автор всех песен группы, Макс обладает неповторимым артистизмом в голосе, чувством юмора и простым русским обаянием. В декабре 2004 года вышел сольный альбом Макса «Акустика 1», вышел он отдельным диском, без лейблов, что называется, самиздатом. Макса ИвАнова любят во многих городах страны, (   Читать дальше...   )1. С тобой
- 2. Всё что ты думаешь скажи
- 3. Ветрено
- 4. Все мысли о тебе(   Читать дальше...   )Жанр: Русский рокПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668810   (721993) от 16.06.2013
-
-Genocide - Stranded (1994) [style AC/DC] [APE|Lossless]<Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_721993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock'n'Roll Outlaw (03:25)
-02. Baby You Run (03:26)
-03. Stranded (03:16)
-04. My Heart Is Free (04:27)
-05. Deep Inside (03:48)
-06. Nostalgic Harmonies (04:48)
-07. I Need You Next To Me (04:50)
-08. Forever A Stain (04:49)
-09. Prove It To You (03:12)
-10. Sidewalk Song (04:37)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023787   (722011) от 06.06.2016
-
-Demian - Demian (1970) [MP3|320 кб/с] <Hard Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722011.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Face The Crowd
-2. Windy City
-3. Love People
-4. Coming(   Читать дальше...   )Жанр: Hard Rock, Psychedelic RockПродолжительность: 00:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A814B94FAC83E977238A52ADC9661FC0006871
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023793   (722143) от 06.06.2016
-
-DragonForce - Killer Elite-The Hits, The Highs, The Vids (2016) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722143.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD I:
-
-01. Through the Fire and Flames 07:24
-02. Holding On 04:56(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B322E0678E646C3710E8DA656322F7280B22C5CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129228   (722146) от 28.04.2017
-
-The Cranberries - Something Else (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic, Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландская рок-группа The Cranberries выпустит свой новый альбом Something Else 28 апреля на лейбле BMG Rights Management.
-О нём музыканты сообщили на своей официальной страничке в фейсбуке, отметив, что это будет не совсем новый музыкальный материал: "В течение двух недель в университете Лимерика, в домашней студии Ирландского камерного оркестра, мы вспомнили (   Читать дальше...   )01. Linger (Acoustic Version) (4:56)
-02. The Glory (5:15)
-03. Dreams (Acoustic Version) (4:24)
-04. When You're Gone (Acoustic Version) (4:11)(   Читать дальше...   )Жанр: Acoustic, Pop-RockПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BD233D7B62F55E1F9E69BF08E1F24E349DAE1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023830   (722152) от 06.06.2016
-
-Smokie - The Other Side Of The Road (1979) Reissue, 2016, Sony Music [FLAC|Lossless|image + .cue] <Rock, Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Other Side Of The Road (3:54)
-02. Do To Me (3:19)
-03. Belinda (2:59)
-04. Big Fat Momma (2:49)(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B35C22281D126C0D74BE3A52850E750BDA34674
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668779   (722211) от 16.06.2013
-
-Fission - Crater (2004) [FLAC|Lossless]<Thrash metal / Melodic death metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_722211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mechanism (00:42)
-02. Crater (04:44)
-03. Accelerator (05:01)
-04. Empty Nimbus (03:16)
-05. Magnetism (05:55)
-06. Catastrophe Consumer (03:49)
-07. The Core - 118 Protons of Insanity (00:44)
-08. Mind Vortex (04:42)
-09. The Chaos Algorithm (03:34)
-10. Eremiten (03:26)(   Читать дальше...   )Жанр: Thrash metal / Melodic death metalПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668773   (722215) от 16.06.2013
-
-Fall of Empyrean - Anhedonia (2003) [APE|Lossless]<Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_722215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wounded Skies (01:28)
-02. This Paradise Crumbles (08:20)
-03. Drowning in Gray (08:31)
-04. Virga (03:05)
-05. The Catatonic (04:55)
-06. Destructive Light of Dawn (10:32)
-07. Behind Vacant Eyes (07:23)
-08. Cascading Rivers Of Black (05:33)
-09. Solar Journey (06:09)
-10. This Sanguine Farewell (05:51)Жанр: Doom MetalПродолжительность: 01:01:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129162   (722265) от 28.04.2017
-
-Uriah Heep - Demons And Wizards (1972) 2CD, Remastered, 2017, Sanctuary Records [FLAC|Lossless|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Livin' 02:37
-02. Rainbow Demon 06:11
-03. Traveller in Time 03:48
-04. Paradise 05:26(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6B878DBDAD5F23335E30E426A9357436F1B0B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023842   (722353) от 06.06.2016
-
-Jorn - Heavy Rock Radio (2016) [MP3|320 кб/с] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722353.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Know There's Something Going On
-2. Running up That Hill
-3. Rev on the Red Line
-4. You're the Voice(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DFA8652B51ADE76CC560CCA91F49CAD76580F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023837   (722374) от 06.06.2016
-
-A Taste Of Freedom - Carved In Our Dreams (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Down And Fly
-02. The Hangman
-03. Call Me Legion
-04. I Am You(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B028176CD8EC0E12EA9072AA02247AEB20B4E2B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129259   (722400) от 28.04.2017
-
-Body Count - Bloodlust (2017) [FLAC|Lossless|tracks + .cue] <Rapcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Civil War (feat. Dave Mustaine) (04:24)
-02. The Ski Mask Way (03:36)
-03. This Is Why We Ride (05:26)
-04. All Love Is Lost (feat. Max Cavalera) (03:36)(   Читать дальше...   )Жанр: Rapcore, HardcoreПродолжительность: 41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4EA07E0C573C6B2645E5F638766CC3D6256FD9
 ```
 
 

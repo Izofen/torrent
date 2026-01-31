@@ -1,3 +1,82 @@
+###  Публикация: 1456383   (1025115) от 22.03.2021
+
+Domino - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2021 (5:21)
+02. Tora Tora ToraЖанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D34EF9F992E34073F7797B61204BDAA6FA71A33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456070   (1025292) от 21.03.2021
+
+VA - Classic Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talisha Karrer - One (Acoustic) (04:05)
+02. Shannon & Keast - Love Story (Acoustic) (03:55)
+03. John Burnsby - I’m a Believer (Acoustic) (03:00)
+04. Karizma Duo - Everybody Wants to Rule the World (Acoustic) (02:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A3FA6253F4BDCA5586FEC69EC4D6FA16C050DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456054   (1025293) от 21.03.2021
+
+Justin Bieber - Justice (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Much (2:33)
+02. Deserve You (3:07)
+03. As I Am (2:54)
+04. Off My Face (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E40DE24B616C2610728496B89BB0301B4DEA0BEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456134   (1025314) от 21.03.2021
 
 Сенатор (Senator) - Лучшие хиты (2020) [MP3|~245 Kbps (V0)] <Pop>
@@ -611,87 +690,6 @@ magnet:?xt=urn:btih:FFE42B4B4DCEEAA8798500EED82156F31E022B0F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C87F3AD2166ECA6363390C21C19DC02161EAF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454294   (1026428) от 14.03.2021
-
-VA - Spring Acoustic Music (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - Survivin’ (Acoustic) (02:41)
-02. Shannon & Keast - Eastside (Acoustic) (03:06)
-03. Django Wallace - My Future (Acoustic) (03:22)
-04. John Burnsby - Easy (03:29)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D603BFE8E3612577820106BC4971AE16DD92ED78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453896   (1026597) от 13.03.2021
-
-Балаган Лимитед - Поговорки (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Обнимашки [00:03:30]
-02 - Чё те надо (Version 2019) [00:03:29]
-03 - На восходе [00:03:06]
-04 - Ветер унеси (Solo Version) [00:03:27](   Читать дальше...   )Жанр: PopПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4B39DAF3C0799B9D10D9FB97B9D7CECFD4D0E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453756   (1026763) от 12.03.2021
-
-гречка - Не за что (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026763.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. интро
-2. тысяча моментов
-3. это убило меня
-4. вечно так(   Читать дальше...   )Жанр: PopПродолжительность: 00:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87D3F9CA9098D951DDB45B5CC2F56336280AF6B
 ```
 
 

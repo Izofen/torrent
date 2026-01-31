@@ -1,3 +1,209 @@
+###  Публикация: 1288907   (690228) от 14.03.2019
+
+Ashley McBryde - Girl Going Nowhere (2018) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Girl Goin’ Nowhere (03:25)
+2. Radioland (03:05)
+3. American Scandal (04:02)
+4. Southern Babylon (04:05)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52655093183FD8E5219EBDA3021F7B53BDBD9984
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288919   (690230) от 14.03.2019
+
+LeAnn Rimes - Unchained Melody: The Early Years (1997) [FLAC|Lossless|tracks + .cue] <Folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690230.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 	Cowboy's Sweetheart 	2:32
+2 	I Will Always Love You 	4:38
+3 	Blue Moon Of Kentucky 	3:17
+4 	River Of Love 	3:19(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2D0C8B896F71EF3B6BD1F0178A8917D488EF2A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506158   (690278) от 05.06.2012
+
+George Skaroulis - Reunion (2007) [FLAC|Lossless]<New Age, Piano solo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile (6:44)
+02. Evangelia (5:33)
+03. Reunion (4:26)
+04. Numinous (5:05)
+05. Hopes And Dreams (3:23)
+06. Into The Light (2:12)
+07. Tree Of Life (5:08)
+08. On Friendship's Wings (4:18)
+09. The Calling (5:00)
+10. Snow (3:01)Жанр: New Age, Piano soloПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288698   (690377) от 14.03.2019
+
+Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Red Dirt (02:20)
+2. Too Hot To Just Quit (03:29)
+3. Met My Match (02:35)
+4. The River & the Gum (04:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEBD3B018A92761C354F1CC52C6E9BD87EA6EC8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 505416   (690583) от 05.06.2012
+
+Vitaliy Baldych - The Seagull (2011) [FLAC|Lossless]<Relax,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Island
+02. The Seagull
+03. Song of a girl, who stand on the cliff
+04. Presentiment of a storm
+05. After the rain
+06. Traces on sand
+07. Dreams about the argo
+08. Lunar Path
+09. New LifeЖанр: Relax,New AgeПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506265   (690589) от 05.06.2012
+
+Big City Indians - Uncle Peyote (1999) [MP3|128 кб/с]<Native American, New Age, Flute, Rock, Tribal, Blues, Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wise Man 4:41
+02. Uncle Peyote 4:31
+03. Fighting without Fear 7:10
+04. Prayin for the Rain 5:19
+05. Big City Indian 5:14
+06. Thunderbird 5:27
+07. West North South East 6:28
+08. Follow Sitting Bull 5:42
+09. Sweet Illusion 4:02
+10. Fire Spirit (long version) 7:28(   Читать дальше...   )Жанр: Native American, New Age, Flute, Rock, Tribal, Blues, PopПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3CF860F936287B384D7B4802EA7D31263F447F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028344   (690649) от 22.06.2016
+
+Paul Mauriat - L'avventura & Le Lac Majeur (1972) Remaster, 2016, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690649.jpg" />
+</div>
+
+
+###  Подробнее
+
+L'avventura
+01. Jesus Cristo
+02. Il Fait Beau, Il Fait Bon
+03. La Decadanse(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1584CEB4EE6BDF9BD710ED785758A38C098AEF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 210689   (690827) от 22.06.2010
 
 VA - Record Chill-Out Part 1-6 (2007-2010) [MP3|320 kbps]<Chill-Out>
@@ -503,192 +709,6 @@ David Osborne - Best of David Osborne: Solo Piano Performances (2018) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D560EF3C1693AA3DB845E156C4E04E8F8D0CF9D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027678   (694052) от 20.06.2016
-
-Brad Fiedel - The Terminator / Терминатор (Original MGM Motion Picture Soundtrack) (1984) (Remastered 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (02:40)
-02. Terminator Arrival / Reese Chased / Sarah On Motorbike (07:09)
-03. Terminator Gets Guns / Search For Sarah (01:13)
-04. Reese Dreams Of Future War (01:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F8C30A5FAEE09CDAB6B54ACD973506B981C43D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741387   (694165) от 20.06.2016
-
-Beatmakers - 4 альбома (2008 - 2014) [MP3|224 - 320 кб/с]<Guitar, Beat, Rautalanka>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Guitar, Beat, RautalankaПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF414FCD78CF4246A59D487924AB18710EE8BEFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534111   (694253) от 02.03.2022
-
-Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kbps] <New Age, Ambient, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vision (6:12)
-02. New Feelings (7:14)
-03. Silent Motions (9:16)
-04. Classic Approach (6:17)(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 01:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64F9FF2629F3FFFE68A67BC5FEAA8A22DD26F42F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027627   (694553) от 20.06.2016
-
-Majestica - In the Midst of Stars (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Midst of Stars [00:04:30]
-02. Carousel [00:04:00]
-03. In Bloom [00:05:31]
-04. Close of Day [00:05:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EA06B98590BE3DE3F900B0F22C0554AEB65205
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027580   (694554) от 20.06.2016
-
-Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ufology [00:05:18]
-02. Saucers over Stonehenge [00:06:47]
-03. Suspended Animation [00:05:53]
-04. Roswell (feat- Annaspaceia) [00:04:12](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78AD9FE89CF8687A3B40E64C37AC0535D03141A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027583   (694558) от 20.06.2016
-
-Jupiter Panic - Distant Tomorrow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Distant Tomorrow Part 1 [00:03:39]
-02. Distant Tomorrow Part 2 [00:03:31]
-03. Descension [00:05:49]
-04. Anti-Gravity [00:03:49](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A654E08D41DCAF8927B984947A82DE84B059997
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027834   (694697) от 20.06.2016
-
-Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ufology
-02. Saucers over Stonehenge
-03. Suspended Animation
-04. Roswell (feat- Annaspaceia)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
 ```
 
 

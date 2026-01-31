@@ -1,3 +1,30 @@
+###  Публикация: 1501150   (835045) от 10.10.2021
+
+VA - Soul Sugar (2021) [MP3|320 Kbps] <Funk, Soul, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835045.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Steoples - Alas Alice
+002. Timewarp Inc - Breakbit
+003. Eunice Haze - String Around My Heart
+004. Niles Philips feat. Tonkin - Nose Dive(   Читать дальше...   )Жанр: Funk, Soul, JazzПродолжительность: 08:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C80D55621E26DF5F41878CC3A22C60BB95EA93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380336   (835047) от 02.05.2020
 
 VA - Beatport Techno Electronic: Sound Pack #73 (2020) [MP3|320 Kbps] <Techno>
@@ -668,33 +695,6 @@ VA - Empire Records - Golden Drum 2 (2017) [MP3|320 Kbps] <Dubstep, Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D332DC8E538A4943B8F82D09A64C5139803A1477
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113685   (836718) от 12.03.2017
-
-VA - Empire Records - Dancenudisco 12 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. K La Cuard - Shooting Star (Radio Edit)
-02. Tommy Vee & Mauro Ferrucci Present Keller - This Time (Original Mix)
-03. Zinner and Orffee - Together (Radio Edit)
-04. The Knocks Ft Absofacto - Trouble (Captain Cuts Edit)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC80EEBB50B766D284197B5AA911A80A4B204D3C
 ```
 
 

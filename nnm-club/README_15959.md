@@ -1,674 +1,672 @@
-###  Публикация: 1231387   (606781) от 17.06.2018
+###  Публикация: 1297717   (603094) от 24.04.2019
 
-Vanessa Benelli Mosell & Henri Demarquette - Echoes - Philip Glass & Сергей Рахманинов (2018) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Philip Glass:
-01. OpeningЖанр: ClassicalПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0A7E21D21CE8E6AD6259896BA46CE0081371C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231153   (606782) от 17.06.2018
-
-Василий Чибисов | Либидо с кукушкой. Психоанализ для избранных (2018) [FB2]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_606782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Можно ли подчинить себе время? Как с помощью обычного метронома избавиться от привычки опаздывать и от социофобии? Что общего между творчеством и психозом? Почему мы любим водить хороводы на граблях? Откуда приходят повторяющиеся сны и мысли о бессмертии? Правда ли, что рукописи не горят?
-
-Автор психоаналитического бестселлера «Вся фигня от мозга» отправляется на (   Читать дальше...   )Жанр: Самосовершенствование, достижение успехаФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231339   (606783) от 17.06.2018
-
-Сергей Зверев | Как возрождалась сталь (2018) [FB2]
-
->>Художественная литература
->>Боевики, Детективы, Триллеры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606783.jpg" />
-</div>
-
-
-###  Подробнее
-
-В самом разгаре строительство грандиозного Крымского моста. Уникальное сооружение приковывает внимание всего мирового сообщества. Но особый интерес к объекту – у западных спецслужб. Они не прекращают попыток сорвать работы любыми способами. Подполковник ФСБ Игорь Берзин знает это не понаслышке. Назначенный на стройку под видом инженера по технике безопасности, он (   Читать дальше...   )Жанр: БоевикиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:929576C704BDE829F5425CDD3B4D7FBDF7F7866B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231278   (606784) от 17.06.2018
-
-Беспокойный свидетель / Do Not Disturb (1999) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606784.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уолтер Ричмонд, президент крупной американской компании, прилетает с женой Кэтрин и немой 10-летней дочерью Мелиссой в Амстердам для заключения важной сделки. В отеле в общей суматохе Мелисса теряется и попадает на внутренний двор, где становится случайным свидетелем жестокого убийства.
-Теперь девочке, которая не может попросить о помощи, приходится спасаться от (   Читать дальше...   )Производство: Германия, Нидерланды / CLT-UFA International, Do Not Disturb B.V., First Floor FeaturesЖанр: Боевик, Триллер, КомедияРежиссер: Дик МасАктеры: Уильям Хёрт, Дженнифер Тилли, Франческа Браун, Дэнис Лири, Майкл Чиклис, Кори Джонсон, Джейсон Мерреллс, Дэвид Гвиллим, Френсис Мэтьюз, Майкл А. ГурджианПеревод: Дублированный ("Мосфильм")Субтитры: ОтсутствуютПродолжительность: 01:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F75BFF8832062B4B8A6C76D282F00A2B1ED55959
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231326   (606785) от 17.06.2018
-
-Журнал | Советы профессионалов №6 (2018) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_606785.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Советы профессионалов» — журнал для тех, кто строит дом или дачу, ремонтирует квартиру, выбирает инструмент или бытовую технику. В журнале вы найдёте советы специалистов-практиков о том, как обустроить «умный дом» и массу полезных советов. В каждом номере - коллекция «Базовые знания» - рубрика с подробным описанием доступных ремонтных работЖанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231300   (606786) от 17.06.2018
-
-Квартирник на НТВ у Маргулиса. Биртман (06.16.2018) WEBRip [H.264/1080p-LQ]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_606786.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла группа «Биртман», которая стала одной из главных сенсаций 2015 года. По-настоящему культовое явление современной музыки во главе с Зиновием Биртманом эксперты считают одним из самых серьезных мистификаций отечественной культуры.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231378   (606787) от 17.06.2018
-
-Сергей Самаров | Наказание по закону гор (2018) [FB2]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_606787.jpg" />
-</div>
-
-
-###  Подробнее
-
-Абдул-Азиз – участник Великой Отечественной войны, почетный пенсионер, которого знают далеко за пределами района. А вот его внук Латиф – позор на седины ветерана. Молодой человек съездил в Сирию и вернулся оттуда убежденным экстремистом. Сколотил банду моджахедов и стал грабить и убивать местных жителей. Все попытки деда унять распоясавшегося отпрыска оказались бесполезными. (   Читать дальше...   )Жанр: БоевикиФормат: FB2
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297096   (606788) от 20.04.2019
-
-Scann-Tec - Morpheus | live Nuit Hypnotique #4 (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Ambient, Downtempo>
+The Future Sound Of London - Yage 2019 (2019) FSOLdigital [FLAC|Lossless|WEB-DL|tracks] <Abstract, Ambient, IDM, Leftfield, Experimental>
 
 >>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606788.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flicker (Live Edit) (04:19)
- 02. ASD (Live Edit) (06:38)
- 03. Phone Call (Live Edit) (06:18)
- 04. Hello Human (Live Edit) (05:59)(   Читать дальше...   )Жанр: Psybient, Ambient, DowntempoПродолжительность: 01:59:31
+01. Yage 2019 (07:22)
+ 02. Floating Into Focus And Then Moving Away (03:15)
+ 03. Purged (04:54)
+ 04. We Flew Together (02:43)(   Читать дальше...   )Жанр: Abstract, Ambient, IDM, Leftfield, ExperimentalПродолжительность: 00:52:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2D872C4C8D90FF89FDFBCB38FBE1CB196241E3F
+magnet:?xt=urn:btih:6EF01B51E7670BFA512B6187BB6ED32082BC92AA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296738   (606789) от 20.04.2019
+###  Публикация: 1297649   (603095) от 24.04.2019
 
-Филипп Крамер, Ольга Серебрякова | Мир Чаши. Дочь алхимика (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная Жозефина после внезапной и страшной смерти родителей принимает обязанности главы рода. Вместе с гербовым перстнем рода де Крисси она получает отцовский перстень Первого алхимика Чаши. Облако тайн, окутывающее эти реликвии, смертельно опасно, и Жозефина вынуждена бежать из родного дома. С горсткой верных бойцов она проходит полстраны в поисках защиты и ответов… (   Читать дальше...   )Жанр: фантастика, фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CB5EBFBA03363F1750134E356D477362C6C411
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296972   (606790) от 20.04.2019
-
-VA - Offworld Transmissions Volume 7 (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nelver - Back In The Days (06:36)
- 02. Silence Groove, Airstrike - Distanced (05:18)
- 03. LM1, Method One - The Calling (Method One Remix) (06:03)
- 04. Stunna, Greekboy - Reanimate (05:55)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 03:21:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7682E0B46C76F82B5C869859D1A38190792811F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297102   (606791) от 20.04.2019
-
-Nova - Passages (2014) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Downtempo, IDM, Ambient>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Murray - Passing Through Walls (05:48)
- 02. Fingers In The Noise - Delicate (06:39)
- 03. Cygna - Within (06:20)
- 04. Brando Lupi - Opal (07:52)(   Читать дальше...   )Жанр: Psybient, Downtempo, IDM, AmbientПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92CB8C577F445E2D27C4B6666943251CB281D22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296998   (606792) от 20.04.2019
-
-Omni Trio - Skeleton Keys (1997) [FLAC|Lossless|tracks + .cue] <Drum n Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skeleton Keys (Omni Trio Remix)	6:36
-02. Silver	6:23
-03. Fire Island	6:04
-04. Ocean Driver	6:43(   Читать дальше...   )Жанр: Drum n BassПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA2B833FAEC20B53CE6E61FF11C15693701C33D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296564   (606793) от 20.04.2019
-
-T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossless|tracks + .cue] <Blues Rock, Folk Rock>
+Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
 
 >>Other Styles
->>Folk (Lossless)
+>>Folk
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606793.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Over You (02:20)
-02. Tear This Building Down (04:37)
-03. It's Not Too Late (04:27)
-04. Humans From Earth (02:49)(   Читать дальше...   )Жанр: Blues Rock, Folk RockПродолжительность: 00:38:19
+1. Jacaranda Street (5:33)
+2. The Lavender Lighter (3:32)
+3. My Love Waits For Me (4:06)
+4. Stepping On That Bridge (3:32)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:59:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CD559FE3DFC91CDD9158B2C343A9C5E1A5205CC
+magnet:?xt=urn:btih:A0DB87800156C61EB3CD70335C75D7A0FD23854A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297037   (606794) от 20.04.2019
+###  Публикация: 1297842   (603096) от 24.04.2019
 
-Nouvelle Vague - Curiosities (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, New Wave, Bossa Nova>
+Журнал | Вязание ваше хобби №5 (2019) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603096.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вязание - ваше хобби» - ежемесячный журнал по вязанию на спицах и крючком. В каждом номере суперхиты вязаной моды для каждого сезона - самых модных, самых элегантных, самых экстравагантных, из новых видов пряжи, с эксклюзивным декором. Наряду со сложными в исполнении моделями, требующими мастерства и терпения, есть модели для начинающих рукодельниц.Жанр: вязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0756CB22C99BA45D7CC1614839B03D6666B2C40D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297830   (603097) от 24.04.2019
+
+Vivaldi 2.4.1488.40 Stable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606794.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweet Dreams
-02. My Girl
-03. Girl You Want
-04. Under the Flag(   Читать дальше...   )Жанр: Lounge, New Wave, Bossa NovaПродолжительность: 00:44:14
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE4B96785E0DEC14A07A9F5676AB6A270B1E594B
+magnet:?xt=urn:btih:A4C4F28932F967A0A65ECDD4CD34485A1B58350A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296981   (606795) от 20.04.2019
+###  Публикация: 1297791   (603098) от 24.04.2019
 
-Japan - Exorcising Ghosts (1984) Anthology [FLAC|Lossless|tracks + .cue] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Methods Of Dance (06:50)
-02. Gentlemen Take Polaroids (07:04)
-03. Quiet Life (04:52)
-04. Nightporter (06:48)(   Читать дальше...   )Жанр: Synth-popПродолжительность: 01:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E442422C552E03436745597CB8E9EDB4FDFFA41C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297077   (606796) от 20.04.2019
-
-The Reels - Reelin' (2008) [MP3|320 Kbps] <Blues Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mess O' Blues
-02. Luxury
-03. Reelin'
-04. Hiway 49(   Читать дальше...   )Жанр: Blues Rock, BluesПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C9B0F0FE9BB978C9E3CD04B1DA30B9854E57E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296976   (606798) от 20.04.2019
-
-Everything but the Girl - Amplified Heart (1994) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rollercoaster (03:13)
-02. Troubled Mind (03:34)
-03. I Don't Understand Anything (04:25)
-04. Walking To You (03:30)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DAA33F9764D12BC175C11E1B0EBE636E21C9BDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296052   (606800) от 20.04.2019
-
-Эллен Датлоу, Терри Виндлинг (составители) | Тропой Койота. Плутовские сказки (сборник) (2019) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на страницы третьего тома серии антологий «мифической фантастики» от прославленных составителей Эллен Датлоу и Терри Виндлинг! В «Зеленом рыцаре» они исследовали лесной фольклор. В «Пляске фэйри» – наблюдали за феями, эльфами и прочими духами природных стихий. А сейчас обращают внимание читателей на трикстера – непредсказуемого и неугомонного персонажа, (   Читать дальше...   )Жанр: фантастика, фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D16A99E692E8DBFE95C07E234270FE8852CBD1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297000   (606802) от 20.04.2019
-
-Bop - Patterns I Have Known And Loved (2019) Medschool [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, IDM, Ambient>
+Google Chrome 74.0.3729.108 Portable by Cento8 [Ru/En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606802.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Untitled Pattern 48 (05:52)
- 02. Untitled Pattern 52 (05:28)
- 03. Untitled Pattern 62 (04:59)
- 04. Untitled Pattern 66 (04:34)(   Читать дальше...   )Жанр: Drum n Bass, IDM, AmbientПродолжительность: 00:29:56
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1EE24E5AA21D5FCC0F999EFD4EE70F6C8CDF31B8
+magnet:?xt=urn:btih:EF9EFDECED237E0EE0872C5833E0A0BCC9FD0C63
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296971   (606805) от 20.04.2019
+###  Публикация: 1297815   (603099) от 24.04.2019
 
-Jay-Jay Johanson - Tattoo (1998) [FLAC|Lossless|tracks + .cue] <Electro, Trip Hop, Synth-pop>
+VA - Lounge & Summer Vol. 1 (2019) [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606805.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Even In The Darkest Hour (03:53)
-02. Quel Dommage (04:17)
-03. Murderans (00:32)
-04. Milan, Madrid, Chicago, Paris (04:11)(   Читать дальше...   )Жанр: Electro, Trip Hop, Synth-popПродолжительность: 00:48:15
+01. Sphere - Weeds (Original Mix)
+02. Dj Mnx - Emotions May Fly (Original Mix)
+03. Bob Zopp - Island Girl (Original Mix)
+04. Schwarz;Funk;Ann Francis - Deep Emotion (Original Mix)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:08:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEB5A9C74285427AA8A707121292E834815552B2
+magnet:?xt=urn:btih:A7E00E18A18C5F997D35F7AD6AB1993B485D3CEF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297065   (606807) от 20.04.2019
+###  Публикация: 1297737   (603100) от 24.04.2019
 
-Kool Keith - Controller of Trap (2018) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-Hop, Underground Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be Shy (3:07)
-02. Bottle Pop (3:51)
-03. Life Is Hard (3:34)
-04. Mug Up (4:54)(   Читать дальше...   )Производство: Ocean Ave RecordsЖанр: Rap, Hip-Hop, Underground Hip-HopПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E1FCFD14F305355E8F3D1E5852FD8DBB53406F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297133   (606809) от 20.04.2019
-
-А.Д. Пантелеев | Ранние мученичества. Переводы, комментарии, исследования (2017) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подготовленная к изданию доцентом СПбГУ А. Д. Пантелеевым книга, призванная восполнить пробел в источниковой базе отечественных исследований по раннему христианству, представляет собой собрание дошедших до нас аутентичных агиографических текстов, рассказывающих о гонениях на христиан с сер. II до нач. IV в. и о подвигах первых христианских святых. Все сочинения предлагаются (   Читать дальше...   )Жанр: Античное христианство, агиографияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBFC4F2602DDA72812803ED257812BAADA06F1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296982   (606811) от 20.04.2019
-
-Renee Harris - I'm A Music-Machine (1978) LP [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm A Music-Machine (5:40)
-02. Little Sister (4:44)
-03. Doctor Music (6:29)
-04. I Close My Eyes (And Count To Ten) (3:55)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2A7F89D2D0A9B18759D91C8E1C6DEB9D9184CC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296840   (606813) от 20.04.2019
-
-Al Barton - Precious (1991) [FLAC|Lossless|image + .cue] <Pop-Rock ,  Soft Rock>
+Prefab Sprout - Jordan: The Comeback (2013 Blu-spec CD 2 edition) (1990) 2013, Sony Music (Epic) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606813.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Being With You
-02. White Dust
-03. Precious
-04. Carry Your Heart (duet with Kristine Pettersen)(   Читать дальше...   )Жанр: Pop-Rock ,  Soft RockПродолжительность: 00:45:20
+01. Looking for Atlantis 04:03
+02. Wild Horses 03:44
+03. Machine Gun Ibiza 03:43
+04. We Let the Stars Go 03:39(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-PopПродолжительность: 01:04:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC18FB7EE4567407D7D9274A69615F7F38C9E205
+magnet:?xt=urn:btih:2D4645C82DDCB034BAF1397016F9B521DC042F2E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297119   (606814) от 20.04.2019
+###  Публикация: 1297847   (603101) от 24.04.2019
 
-Маша Ермак - Это Не Я (2002) [FLAC|Lossless|image + .cue] <Dance, Pop>
+Kenny G - The Moment (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Smooth Jazz>
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606814.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Не Я (Нов.)
-02. Не Уходи
-03. Тебя Теряю
-04. Дорога Дальняя(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:46:38
+01. Moment (6:00)
+02. Passages (5:58)
+03. Havana (8:31)
+04. Always (5:34)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 01:03:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:02E8B8DFCB3347D51147FC7389E38AA29D9B43B4
+magnet:?xt=urn:btih:A7B645CAD97FC2F43A9C11C2B3FE9D8DAF61084D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297145   (606815) от 20.04.2019
+###  Публикация: 1297845   (603102) от 24.04.2019
 
-Mr. Lif - Don't Look Down (2016) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop, Conscious Hip-Hop>
+Журнал | Ирэн №3 (2019) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый в России журнал, посвященный французской вязаной моде, представленной уникальными разработками французских модельеров и дизайнеров, а также производителей пряжи. Каждый номер демонстрирует эксклюзивную коллекцию вязаной одежды для каждого сезона, выполненную из высококачественной элитной пряжи. Силуэты элегантны, детали точны. Все модели, публикуемые в журнале (   Читать дальше...   )Жанр: вязаниеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D960788B9793D1BB514FC489519B3CC843CCDB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297806   (603103) от 24.04.2019
+
+WinSnap 5.1.0 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606815.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603103.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pounds of Pressure (3:24)
-02. The Abyss (3:15)
-03. Everyday We Pray (3:22)
-04. Let Go (feat Selina Carrera) (3:23)(   Читать дальше...   )Производство: Mello Music Group – MMG-00084-2Жанр: Hip-Hop, Underground Hip-Hop, Conscious Hip-HopПродолжительность: 00:36:29
+WinSnap позволяет делать скриншоты экрана монитора и редактировать полученные изображения. WinSnap может захватывать скриншоты нестандартных окон, которые имеют не строго прямоугольную форму. Кроме того, программа способна автоматически исправлять некоторые недостатки в графике, накладывать тени, сохранять результаты в большинстве графических форматах.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CB6605C0FABC8F05BB77A914A9FC344B50FA046
+magnet:?xt=urn:btih:8D518E00F5CC8C1221246D41DD28D4C033BB664D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297709   (603104) от 24.04.2019
+
+Журнал | Автомир [Россия] №17 (апрель 2019) [PDF]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603104.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Автомир» — еженедельный журнал, полностью посвященный автомобилям. Основные темы издания: автоновости, тестдрайвы, концепт-кары, российские и международные выставки и автогонки, московские автосалоны и дилеры, советы экспертов по автоправу и многое другое.
+Проект ставит перед собой цель донести до читателя максимум полезной информации об автомобилях и обо всем, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E71E3FD359A42666B48630D0A8AD59DD128BACED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297829   (603105) от 24.04.2019
+
+VA - German Top 100 Single Charts 29.04.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rammstein - Deutschland 05:22
+02. Capital Bra - Rolex (feat. Summer Cem & KC Rebell ) 03:56
+03. Capital Bra - Cherry Lady 02:15
+04. Lil Nas X - Old Town Road 01:53(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8DFF051BDFA8B392B64B1CFCA4413EC2DC44DB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297268   (603106) от 24.04.2019
+
+Paul Denton - Live @ Anomaly, Rong Afterparty, Tunnel Club Birmingham, United Kingdom (2019-04-06)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. John O'Callaghan & Deirdre McLaughlin vs. Karney - Stay Nothing (John O'Callaghan Noodle)
+03. Key4050 - The Truth
+04. Marco V - Godd(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B7D9B7BD4F558E5F2E13B2A94CA06FAD036E16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297688   (603107) от 24.04.2019
+
+Akob - Gravitational Waves (2019) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsar Timing Array (07:45)
+ 02. Gravitational Waves (07:16)
+ 03. Dark Matter (08:32)
+ 04. Event Horizon (07:34)Жанр: Techno, AcidПродолжительность: 00:31:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA86B2919F14837A0FEA3E3D345DAF75233A0BC5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297849   (603108) от 24.04.2019
+
+VA - New Music Releases Week 16 (2019) [MP3|320 Kbps] <Pop, Hip Hop, RnB, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Why Don't We - Don't Change
+002. French Montana, Blueface, Lil Tjay - Slide
+003. Phangs, Smallpools - Au Revoir
+004. Blake Rose - Best Of Me(   Читать дальше...   )Жанр: Pop, Hip Hop, RnB, DanceПродолжительность: 13:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E0FB6461E2C8F59C1915604EB01498042029B70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297800   (603109) от 24.04.2019
+
+Anthem - Nucleus (2019) 2CD [WV|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603109.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Immortal Bind
+02. Black Empire
+03. Overload(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E47068C77E0562EB562E6DDB1985CD8783FFBC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297846   (603110) от 24.04.2019
+
+VA - The Official UK Top 40 Singles Chart 19.04.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Nas X - Old Town Road
+02. Lewis Capaldi - Someone You Loved
+03. Billie Eilish - bad guy
+04. Meduza, GOODBOYS - Piece Of Your Heart(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA5DF38638F73BEBB1756F05659934E50CADFBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297694   (603111) от 24.04.2019
+
+Low Kick Collective - Тот кто ищет выход (2017) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Медоед (5:44)
+02. Динго (4:14)
+03. Кубическая комета ненависти проткнутая иглой усталости (5:49)Жанр: Dark Jazz, ExperimentalПродолжительность: 00:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F4952C936D112EC1C5CBFA02661DA12FFAC31F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297848   (603112) от 24.04.2019
+
+Журнал | Цветок №8 (2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: цветоводствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE48B64BC11760FCB27C9D6DEB66E1863F4BC69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297743   (603113) от 24.04.2019
+
+Karen O - Crush Songs (2014) Limited Edition [FLAC|Lossless|tracks + .cue] <Lo-Fi, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ooo (01:29)
+02. Rapt (01:47)
+03. Visits (01:33)
+04. Beast (02:56)(   Читать дальше...   )Жанр: Lo-Fi, AcousticПродолжительность: 00:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80629C4FAE37C7AAC72BDD948DA2C16CEE15B01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297695   (603114) от 24.04.2019
+
+Low Kick Collective - II (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аскеза (4:10)
+02. Костры амбиций (5:46)
+03. Колкие нити (4:44)
+04. Дары моря иллюзий (4:26)(   Читать дальше...   )Жанр: Dark Jazz, ExperimentalПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD9E7B9560BC96BE815A5F3CC353D89E3E01A4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297264   (603115) от 24.04.2019
+
+Bryan Kearney - Live @ Main Stage, Beyond Wonderland Monterrey, Mexico (2019-04-06)[MP3|224 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Kearney - Mexican Rave (ID Remix)
+02. Key4050 - Schillachi
+03. ID - ID
+04. Key4050 - Gianfranco(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705C0C56705D3853EBF212714A923C124A37A378
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297823   (603116) от 24.04.2019
+
+VA - Miami to Ibiza (2019) [MP3|320 Kbps] <Funky, Deep Groove, Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Modena - Lover (Extended Mix)
+02. Glitch Matrix - Breeze
+03. Regie Rules - Hour Of The Morning
+04. Juli Lee - Time Warp(   Читать дальше...   )Жанр: Funky, Deep Groove, MinimalПродолжительность: 02:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA2A258B313DD92FACCC80F952F21EA9CF3A508
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231972   (603117) от 21.06.2018
+
+Тело / Replace (2017) WEB-DLRip
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молодая женщина Кира мало того, что страдает провалами в памяти, так ещё и её кожа местами быстро стареет и начинает осыпаться. Обращение в престижную клинику ничего не дает. Врач только выписывает обезболивающее и предлагает подождать результатов анализов, а болезнь тем временем прогрессирует с пугающей скоростью. Однако выясняется, что Кира может заменить собственную (   Читать дальше...   )Производство: Германия, Канада / Eberhard Müller Filmproduktion, Gerhard Lidl Film, Sparkling Pictures, Ultra 8 PicturesЖанр: Фантастика, ТриллерРежиссер: Норберт КайльАктеры: Ребекка Форсайт, Люси Арон, Барбара Крэмптон, Шон Нопп, Аднан Марал, Аньес Киёми Декер, Дж. Дэвид Хинц, Тереза Глюк, Даниэль Хольцберг, Маттиас БайерПеревод: Многоголосый закадровый, профессиональный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2339CB86E76F2C58A310916D3514211E79253D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232011   (603118) от 21.06.2018
+
+Halo Wars 2 (2017) [Ru/Multi] (1.0.1130815) Repack xatab
+
+>>След.
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доблестная команда корабля ККОН «Дух огня», десятилетиями дрейфовавшего в космосе и объявленного погибшим, по неясным причинам просыпается над комплексом Предтеч, известным как «Ковчег». В Halo Wars 2 капитану Каттеру и его экипажу предстоит встретиться лицом к лицу с главными врагамиТип издания: RepackРазработчик: 343 Industries, Creative AssemblyЖанр: 3D, StrategyЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703BB336222DAD43AE72539652A7F99F2E143A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232053   (603119) от 21.06.2018
+
+Лорин Хоштейн, Рене Мозер | Запускаем Ansible (2018) [PDF]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_603119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди множества систем управления конфигурациями Ansible обладает неоспоримыми преимуществами. Он минималистичен, не требует установки программного обеспечения на узлах, а также легок в освоении.
+
+Второе издание книги научит вас выстраивать продуктивную работу в кратчайшие сроки, будь вы разработчик, разворачивающий код в производственной среде, или системный администратор (   Читать дальше...   )Жанр: Операционные системы, виртуализация, облачные технологииФормат: PDF
+
+## Скачать торент
+```bash
+нет
 ```
 
 

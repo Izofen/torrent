@@ -1,3 +1,94 @@
+###  Публикация: 1058695   (465873) от 02.10.2016
+
+VA - Radio 538 Hitzone 79 (2016) Box Set, 2CD [FLAC|Lossless|image + .cue] <Top 40, Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известный Нидерландский лейбл Радио 538 продолжает в этом году свою серию двухдисковым сетом новинок популярной музыки. Довольно регулярно на трекере публикуются эти новинки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.CD1
+01. DJ Snake feat. Justin Bieber - Let Me Love You  (3:26)
+02. Jonas Blue feat. JP Cooper - Perfect Strangers  (3:15)
+03. Bastille - Good Grief  (3:28)(   Читать дальше...   )Жанр: Top 40, Pop, RockПродолжительность: 02:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9E3AB00C0B117ED647AA14BC97FF76EEAF5A18D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568089   (466013) от 06.08.2022
+
+Gilbert O'sullivan - Driven (2022) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, Folk Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466013.jpg" />
+</div>
+
+
+###  Подробнее
+
+Невероятно, но пятьдесят лет прошло с тех пор, как Гилберт О'Салливан праздновал шестинедельное пребывание на вершине чарта Billboard США с песней Alone Again (Naturally) — песней, которая побудила Америку начать невероятный роман с этим ирландцем, но он всё же остаётся самым британским автором-исполнителем.
+Новый альбом Гилберта Driven последовал за его знаменитым (   Читать дальше...   )01. Love Casualty
+02. Blue Anchor Bay
+03. Let Bygones Be Bygones (feat. Mick Hucknall)
+04. Body and Mind(   Читать дальше...   )Жанр: Pop, Pop Rock, Folk RockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE7F69DAA42AF3389C984ADAD8E1971FA9A8E6DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 547780   (466451) от 18.09.2012
+
+Boney M. - Original Version - Long Version - Rarities (2012) 4xCD Box Set / CD Records / [FLAC|Lossless]<Disco, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Chain Gang (Long Version) (5:41)
+02. Exodus (Maxi Version) (5:47)
+03. Gotta Go Home (Long 12'' Version) (5:07)
+04. Help! Help! (Long Version) (6:06) и т.д.01. Silly Confusion (12'' Version) (4:01)
+02. African Moon (Long Version) (6:43)
+03. I See A Boat On The River (Long 12'' Version) (6:07)
+04. I'm Alive  (Fr. Farian Corp. Long Version) (5:15)
+05. Going Back West (3:12)
+06. Hooray! Hooray! It's A Holi-Holiday (3:39)
+07. Love For Sale (4:15)
+08. Hold On! I'm Comin' (3:38)
+09. Bang Bang Lulu (3:01)
+10. Barbarella Fortuneteller (2:56)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 05:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0872B34A69D3E9F51E05A76C7507536AE1DB9622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407412   (466552) от 07.09.2020
 
 Beatrice Egli - Mini Schwiiz - mini Heimat (2020) [FLAC|Lossless|tracks + .cue] <Pop, Dance>
@@ -691,87 +782,6 @@ magnet:?xt=urn:btih:18609BCAC853C0427721CC9751A8B133914DC09C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB31E6583DAC470C6C76BD9ADBF073DB32BCB0A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320664   (468901) от 19.08.2019
-
-Наталия Гулькина и Маргарита Суханкина - Просто мираж (2005) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Просто мираж (3:42)
-02. Ночь (3:38)
-03. Я не могу без тебя (3:23)
-04. Давлю на тормоза (3:16)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C632613BC0DA6F56A01756877CFB2E8CEA5D38A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320543   (468905) от 19.08.2019
-
-Digital Emotion - 2 Albums, 4 Singles & EPs (1984-2019) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландская евродиско-группа, изначально состоявшая из Гленна Ван Дер Хоффа и Стива Гуде. Успех первых синглов и необходимость съёмки видео и сценических выступлений привели к появлению симпатичных фронтменов: Жана Франсуа Коломбо и двух девушек: Кики Де Бир и Мирны Балрак. Впрочем, судя по немногочисленным фото, они постоянно менялись.Список альбомов:
-1984 - Digital Emotion
-1985 - Outside In The Dark
-1986 - Jungle Beat(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 02:05:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563847EF027D87307125B9379C0D3724523FB208
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058290   (469194) от 01.10.2016
-
-Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Know The Drill   (03:34)
-02. Chaperone   (02:59)
-03. Infinity   (03:25)
-04. Devil Better Run   (03:21)(   Читать дальше...   )Жанр: Funk, Rhythm & Blues, SoulПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E87D873FF68259F667462364CF04138AA7E150F
 ```
 
 

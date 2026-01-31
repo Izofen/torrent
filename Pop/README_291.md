@@ -1,3 +1,84 @@
+###  Публикация: 1122278   (799212) от 04.04.2017
+
+Arpeggio - Love And Desire - The Best Of (1994) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love And Desire (8:58)
+02. Let The Music Play (12:43)
+03. Runaway (5:46)
+04. Spellbound (6:43)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC03BB1F962150FA75A7F3E6D5A9D2A066A547E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273801   (799402) от 03.01.2019
+
+Daddy Cool Kids - School's Out (2009) [MP3|320 Kbps] <Electronic, Disco, Europop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не раскрученный, из-за развода с женой, проект продюсера Бони-М, Джиллы, Милли Ванилли и др. - Фрэнка Фариана с участием его дочери Янины.01. Show Me What You've Got (3:33)
+02. School's Out (Radio Version) (3:49)
+03. Pink Lemonade (3:41)
+04. Yummy Yummy (3:55)(   Читать дальше...   )Жанр: Electronic, Disco, Europop, Euro HouseПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1BF925E91F9F3035E4D785B95EC566E886390D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273725   (799410) от 03.01.2019
+
+Sonic - Seasons (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight
+02. Missing
+03. Airplane Mode
+04. Cabin Fever(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:26:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E702E44567141C1C54460F03F05F14824F38C07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273694   (799412) от 03.01.2019
 
 VA - EDM Rave Dance 2019 (2019) [MP3|320 Kbps] <Pop, Dance, House>
@@ -608,87 +689,6 @@ magnet:?xt=urn:btih:F6F91377B92B2A0D418686AF92A7F1A676EF99D9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:767365F82EE20D612B63469F6AA08B79D266F088
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199813   (800364) от 17.01.2018
-
-Charlotte Gainsbourg - 5:55 (2007) US Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5:55 (4:52)
- 02. AF607105 (4:30)
- 03. The Operation (3:59)
- 04. Tel Que Tu Es (3:10)(   Читать дальше...   )Жанр: Indie Pop, French Pop-RockПродолжительность: 00:52:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF6C97FBEEAC1208A81D219CEC7D7625D419DC98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199540   (800366) от 17.01.2018
-
-VA - Italo Disco: The Lost Legends Vol.13 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anthony's Games  -  Hey, Hey, Girl  5:57
-02.  Italian Boys  -  Gigolo (Remix)  4:52
-03.  Joli Band  -  Paradiso  5:37
-04.  Max Coveri  -  In The Night  7:10(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D217A349935CBF0F7708F7E5B37EE131FA44735B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199533   (800404) от 17.01.2018
-
-VA - Italo Disco: The Lost Legends Vol.12 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Joe Mc Roy & The Saloon' Girls Band  -  Little Cow-Boy (Medley with Rap-On)  7:46
-02.  Sugar Shake  -  Moonlight  5:35
-03.  Marzio Dance  -  You Can Do It  4:54
-04.  Riccardo Cioni  -  Arizona  6:48(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF230778EDD5C068FFBD14E9224AF094A5A7DD3
 ```
 
 

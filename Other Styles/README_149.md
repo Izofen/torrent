@@ -1,3 +1,192 @@
+###  Публикация: 1111938   (845052) от 07.03.2017
+
+Bruce Becvar - Floating Home (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Heart [00:04:17]
+02. Unspeakable Love [00:06:44]
+03. Sunshine Mind [00:04:36]
+04. March 5th [00:06:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D6DDEDA18C01900885184C9B0CB1EDDB240A3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003044   (845099) от 02.04.2016
+
+Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [FLAC|Lossless|tracks + .cue] <Score / Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malaguena - Brian Setzer
+02. Traeme Paz - Patricia Vonne
+03. Eye Patch - Alex Ruiz
+04. Yo Te Quiero - Marcos Loya(   Читать дальше...   )Жанр: Score / SoundtrackПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73BBFE8A32773A4A937F8EB80D6871FB8C7ADE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110827   (846311) от 06.03.2017
+
+The Legend of Zelda 30th Anniversary Concert (2017) 2CD+DVD, Limited Edition [FLAC|Lossless|image + .cue] <Soundtrack, Symphonic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846311.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD#01
+01. Hyrule Castle (2:29)
+02. Zelda's Theme (3:02)
+03. The Wind Waker Medley (11:23)(   Читать дальше...   )Тип издания: Commercial, Limited EditionПроизводство: NIPPON COLUMBIAЖанр: SymphonicПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9849B0855787EFF2D79A2ACF9F063478B734BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002407   (846509) от 01.04.2016
+
+VA - Одинокий пастух (2001) 2 альбома, Compilation [FLAC|Lossless|tracks] <Pop, Classic, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.Clayderman - Gemini    03:10
+02. Caravelli ORC. - Flash bach    03:09
+03. G.Zamfir - Ave maria    04:43
+04. Space - Just blue    04:30(   Читать дальше...   )Жанр: Pop, Classic, Instrumental |Продолжительность: 02:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80328B946D38F40F7173F589EA1ECE762BEB695D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378596   (846537) от 25.04.2020
+
+Atom Music Audio - Heroes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. United [02:53]
+02. Fly Like a Bird [02:58]
+03. Just a Man in a Suit [02:46]
+04. Not a Hero [02:52](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32EB5F31833D7490478FC89A5ECE28C8CA099E8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378594   (846538) от 25.04.2020
+
+Atom Music Audio - Dystopia (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Dimension [02:31]
+02. Dystopia [02:16]
+03. Portal [02:41]
+04. Blackhole [03:28](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:624976A3B62CA56E191E9FF75BA768AD3BA8C110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111911   (846572) от 06.03.2017
+
+VA - Somewhere My Love: Romantic Guitar  (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chet Atkins - Somewhere My Love (Lara's Theme From Dr, Zivago) (2:39)
+02. Laurindo Almeida - The Girl From Ipanema (2:30)
+03. Gregg Galbraith - Mack the Knife (Moritat) (2:23)
+04. Francis Goya - You Belong to My Heart (Solamente Una Vez) (3:07)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C9DA02FA91367EA57CA98109DC5772C1C569BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378593   (846599) от 25.04.2020
 
 Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -509,216 +698,6 @@ Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Tradi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110628   (852095) от 03.03.2017
-
-Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, World, Ambient, Hang>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Step (4:39)
-02. Between Oil And Water (4:55)
-03. Freeze (3:52)
-04. Pointillism (6:00)(   Читать дальше...   )Жанр: New Age, World, Ambient, HangПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000891   (852107) от 29.03.2016
-
-John Hermanson - Music for Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Work Is Done
-02. Now the Day Is Over
-03. Dream Dance
-04. Goldberg Sleeps(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8BF03158A5037520E18CE51D23A2AC4DB8C0CE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769549   (852574) от 24.03.2014
-
-Johnny Cash - Out Among The Stars (2014) [FLAC|Lossless]<Country, Outlaw Country, Honky Tonk, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Out Among The Stars (03:02)
-02. Baby Ride Easy (with June Carter Cash) (02:43)
-03. She Used To Love Me A Lot (03:10)
-04. After All (02:49)
-05. I'm Movin' On (with Waylon Jennings) (03:09)
-06. If I Told You Who It Was (03:05)
-07. Call Your Mother (03:17)
-08. I Drove Her Out Of My Mind (03:00)
-09. Tennessee (03:27)
-10. Rock And Roll Shoes (02:41)(   Читать дальше...   )Жанр: Country, Outlaw Country, Honky Tonk, FolkПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C240AD84AD65943E078E676AEB0E577763AF4CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580531   (852601) от 25.04.2013
-
-Tierra Negra - 10 альбомов (1997-2012) [MP3|128-320 кб/с]<New flamenco>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(3:59) 01. Alligator Alley
-(4:22) 02. Luna Blue
-(3:21) 03. Jet`aime
-(3:13) 04. La Parranda
-(2:53) 05. Fly Like an Eagle
-(3:18) 06. Sintia
-(3:52) 07. Prophecy
-(3:11) 08. Bac Du Sauvage
-(2:53) 09. Rue Des Flaments
-(3:11) 10. Bamboleo(   Читать дальше...   )Жанр: New flamencoПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A10206DB2AD8F569D55CFFE6D487D77018DFCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 769219   (852698) от 24.03.2014
-
-Jean Michel Jarre - Rarities (1994) [APE|Lossless]<Electronic, Instrumental, Experimental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Deserted Palace
-01. Poltergeist Party (2:13)
-02. Music Box Concerto (2:43)
-03. Rain Forest Rap Session (1:43)
-04. A Love Theme For Gargoyles (1:13)
-05. Bridge of Promises (3:17)
-06. Exasperated Frog (0:51)
-07. Take Me To Your Leader (1:56)
-08. Deserted Palace (2:24)
-09. Pogo Rock (1:05)(   Читать дальше...   )Жанр: Electronic, Instrumental, ExperimentalПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065C78A442595C2F8FDD8C7A23DD729F37A629F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 191437   (852790) от 11.04.2010
-
-100% ENIGMATIC Hits Vol. 1-12  (2001-2003) [MP3|320 kbps]<NewAge,Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: NewAge,EnigmaticПродолжительность: 15:26:34
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647760   (852817) от 25.04.2013
-
-Harry Belafonte - Calypso (1956) /2013 SACD/ [FLAC|Lossless]<Latin, Pop, Reggae, Calypso>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Day O [03:08]
-02. I Do Adore Her [02:52]
-03. Jamaica Farewell [03:06]
-04. Will His Love Be Like His Rum? [02:36]
-05. Dolly Dawn [03:17]
-06. Star O [02:06]
-07. The Jack-Ass Song [02:56]
-08. Hosanna [02:40]
-09. Come Back Liza [03:09]
-10. Brown Skin Girl [02:49](   Читать дальше...   )Жанр: Latin, Pop, Reggae, CalypsoПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 

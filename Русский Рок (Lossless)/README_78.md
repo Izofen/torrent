@@ -1,3 +1,30 @@
+###  Публикация: 1617441   (1035051) от 07.03.2023
+
+Jes.Team - Нет никаких нас (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волна [00:03:54]
+02. Кого больше нет [00:04:25]
+03. Клетка [00:03:31]
+04. Стая [00:03:32](   Читать дальше...   )Жанр: Rapcore, Nu-MetalПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D90D06795904FF1E7594774A3D8508EB79E1501
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443748   (1035097) от 30.01.2021
 
 Кино - Черный Альбом (1990) 3CD, Limited Edition, 2021, Maschina Records [FLAC|Lossless|image + .cue] <Rock>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:4F7CB71EB67F95D4EC043B76FB966C7DACA5F64E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA0BFE1672B749BA9BF1F677094CB8F09CDBEE8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613567   (1039126) от 20.02.2023
-
-Абвиотура - Тридуги (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:25]
-02. Хорошая [00:03:43]
-03. Дуги [00:05:37]
-04. Тает лёд [00:03:49](   Читать дальше...   )Жанр: Rock, ethno-coreПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98918688800680191A0F9B4ED410CA128A824F9
 ```
 
 

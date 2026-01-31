@@ -1,3 +1,325 @@
+###  Публикация: 1142874   (637068) от 17.06.2017
+
+Dragonforce - Reaching into Infinity (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reaching Into Infinity
+02. Ashes Of The Dawn
+03. Judgement Day
+04. Astral Empire(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776274B15365D6509F4C8D0A48E9D94A892C614B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143215   (637072) от 17.06.2017
+
+Карелия. Камерный оркестр - Буйные ветры (2016) [MP3|320 Kbps] <Folk Rock, Art Pop, Chamber Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Все танцуют
+02. То ли быль
+03. Кали
+04. Жаркое солнце(   Читать дальше...   )Жанр: Folk Rock, Art Pop, Chamber Pop, Indie FolkПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A7DACBFCC300756432B48AEC1BE1736EA948D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542613   (637105) от 07.04.2022
+
+Joe Satriani - The Elephants Of Mars (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637105.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sahara
+2. The Elephants of Mars
+3. Faceless
+4. Blue Foot Groovy(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED1A57AC2149DF1025EA3F3F5519EF5A90053B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541707   (637111) от 07.04.2022
+
+Sweet - Hits (2022) Special Edition, Remastered [MP3|320 Kbps] <Glam Rock, Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blockbuster (Remastered) [00:03:19]
+02. Ballroom Blitz (Remastered) [00:03:46]
+03. Fox On The Run (Remastered) [00:03:30]
+04. Little Willy (Remastered) [00:03:11](   Читать дальше...   )Жанр: Glam Rock, Classic Rock, Pop RockПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E3005BC56CBB652C043EDF51EB2C06EDD2ADB49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541454   (637250) от 07.04.2022
+
+Caught in Action - Devil's Tango (2022) [MP3|320 Kbps] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New York City (03:52)
+02. Miracle (04:33)
+03. Devil's Tango (04:05)
+04. Simple Man (04:02)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C0D20A3F0D7BEAFEDB7B434F9E91BEC5990A02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542570   (637258) от 07.04.2022
+
+The Ring - Imaginator (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake Plastic Woman
+02. Slap
+03. Nunirtha's Gov
+04. Where Would It Be ?(   Читать дальше...   )Жанр: Psychedelic Rock, Hard Rock, Stoner RockПродолжительность: 01:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6CD3D6509F776DE12E936648367E7FAE634698
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541414   (637263) от 07.04.2022
+
+PanzerkreuzeR - October (2022) [MP3|320 Kbps] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreadnought
+02. Isu-152 (Beast Killer)
+03. Immortal Victims
+04. The Battle Is Going Again(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F10C1433C3368FEA542A9489DDB3AF892BB5BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906614   (637297) от 12.06.2015
+
+Muse - Drones (2015) [FLAC 2.0 24/96|tracks (WEB-DL)] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Inside 04:23
+02.Жанр: Rock, Alternative RockПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3F02CE321A188BC2CFDB10526F51DC819A66E05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143093   (637329) от 17.06.2017
+
+Ayers Rock - Big Red Rock (1974) Remastered, 2016, Aztec Music [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Montego  (02:51) 
+02. Talkin' 'Bout You  (03:58) 
+03. Goin' Home  (03:03) 
+04. Crazy Boys - The Hamburger Song  (09:10) (   Читать дальше...   )Жанр: Jazz-Rock, Prog RockПродолжительность: 01:11:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A715C6D1003BF08704832CAF4850F2BE395EF6AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143063   (637333) от 17.06.2017
+
+Black Sun - The Puppeteer (2017) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Robert the Doll (5:20)
+2. Wasted Love (4:06)
+3. Let Me Be (feat. Netta Dahlberg) (4:26)
+4. The Puppeteer (4:00)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE68C9741B61449D62E093C424FDFB611227FAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228387   (637382) от 31.05.2018
+
+Circle of Dust - alt_Machines (2018) [MP3|320 Kbps] <Electronic, Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Humanarchy (Blue Stahli Remix)
+02. Neurachem (Voicians Remix)
+03. Contagion (Sebastian Komor Remix)
+04. Hive Mind (The Anix Remix)(   Читать дальше...   )Жанр: Electronic, Industrial MetalПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6778AD1DA2E7AA00C402505B9862B83C6579CC7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541378   (637386) от 07.04.2022
+
+Gggolddd - This Shame Should Not Be Mine (2022) [MP3|320 Kbps] <Gothic Rock, Trip-Hop, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish I Was a Wild Thing with a Simple Heart (2:43)
+02. Strawberry Supper (3:06)
+03. Like Magic (3:41)
+04. Spring (3:39)(   Читать дальше...   )Жанр: Post-Punk, Gothic Rock, Post-Metal, Trip-Hop, Female VocalПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220C94F6178867FAD7CDF4B16DC14856FCF17EB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541433   (637389) от 07.04.2022
 
 The Basement Tribe - Path to the Temple (2022) [MP3|320 Kbps] <Stoner, Hard Rock>
@@ -384,330 +706,6 @@ Thunderstone - Dirt Metal (2009) [MP3|320 кб/с]<Heavy Metal / Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DD34DC943097373601E46071BD69109AFDFDAB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907737   (637623) от 12.06.2015
-
-Accept - Russian Roulette (1986) [FLAC|image + .cue]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.V. War (03:27)
-02. Monsterman (03:35)
-03. Russian Roulette (05:22)
-04. It's Hard To Find A Way (04:19)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D7DAD3D5EF9A9948AA6D6EC5DCA4196B7F2D1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907752   (637626) от 12.06.2015
-
-Billy Joel - The Hits (2010) Remastered [MP3|320 кб/с]<Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Loves You Now
-02. Piano Man
-03. The Entertainer
-04. New York State of Mind(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B166F8886979B4983561A0DA3B78F7648F3FFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293179   (637659) от 03.04.2019
-
-Scheuber - Shades (2019) [MP3|320 Kbps] <Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Helium
-02. Smoker
-03. Spirit
-04. Coloured Rays(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7481B762DC8BD6B782588134FCEAF6060945DE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033336   (637937) от 11.07.2016
-
-Herman Rarebell & Friends - Herman's Scorpions Songs (2014) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Of You Like A Hurricane (Bobby Kimball of TOTO)    04:09
-02. Passion Rules The Game (John Parr)    03:48
-03. Loving You Sunday Morning (Michael Voss of MAD MAX)    03:34
-04. Is There Anybody There? (Alex Ligertwood of SANTANA)    04:06(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEDABB47CF55A9CBC0018C70DD09BE382AAFBDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907442   (637983) от 12.06.2015
-
-Mark Slaughter - Reflections in a Rear View Mirror (2015) [FLAC|image+.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Away I go
-02. Never Givin' Up
-03. Miss Elainious
-04. Carry Me Back Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E1749FAEC225793423CEFE48A6F0A9A9061C6DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907446   (638082) от 12.06.2015
-
-Mark Slaughter - Reflections in a Rear View Mirror (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Away I go
-02. Never Givin' Up
-03. Miss Elainious
-04. Carry Me Back Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075D3AFB5AE19087E2944CCF8673F642C8EA7D69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907454   (638085) от 12.06.2015
-
-Forest - 2 альбома (1969-1970) Remastered /2015, Warner Music Japan/ [FLAC|image+.cue]<Progressive Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hawk The Hawker 05:47
-02. Bluebell Dance 03:10
-03. The Midnight Hanging Of A Runaway Serf 05:03
-04. To Julie 03:35(   Читать дальше...   )Жанр: Progressive Folk RockПродолжительность: 01:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6F018CFFBB592D0582223C7BDB9DB5B8B0B75C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907438   (638086) от 12.06.2015
-
-John Du Cann - The Many Sides Of 1967-1980 (2012) Remastered /2012, Angel Air/ [FLAC|image+.cue]<Psychedelic Rock, Progressive Rock, Mod>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic In The Air (The Attack 1967) 03:38
-02. Mr. Pinnodmy's Dilemma (The Attack 1967) 04:27
-03. Too Old (Andromeda 1969) 04:59
-04. Return To Sanity (3 parts) 08:20(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, ModПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB86A2E1FAA0446511808EA23D1AAF5616BE8F87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033657   (638128) от 11.07.2016
-
-VA - Охота 66 (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник №66 посвящается выпускникам школ 2016 года, в честь которых группа Лунный Пёс представила заглавную песню, а Фёдор Михайлов из Группировки Беловежская Пуща нарисовал обложку. Хочется пожелать юному поколению удачи в выборе дальнейшего пути, новых свершений и гениальных открытий!01. Лунный Пёс - Алые паруса
-02. Angel DaRock - Я выбираю любовь
-03. RADIO.6 - Город
-04. Бильбао - Испания(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F891502EE1429B798C04B944CD24DA9003F65351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907274   (638188) от 12.06.2015
-
-Mother's Cake - Love The Filth (2015) [MP3|320 кб/с]<Progressive / Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638188.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prelude
-2. Love The Filth
-3. Ecstasy
-4. Void(   Читать дальше...   )Жанр: Progressive / Psychedelic RockПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72519FF8DF4FDEF22B1736166BD2CD17E25AA75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907381   (638198) от 12.06.2015
-
-Fleece - Scavenger (2015) [MP3|320 кб/с]<Psychedelic Rock, Progressive Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638198.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Aliens 04:14
-2.Wake and Bake 03:10
-3.Demanding 05:10
-4.DLXVII (Interlude) 01:32(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive Rock, AlternativeПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27DE6008A39E6FEB70E0A76A752D3009A7966D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033530   (638235) от 11.07.2016
-
-Ralf Gyllenhammar - Bed On Fire (2013) [MP3|320 Kbps] <Hard Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bed on Fire    03:02
-02.  Im Frustrated    04:00
-03.  Morning Star    04:02
-04.  6.36    05:35(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2510A8ACF58A197031A2DDE06CCBBC0015E779
 ```
 
 

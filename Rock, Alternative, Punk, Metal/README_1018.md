@@ -1,3 +1,327 @@
+###  Публикация: 1206925   (781210) от 16.02.2018
+
+ДДТ (DDT) - Прозрачный. Концерт в Минске (2017) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В очереди за правдой
+02. Реальность
+03. Солнечный свет
+04. Туман(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB7D6C2D776333B37BF451C98D9852B114DD112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206828   (781250) от 16.02.2018
+
+AC/DC - Flick Of The Switch (1983) Reissue, 1988, Atlantic [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781250.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rising Power (3:43)
+02. This House Is On Fire (3:23)
+03. Flick Of The Switch (3:13)
+04. Nervous Shakedown (4:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C2517C8F2ABBB8B8D72537A2DFF564463B352D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206868   (781287) от 16.02.2018
+
+U2 - The Unforgettable Fire (1984) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sort Of Homecoming (05:28)
+02. Pride (03:49)
+03. Wire (04:19)
+04. The Unforgettable Fire (04:56)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63439F7DF627AFC2B61E026B10136AA3A41D8AD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206935   (781308) от 16.02.2018
+
+Tonight Alive - Underworld (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Book Of Love (03:09)
+02. Temple (03:29)
+03. Disappear (feat. Lynn Gunn) (03:42)
+04. The Other (03:53)(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D61BA9F6FC96695E45D9B73A1C3DEBB3284F445
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207034   (781314) от 16.02.2018
+
+Abney Park (Эбни Парк) - The Circus At The End Of The World (2013) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Circus At The End Of The World 3:44
+02. Blowing Off Steam 3:53
+03. The Anthropophagists' Club 3:38
+04. Follow Me If You Want To Live 3:23(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A723EB1EC417FF7705462E629AE7ADEB0FE54454
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206959   (781318) от 16.02.2018
+
+Abney Park (Эбни Парк) - The Death Of Tragedy (2005) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Stigmata Martyr 5:05
+02. The Wrong Side 3:31
+03. Dear Ophelia 4:51
+04. Witch Cult 0:25(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA49C1DD22F6AFC12A5F72E77C50306F05E9550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207028   (781325) от 16.02.2018
+
+White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781325.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hansa (Cygnus)
+2. Patent Leather
+3. Slave
+4. Wait Till Tomorrow(   Читать дальше...   )Жанр: Prog Rock, Hard RockПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206964   (781329) от 16.02.2018
+
+Abney Park (Эбни Парк) - The End Of Days (2010) Not On Label [MP3|320 Kbps] <Industrial, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The End Of Days 3:25
+02. Neobedouin 3:41
+03. The Wrath Of Fate 3:05
+04. I've Been Wrong Before 2:55(   Читать дальше...   )Жанр: Industrial, FolkПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA4A30173E46C8E780A7C340E64D1C290F8350F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206972   (781331) от 16.02.2018
+
+Abney Park (Эбни Парк) - Ancient World (2012) Not On Label [MP3|320 Kbps] <Rock, Folk, World&Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781331.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Steampunk Revolution 3:17
+02. Scupper Shanty 2:56
+03. The Story That Never Starts 4:08
+04. Ancient World 4:30(   Читать дальше...   )Жанр: Rock, Folk, World&CountryПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74835CCF40CD43160FC2E80918F448E2F954BA5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206956   (781336) от 16.02.2018
+
+Abney Park (Эбни Парк) - Taxidermy (2005) Not On Label [MP3|320 Kbps] <Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. The Wake (2005 Mix) 5:33
+02. New Black Day 4:50
+03. The Change Cage (2005 Mix) 4:00
+04. White Wedding 3:48(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEE1CEC50A241061B1054BA81871971E78A0D70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391279   (781392) от 19.06.2020
+
+VA - Top Musicians Play Pink Floyd (2009) [MP3|320 Kbps] <Progressive rock, Art rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Wetton, Steve Lukather, Tommy Shaw, Alan White, Gary Green, Geoff Downes, Billy Sherwood - Hey You [04:43]
+02. Chris Squire, Alan White, Billy Sherwood, Jordan Berliant - Comfortably Numb [06:51]
+03. Tommy Shaw, Edgar Winter, Richie Kotzen, Tony Levin, Mike Baird - Money [06:06]
+04. Derek Sherinian, Mike Porcaro, Gregg Bissonette, Doug Pinnick, Gary Hoey (   Читать дальше...   )Жанр: Progressive rock, Art rock, RockПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6DC32806E17090ED73ABDFC3A859C20D1F6D54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391203   (781413) от 19.06.2020
+
+СЛОТ - Ин да хаос. Re-play (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781413.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2 войны (2020 Re-play)
+2. Хаос (2020 Re-play)
+3. Кукла вуду (2020 Re-play)
+4. Если (2020 Re-Play)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AAA9AEB3724496870244D6AEC3BB6EE7BC70739
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391155   (781421) от 19.06.2020
 
 Bob Dylan - Rough and Rowdy Ways (2020) [FLAC|Lossless|tracks] <Rock, Folk>
@@ -383,330 +707,6 @@ Metallica - Best Ballads (1999) [MP3|192 kbps]<Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206477   (782094) от 14.02.2018
-
-Операция Пластилин - Голодным и злым (2018) [MP3|320 Kbps] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Попроще и покороче
-02. Все мечты наши сбудутся этим летом
-03. Сорваться с поводка
-04. Джесси и Джейн(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B8B562BFB6550772FCECA77FB9CFEE8BC7F93E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206233   (782114) от 14.02.2018
-
-No-One's Project - Warning (2016) [MP3|320 Kbps] <Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782114.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Unify Express
-2. Invasor Ballad (The Fallen Mask)
-3. You Are in Teatro
-4. Fly Under the Moon When Midnight Rises(   Читать дальше...   )Жанр: Rock, Modern RockПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FA21E16B9F6F7A225977908DBB61BEF4B0D398
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206398   (782121) от 14.02.2018
-
-McQueen Street - McQueen Street (1991) 1992, SBK Records [MP3|320 Kbps] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782121.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. When I'm In The Mood
-2. Woman In Love
-3. Time
-4. Money(   Читать дальше...   )Жанр: Hard Rock, Glam
-Страна: USAПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDB6E106AF01883E746891E3494BF17673403FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206390   (782124) от 14.02.2018
-
-Krüger - Врага бей в рога (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чёрный флаг (3:08)
- 02. Великий Джордано (6:05)
- 03. Russian Rock Brothers (4:59)
- 04. Один в поле воин (2:45)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206598   (782143) от 14.02.2018
-
-Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying Blues
-02. Angels
-03. I Wanted You
-04. Hello, I Thought You Were Dead(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EC4E4B682329DC9C374597229570B9EC415638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390829   (782225) от 17.06.2020
-
-ЧайФ - 35 лет. Полёт нормальный (2020) 1CD+1UsbFlash [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782225.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Чайф» в преддверии масштабного концертного тура выпустила юбилейный сборник. Уникальное подарочное издание можно приобрести только на концертах, посвященных 35-летию коллектива. Между тем, праздничный тур уже стартовал и не за горами московское выступление.
-
-Юбилейный сборник группы «Чайф» получил название «35 лет. Полет нормальный». Издание включает в себя (   Читать дальше...   )Жанр: RockПродолжительность: 02:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A163B5C6E699DD9F67A305D9C456D21D05C13F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390735   (782239) от 17.06.2020
-
-Janis Joplin - Janis (1962-1970) 3CD Boxset, 1993, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дженис Лин Джоплин (англ. Janis Lyn Joplin; 19 января 1943, Порт-Артур, Техас, США — 4 октября 1970, Лос-Анджелес, Калифорния, США) — американская рок-певица, выступавшая сначала в составе Big Brother and the Holding Company, затем в Kozmic Blues Band и Full Tilt Boogie Band. Джоплин, выпустившая лишь четыре студийных альбома (один из которых — посмертный релиз), (   Читать дальше...   )01. Me And Bobby McGee (4:49)
-02. One Night Stand (3:11)
-03. Tell Mama (5:48)
-04. Try (Just A Little Bit Harder) (8:16)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:56:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEDE1024EBD388221D1435F5E487A2F9BF622AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390840   (782249) от 17.06.2020
-
-David Bowie - Hunky Dory (1971) Remastered, 1990, EMI [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changes (3:38)
-02. Oh! You Pretty Things (3:12)
-03. Eight Line Poem (2:56)
-04. Life On Mars? (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:112AC54ED5053597DA7662E50EC6473D88A1233C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390867   (782265) от 17.06.2020
-
-Quicksilver Messenger Service - Happy Trails (1969) Remastered, 1992, BGO Records [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Do You Love Suite, Who Do You Love (Part 1) (3:33)
-02. When You Love (5:15)
-03. Where You Love (6:07)
-04. How You Love (2:46)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Classic RockПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA0EF7BE8440966E68E307C7DC22B3331700121
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206413   (782521) от 13.02.2018
-
-Royal Hunt - Cast In Stone (2018) [MP3|320 Kbps] <Melodic Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fistful Of Misery
-02. The Last Soul Alive
-03. Sacrifice
-04. The Wishing Well(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF5EAB4628E9038B65AE050B116A54E828F12B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390666   (782689) от 16.06.2020
-
-Краснознамённая дивизия имени моей бабушки - Катакомба (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Прогулка
-2. Парные танцы
-3. Русский андеграунд
-4. Пространство между(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79BE5A3B148ACE23C9DC3591084DD41F0952897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390691   (782696) от 16.06.2020
-
-Crosby, Stills & Nash - Crosby, Stills & Nash (1969) Limited Edition 2011 [FLAC|Lossless|tracks + .cue] <Classic Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suite: Judy Blue Eyes (7:25)
-02. Marrakesh Express (2:38)
-03. Guinnevere (4:39)
-04. You Don't Have To Cry (2:44)(   Читать дальше...   )Жанр: Classic Rock, Folk RockПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C2B8850AF879664766B18C254C2304EBB5F087
 ```
 
 

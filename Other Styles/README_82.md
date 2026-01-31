@@ -1,3 +1,192 @@
+###  Публикация: 1314716   (517031) от 16.07.2019
+
+Wychazel - White Wolf Spirit 3 (2019) [MP3|320 Kbps] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517031.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Shaman's Dream (8:18)
+2.Running Barefoot (7:58)
+3.White Wolf Vision Quest (12:32)
+4.The Song of the Wind (8:20)(   Читать дальше...   )Жанр: New ageПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F98E6DEEDFCEFED012DF431310140F59598E9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314389   (517971) от 15.07.2019
+
+VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дарья Антонюк - Круг жизни (04:02)
+02. Hans Zimmer - Life's Not Fair (01:44)
+03. Hans Zimmer - Rafiki's Fireflies (01:53)
+04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CCD54BE20175793046177C97202302C0D20EDB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314390   (518071) от 15.07.2019
+
+VA, Hans Zimmer - The Lion King / Король Лев (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дарья Антонюк - Круг жизни (04:02)
+02. Hans Zimmer - Life's Not Fair (01:44)
+03. Hans Zimmer - Rafiki's Fireflies (01:53)
+04. Давид Хиникадзе, Алиса Хилько, Илья Бледный - О, скорей бы мне стать королем (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1F1A650AECDCA185AD1AEFFC6E98F0A800E40A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241204   (518122) от 19.08.2018
+
+VA - 70's Soul: Classic Singles (2018) [MP3|320 Kbps] <Soul, Disco, Philly Soul, Rhythm and Blues, Funk>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben E. King - Supernatural Thing
+02. Donny Hathaway - The Ghetto
+03. Aretha Franklin - Im In Love
+04. Wilson Pickett - Engine Number 9(   Читать дальше...   )Жанр: Soul, Disco, Philly Soul, Rhythm and Blues, FunkПродолжительность: 01:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EEBDB44C38333EDA6BCFF59C435DC72594A4D70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314388   (518170) от 15.07.2019
+
+VA, Hans Zimmer - The Lion King / Король Лев (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lindiwe Mkhize & Lebo M. - Circle Of Life/Nants' Ingonyama (04:02)
+02. Hans Zimmer - Life's Not Fair (01:44)
+03. Hans Zimmer - Rafiki's Fireflies (01:53)
+04. JD McCrary & Shahadi Wright Joseph & John Oliver - I Just Can't Wait To Be King (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230318E1CD56D768B4E7C5B3DC185AB31EFEF381
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241205   (518215) от 19.08.2018
+
+VA - Absolute 60's (2018) [MP3|320 Kbps] <Blue-Eyed Soul, Rhythm and Blues, Schlager, Europop, Folk, Country>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Animals - The House of the Rising Sun
+02. Frankie Valli - Can't Take My Eyes Off You
+03. Hep Stars - Sunny Girl
+04. Ben E. King - Stand By Me(   Читать дальше...   )Жанр: Blue-Eyed Soul, Rhythm and Blues, Schlager, Europop, Folk, CountryПродолжительность: 01:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F7FF4FE7DCC7597C6E6F56ADBBDE41A52879181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241485   (518410) от 19.08.2018
+
+Lisa Mitts - Heart Song (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abide in My Love
+02. Divine Breath
+03. Falling into Winter
+04. Heart Song(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92065969537487A70D85CA70831DE8C6EFEF81D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534897   (518695) от 14.08.2012
 
 Wayra Nan - Music Zum Traumen (2012) [MP3|320 кб/с]<Instrumental>
@@ -509,195 +698,6 @@ Alex Williams - Better Than Myself (2017) [MP3|320 Kbps] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD301D8DCA75CC9C2FB2BBAD0CE5D230C092C4D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370570   (525281) от 02.08.2011
-
-VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525281.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hava Nagila
-002. Israel
-003. Lamce Ram Ciam
-004. Ba Aretz(   Читать дальше...   )Жанр: FolkПродолжительность: 06:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309D99C633404F84F7137F448DEF7C6D8431340F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157274   (525466) от 11.08.2017
-
-Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aesir (Ethnic Version) [04:49]
-02. Aesir (Orchestra) [04:50]
-03. Aesir (Instrumental) [04:51]
-04. Archangel (Instrumental) [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAACC363C457698011363A940A3CCDFD1CCA143D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157258   (525820) от 10.08.2017
-
-Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbps] <Folk Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525820.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shadow of the Moon
-2. Spirit of the Sea
-3. Renaissance Faire
-4. Play Minstrel Play(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9CFEB082C5E613C3791FD9B5C521EFC49D1CCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053009   (525966) от 17.09.2016
-
-Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight From The City (06:31)
-02. A Song For Europa (02:34)
-03. The Drowned World (02:21)
-04. A Deal With Chaos (02:06)(   Читать дальше...   )Жанр: New Age, Modern ClassicalПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C97E5FBD8B811E74C8BC32310BAE53F6E05E4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053229   (526077) от 17.09.2016
-
-Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America the Beautiful [00:02:45]
-02. Battle Hymn of the Republic [00:02:22]
-03. When Johnny Comes Marching Home [00:01:59]
-04. My Country 'Tis of Thee [00:02:11](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954553CF6FF7A11247668C604B5D445B2AD92F47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053374   (526079) от 17.09.2016
-
-David Hollandsworth - Discovery (2015) [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discovery (03:20)
-02. Far as the Eye Can See (03:02)
-03. A Matter of Time (01:42)
-04. Blue Atmosphere (03:26)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA4AA53D568EAAECA6C3B6AE373A0CC6C71B822
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156770   (526403) от 09.08.2017
-
-VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Romantic Strings and Orchestra with Don Lusher, Trombone - (I Love You) For Sentimental Reasons (5:09)
-02. Richard Alden, His Piano and Orchestra - Skylark (3:16)
-03. Peter Knight and His Orchestra - Let's Fall In Love (2:48)
-04. Acker Bilk, His Clarinet and Orchestra - Stranger On The Shore (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CEF36D17E61E90A596B0322167A80882761716F
 ```
 
 

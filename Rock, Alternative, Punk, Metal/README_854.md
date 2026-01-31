@@ -1,3 +1,324 @@
+###  Публикация: 1232596   (598040) от 25.06.2018
+
+Вадим Самойлов - Вот она мечта (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598040.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вот она мечтаЖанр: RockПродолжительность: 00:04:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E24E587330D226D306436E90FFDC2274CFF443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039057   (598047) от 31.07.2016
+
+Heavy Bones - Heavy Bones (1992) [APE|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hand That Feeds    04:05
+02. 4:AM T.M.    04:49
+03. Turn It On    04:58
+04. Anna    04:46(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D3CDEFC341B689E60F042DB65B59655892FFCD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038904   (598066) от 31.07.2016
+
+The Great Kat - Rossini's Rape (2000) EP [APE|Lossless|image + .cue] <Thrash Metal, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rossini's "William Tell Overture" for Symphony Orchestra & Band 01:53
+2. Sodomize 01:40
+3. Castration 01:12
+4. Bazzini's "The Road of the Goblins" for Violin, Piano & Band 01:35Жанр: Thrash Metal, ShredПродолжительность: 0:06:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1BE8E14493AD6E62AB41A83281E61B18F98188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038991   (598068) от 31.07.2016
+
+Mammoth - XXXL (1997) [APE|Lossless|image + .cue] <Hard Rock, Heavy Metal, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Mammoth On The M1    02:38
+02. Fatman    04:10
+03. Dressed To Kill    03:03
+04. All The Days    03:28(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Classic RockПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93295412859A70DCAE3043698D7FB7A480A8A05F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039016   (598070) от 31.07.2016
+
+Kaada and Patton - Bacteria Cult (2016) [FLAC|Lossless|tracks + .cue] <Experimental, Avantgarde, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Rainbow [00:03:51]
+02. Black Albino [00:04:56]
+03. Peste Bubónica [00:04:09]
+04. Papillon [00:03:50](   Читать дальше...   )Жанр: Experimental, Avantgarde, Alternative RockПродолжительность: 0:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4125E3EA502368531F73FD066D267FFDCC07C100
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038889   (598073) от 31.07.2016
+
+Places of Power - Now Is The Hour (2009) [APE|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598073.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In Your Wildest Dream
+2. Make Me Believe
+3. Desires of Our Hearts
+4. One Day(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 0:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2454BC6CE5EB0899219DD23EB0831D71AA13B014
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299483   (598120) от 02.05.2019
+
+Pendulum Of Fortune - Return To Eden (2019) [FLAC|lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond In The Rough (04:13)
+02. We Stand For Rock n Roll (03:09)
+03. Lucky Man (04:27)
+04. Skin And Bones (03:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98C5BAE5A3DEC53B518E2F6B58C48ADE836C151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299716   (598122) от 02.05.2019
+
+ПГ "Дагон" - Некрономикон (2019) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Величество страх
+2. Обычный демон
+3. Некрономикон
+4. Ведьма(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFDDCA373F7D12478F9A37A0637B17A0D84DCCC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 914629   (598175) от 02.07.2015
+
+Chaos Magic (Timo Tolkki & Caterina) - Chaos Magic (2015) [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I m Alive
+02. Dangerous Game
+03. One Drop Of Blood
+04. Seraphim(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997FACAC8D2A1AF6E6459990A5A7A917EED07A64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039160   (598180) от 31.07.2016
+
+Deicide - Deny The Cross (1992) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead But Dreaming
+02. Oblivious To Evil
+03. Satan Spawn, The Caco-Daemon
+04. Dead By Dawn(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61FCC44BF6248FD2712E2DA636AA2C2C19BDC64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039159   (598190) от 31.07.2016
+
+Aeternam - Disciples of the Unseen (2010) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ars Almadel 01:51
+02. Angel Horned 03:15
+03. Esoteric Formulae 04:20
+04. The Coronation of Seth 05:16(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB63E027DC3088BACB7C44ABA3332F5374303864
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038899   (598192) от 31.07.2016
+
+The Great Kat - Worship Me Or Die (1987) 1990 Roadracer Records [APE|Lossless|image + .cue] <Thrash Metal, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metal Messiah
+02. Kat Possessed
+03. Death To You
+04. Satan Goes To Church(   Читать дальше...   )Жанр: Thrash Metal, ShredПродолжительность: 0:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F858D3161F602A3E275D1EF099C550B55D757EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039050   (598194) от 31.07.2016
 
 Susie Ahern - Women Are Different (2004) [FLAC|Lossless|image + .cue] <Pop Rock>
@@ -371,337 +692,6 @@ Kalmah - Palo (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88FCF59A73266E200D7DD7F79E8073FA5D02ADC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232550   (598487) от 25.06.2018
-
-Diskreet - Engage the Mechanicality (2010) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Engage (Intro)
-02. Valley of the Kings
-03. Serpent's Tongue
-04. Spinal Cord Collection(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFEBA3514C175F5C74F843650A57E15D6BE8BB2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232544   (598495) от 25.06.2018
-
-Killing Gandhi - Aspirations of Failure (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus #6
-02. Let Me Tell You
-03. Dark Hours
-04. Hollow Paintings(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6111E7FD3F32DE719094EC591DE22F750D8B22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149879   (598529) от 12.07.2017
-
-Streetmark - 4 Albums (1976-1981) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Streetmark - немецкая краут-рок группа, основанная в 1968 году в Дюссельдорфе. Претерпевая множественные изменения в стиле и персонале, отказывались от серьезный контрактов. В 1975 году записали свой первый альбом - "Nordland" с вокалистом Georg Buschmann, далее сколотившим свою собственную группу Straight Shooter. Вокалист-клавишник Wolfgang Riechmann (   Читать дальше...   )Список альбомов:
-1976 - Nordland
-1977 - Dreams
-1979 - Dry(   Читать дальше...   )Жанр: Electronic, Krautrock, Prog RockПродолжительность: 02:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391DD7396E44431D43AF71F3E857BCF4AFA3FFC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914191   (598563) от 02.07.2015
-
-Truk - Truk Tracks (1971) Remastered 2008 [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Woman
-02. Got To Find A Reason
-03. Pretty Lady
-04. Winter's Coming On(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3AB5FABFE7E349C9C82DFB4A53BFDC4481184B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914293   (598572) от 02.07.2015
-
-Advent - Advent (2015) [MP3|320 кб/с]<Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598572.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Poem Of The Burning Time
-2. Drylands
-3. The Lifeless Species
-4. Blood(   Читать дальше...   )Жанр: Doom/Death MetalПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E9BD60CC9D7396DA8F1FD1B6D20B52D82A6510
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149700   (598632) от 12.07.2017
-
-Saeko - Above Heaven, Below Heaven (2004) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above Heaven, Below Heaven (01:36)
-02. Sins for the Gods (04:26)
-03. Nature of Mortality (03:45)
-04. On the Way to Eternity (06:41)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5C835319C551A7212CA6F31C117350486CF07D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356609   (598816) от 28.06.2011
-
-Marillion - Best Of Both Worlds (1997) [FLAC|Lossless]<Symphonic Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_598816.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 1982-1988
-1-01Жанр: Symphonic Rock, Classic RockПродолжительность: 02:29:11 (01:12:52+01:16:18)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039069   (599281) от 30.07.2016
-
-Tarja - The Shadow Self (2016) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Innocence
-02. Demons In You
-03. No Bitter End
-04. Love To Hate(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:325D98A474CA79FFE9D68F50B75CCCFE9A901CA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039113   (599415) от 30.07.2016
-
-Powerwolf - The Metal Mass (2016) Live [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blessed & Possessed
-02. Coleus Sanctus
-03. Amen & Attack
-04. Cardinal Sin(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8212C96E1A578DC612EC4F0CBEB982D6CCDE172E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 222678   (599516) от 30.07.2010
-
-Anders Osborne - American patchwork (2010) [MP3|256 kbps]<Electric Blues, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_599516.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. On The Road To Charlie Parker (4:15)
-2. Echoes Of My Sins (4:33)
-3. Got Your Heart (4:05)
-4. Killing Each Other (4:08)
-5. Acapulco (3:48)
-6. Darkness At The Bottom (5:58)
-7. Standing With The Angels (5:15)
-8. Love Is Taking Its Toll (5:01)
-9. Meet Me In New Mexico (3:59)
-10. Call On Me (2:58)Жанр: Electric Blues, Blues-RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039049   (599534) от 30.07.2016
-
-Para bellvm - Лесной царь (2016) [MP3|320 Kbps] <Dark Rock, Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На заре
-02. Дева любви и дева обмана
-03. Пустоцвет
-04. Счастливая улица(   Читать дальше...   )Жанр: Dark Rock, Gothic RockПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1132A6B3843B0B079A16B46C383A1354C12A5F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 449385   (599613) от 23.07.2012
-
-The 11th Hour - 2 альбома (2009 - 2012) [FLAC|Lossless]<Doom/Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_599613.jpg" />
-</div>
-
-
-###  Подробнее
-
-The 11th Hour - голандско-шведская дум\дэт-метал-группа, образованная двумя музыкантами - Роггой Йоханссоном и Эдом Варби, которых объединила общая любовь к дум-металу старой школы. Участники познакомились на форуме "Global Domination" в 2007 году и решили создать общий дум-проект. В этом же году задумка была реализована.Но на некоторое время работа над проектом была отложена, когда Эд присоединился к группе Demiurg, основателем которой является Рогги.01. We All Die Alone 07:23
-02. Rain on Me 08:24
-03. The Death of Life 07:15
-04. Tears of the Bereaved 08:45
-05. Reunion Illusion 08:07
-06. Nothing But Pain 00:07:37
-07. Bury Me 04:46Жанр: Doom/Death MetalПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-нет
 ```
 
 

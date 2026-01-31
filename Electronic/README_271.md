@@ -1,3 +1,30 @@
+###  Публикация: 1156195   (528497) от 06.08.2017
+
+VA - Despacito (Summer Breeze Beach Chillout Beats Music) (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj. Juliano BGM - Despacito (Chillout)
+02. DJ Infinity Night - Beach Picnic
+03. Dj Vibes EDM - Holidays at West Coast
+04. Dj Dimension EDM - Out of Town (Radio Song)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:21:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E51CE3AC53BBAF539208530BC371A41AFC57CB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926712   (528502) от 13.08.2015
 
 Lost Years - Amplifier (2013) [MP3|320 кб/с]<Electronic, Electro, Disco, Synth-pop>
@@ -668,33 +695,6 @@ Alan Fitzpatrick - System Addict (2018) Unknown To The Unknown [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1787A5799C1CBBC044C511CD5AA73F90B575F51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155839   (529892) от 05.08.2017
-
-VA - Clubbing On Sunshine (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pulsedriver, Chris Deelay - Geiles Gefuhl (Short mix) 03:06
-02. Sal De Sol - Happy Ending (Vocal Club Mix) 03:45
-03. Franky Tunes - Free (Summer Breeze Remix) 03:26
-04. Topmodelz - Summer of 69 03:46(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C68AF987EA3B8DB0C9DCE5513DFD6866A9A1317
 ```
 
 

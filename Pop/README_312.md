@@ -1,3 +1,81 @@
+###  Публикация: 1374690   (873005) от 10.04.2020
+
+Roundtree - Roller Disco (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get On Up (Get On Down) (6:47)
+02. Tonight's The Night (5:22)
+03. Manhattan Fever (4:15)
+04. Discocide (6:24)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47AEA834DF64749EA50863DBB6238FD2FA41C11B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106356   (873050) от 19.02.2017
+
+Lana Del Rey - Love (2017) Single [MP3|320 Kbps] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873050.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. LoveЖанр: Indie PopПродолжительность: 00:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5901404D000B96F2533E1E21CBAD9BCA57A042B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997534   (873421) от 17.03.2016
+
+Дискотека Авария - Все Хиты: Авария Против! (2000) [FLAC|Lossless|tracks + .cue] <Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Влечение (Авария против Жуков) (4:38)
+02. Пей пиво! (3:58)
+03. Девочка (remix) (3:41)
+04. Я тебя не скоро (Евпатория remix) (5:06)(   Читать дальше...   )Жанр: Europop, Euro HouseПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0FBA5BA6749782C36797F7DC8DB23DD4A90C37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105644   (873524) от 19.02.2017
 
 Peter Wilson - Overdrive (2017) 2CD [MP3|320 Kbps] <Italo-Disco, Hi NRG, Synth-pop>
@@ -616,87 +694,6 @@ VA - Оскар Фельцман - Я Вас люблю, я думаю о Вас
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE520139529B555BF2B5595D9E11F596E63B01B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373779   (876617) от 08.04.2020
-
-VA - Italodisco Rarities (2014) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wol Vo - Born Again (3:13)
-02. Jay & Jason - Breaking (6:01)
-03. Jay & Jason - Do You Want (5:38)
-04. Wol Vo - Forever (3:46)(   Читать дальше...   )Жанр: Italo-Disco, Nu-DiscoПродолжительность: 02:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6991F74E6F189F6202B74E192EA1090F7C478A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373781   (876815) от 08.04.2020
-
-VA - Italo Nites Vol. 1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Record Playerz - Italomatic (6:27)
-02. Ziggy Phunk - Lost Treasures (6:17)
-03. Rayko - Inchi (6:46)
-04. Chris Massey feat. Mike Grubert - Castro Beat (7:30)(   Читать дальше...   )Жанр: Italo-Disco, Nu-DiscoПродолжительность: 01:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E1A1B9E3BE39BBE1A69FDB3C246F939A235C4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373512   (876826) от 08.04.2020
-
-DJ BoBo - Rare Trax (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876826.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.DJ BoBo, Faye Wong - Freedom (4:13)
-2.DJ BoBo - Rock My World (Extended Version) (4:46)
-3.DJ BoBo - Where Is Your Love (Remix from Spain) (4:07)
-4.DJ BoBo - Its My Life (40o Brasil Mix) (4:06)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:42:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2FC6B085BF298C35F51E4741EE60A9150199117
 ```
 
 

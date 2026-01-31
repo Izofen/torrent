@@ -1,3 +1,30 @@
+###  Публикация: 1553313   (582877) от 25.05.2022
+
+VA - Warrior's Words (горловое пение) (2022) 2CD [MP3|320 Kbps] <World Music, Ethno Fushion, Throat Singing>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altai Kai - Maral Deer (04:45)
+02. Annwn - Douce Dame Jolie (04:03)
+03. Bai-Terek - Archyndu jol (03:32)
+04. X-Eternity - My Mother Told Me (feat. Perly i Lotry) (05:44)(   Читать дальше...   )Жанр: World Music, Ethno Fushion, Throat SingingПродолжительность: 07:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:646B439CFA4D0C7D6B407AA204A365B98EC03534
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553394   (582881) от 25.05.2022
 
 Bloodhound Gang - The Bad Touch (1999) [MP3|320 Kbps] <Alternative, Punk>
@@ -651,33 +678,6 @@ VA - Клубная Туса От Русских Диджеев (2011) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A11F335193F9A3E4AFA235FCF5A5C0AB65905A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041036   (584061) от 07.08.2016
-
-VA - Классный muzon. Выпуск 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584061.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Лолита - Серебряный Дождь
-002. Jordan Fisher - All About Us
-003. Lemaitre - Stepping Stone
-004. Moyyo - Пить & Танцевать(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87EDE570BD8ED877A89B66E750282829F0B57AAD
 ```
 
 

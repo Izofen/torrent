@@ -1,3 +1,30 @@
+###  Публикация: 1196316   (820407) от 04.01.2018
+
+VA - Музыка, с которой мы выросли (зарубежная) (1970-1995) Pop, rock, disco [MP3|320 Kbps] <Pop, rock, disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_820407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - Lookin' Out My Back Door (1970) 02:35
+02. Uriah Heep - Lady In Black (1971) 04:44
+03. Led Zeppelin - Rock And Roll (1971) 03:41
+04. Sweet - Jeanie (1971) 03:01(   Читать дальше...   )Жанр: Pop, rock, discoПродолжительность: 08:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7AA64B20B3FBFD52511DA248B361A2FA76D61E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196736   (820417) от 04.01.2018
 
 VA - Новогодняя Дискотека Руки Вверх! (2018) [MP3|320 Kbps] <Pop>
@@ -671,33 +698,6 @@ VA - Музыкальный огонь 7 (2016) [MP3|256 кб/с] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C27C5CBFE17B96CD5015F4FAF1FA5776F43E653B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007458   (821685) от 15.04.2016
-
-VA - Dance Alliance: Original Playmix (2016) [MP3|320 кб/с] <Dance, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sue Mclaren feat. Sue Mclaren & Paul Van Dyk - Together Again
-02. Dream Dance Alliance - Spring Love
-03. Armin Van Buuren feat. Kensington - Heading Up High
-04. Dash Berlin vs. Clement Bcx - I Take Care(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 03:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4130EA2F67BE9702019A5F29D8D25C5BDB5BE4CC
 ```
 
 

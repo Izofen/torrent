@@ -1,3 +1,327 @@
+###  Публикация: 1538186   (663361) от 20.03.2022
+
+The Creation - Making Time - The Best of the Creation (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Rhythm & Blues, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Making Time
+02. Try and Stop Me
+03. Painter Man
+04. Biff Bang Pow(   Читать дальше...   )Жанр: Rhythm & Blues, Psychedelic RockПродолжительность: 01:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D7E7AD038925CF138C65E9E274C02B16C9F097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538254   (663365) от 20.03.2022
+
+A Tribe of Horsman - On The Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Try
+02. Jam All Night
+03. Lonely Avenue
+04. Mistreatin' Woman(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF643C967A4925E0BB49593C74AC320FBA24661
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538334   (663369) от 20.03.2022
+
+Vince DiCola - Only Time Will Tell (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bound & Gagged (3:49)
+02. Karla (4:42)
+03. Miracles (4:06)
+04. Just Hanging On (4:13)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E274D6F3F0A59280CDC6C4643825AF5F7B3891CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538339   (663372) от 20.03.2022
+
+Robert Tepper - Better Than The Rest (2019) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Does Over (Have To Be So Sad) (3:55)
+02. Better Than The Rest (3:42)
+03. All That We Never Have (3:16)
+04. Testimony (4:05)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A878899D90E66D901558ED487F8608C14E0403FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538233   (663374) от 20.03.2022
+
+Dirty Sound Magnet - DSM III (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Body in Mind
+02. Meet the Shaman
+03. Toxic Monkeys
+04. Mr. Robert(   Читать дальше...   )Жанр: Psychedelic Rock, Classic RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C435CC1E9B9298D6ED371A5F3203490A4C1875A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538438   (663429) от 20.03.2022
+
+Stone Axe - Stay Of Execution (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fell On Deaf Ears
+02. Lady Switchblade
+03. Sweet Sweet Time
+04. Deep Blue(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CADA74C5F0DA8097094180911A9AA6E1BF77D13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538446   (663437) от 20.03.2022
+
+Ransom - Back To The Boozer (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vindication
+02. Colour Blind
+03. Killing Time
+04. Gender Offender(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0029F885857D57E22FD00016D51DA2942A6F5117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538414   (663443) от 20.03.2022
+
+Quickstrike - None Of A Kind (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Rock Disaster (03:53)
+02. Saint (04:54)
+03. Cheats n' Liars (03:14)
+04. Shut them Down (04:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C260648746E59882C6E165F25FEE87FDDC7C6861
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224781   (663765) от 12.05.2018
+
+Tiger B. Smith - We're The Tiger Bunch (1974) Reissue, 1993, Bellaphon [MP3|320 Kbps] <Hard Rock, Krautrock, Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663765.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. She's All Right
+2. Old Man
+3. Rock My Soul
+4. Anna Sheffield(   Читать дальше...   )Жанр: Hard Rock, Krautrock, Prog-RockПродолжительность: 00:35:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C24FA2ABEB9D252F80B0F884BD28623BE7A5EF99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224929   (664001) от 12.05.2018
+
+Estate - Mirrorland (2018) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664001.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краснодарские металлисты Estate выпустили свой новый студийный альбом. Вторая полноформатная пластинка получила название "Mirrorland" и появилась 20 апреля 2018 года. В записи диска приняли участие Матс Левен (Therion) и Марк Боалс (Yngwie Malmsteen).1. Mirrorland 04:27
+2. The Ghoul 05:08
+3. Stolen Heart 04:35
+4. Winter Kingdom 04:13(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDC04A211BE2210A9D54FDC1AF00912C4C2F028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224922   (664006) от 12.05.2018
+
+Peace Days - Право на мир (2018) [MP3|320 Kbps] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664006.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брянская панк-рок группа Peace Days выпустила свой новый альбом. Студийная пластинка получила название01. Учитель для бедных (3:09)
+ 02. Человек горы (3:17)
+ 03. Добро творится в тайне (3:30)
+ 04. Рэйчел (3:19)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EACC98AC4C15EF7D317F19DAD0694192F12B493
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138538   (664055) от 29.05.2017
+
+The Beatles - Sgt. Pepper's Lonely Hearts Club Band (1967) 50th Anniversary, Super Deluxe Edition, Box Set, 2017 [FLAC|Lossless|tracks + .cue] <Classical Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не знаю как у Вас, а у меня с этого альбома началось в 1969 году знакомство с Beatles. Собственно, я и сейчас его считаю лучшим альбомом группы. И вот к 50-летию издания Capitol Records выпустил поистине уникальный подарок для любителей классики. В 6-дисковом Super Deluxe Edition (в данной раздаче нет DVD- и Blu-ray дисков) заново пересведены и ремастированы с оригинальных (   Читать дальше...   )CD1 - New Stereo Mix
+CD2 - Sgt. Pepper Sessions
+CD3 - Sgt. Pepper Sessions
+CD4 - Mono Album and Bonus TracksРелиз состоялся: 26 мая 2017 годаЖанр: Classical RockПродолжительность: 03:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9754CF07BF90138AF71A5568AE9183282F75AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224844   (664088) от 12.05.2018
 
 Jan & Dean - Greatest hits (1992) 1993 Compilation [FLAC|Lossless|image + .cue] <surf rock>
@@ -371,341 +695,6 @@ Sign X - Back To Eden (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA2954B7D057E993D9FBCEE59DD81811FF43ADC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538245   (664401) от 19.03.2022
-
-Танцы Минус - Переверевеснеть (2022) EP [FLAC 2.0|48/24|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664401.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тетрадь
-2. вОгонь
-3. Кошкин Дом
-4. ВесточкаЖанр: RockПродолжительность: 00:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497DA9F20D73F141B6CBA55A2BEBCBB55AF50E64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137947   (664482) от 29.05.2017
-
-Geisha - Die Verbrechen Der Liebe (2008) [FLAC|Lossless|image + .cue] <Space Rock, Psychedelic Rock, Noise Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude To Amber Pays The Rent (8:08)
-02. Stop Talking, Let's Fuck (1:27)
-03. A Wilderness, Except By Sight (3:54)
-04. Cocktown & The G Boys (3:13)(   Читать дальше...   )Жанр: Space Rock, Psychedelic Rock, Noise RockПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053FC7193B6FF94411F0A701A87650C323DA314A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138415   (664486) от 29.05.2017
-
-Helker - Firesoul (2017) Limitеd Еditiоn [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis  (01:11) 
-02. Fight  (03:12) 
-03. For All The Eternity  (04:02) 
-04. Playing With Fire  (04:26) (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05751CC306DC4E2577E9310BE661611BB46232A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138430   (664488) от 29.05.2017
-
-Iron Fate - Cast In Iron (2010) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Arrival   (01:48) 
-02. Iron Fate  (06:01) 
-03. Resurrection  (03:57) 
-04. Lightning Bolt  (04:19) (   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3601E978053B944EB20E1E5F0DDD516BED9C009A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137863   (664495) от 29.05.2017
-
-Azarath - In Extremis (2017) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Triumph of Ascending Majesty 05:11
-02. Let My Blood Become His Flesh 03:22
-03. Annihilation (Smite All the Illusions) 03:25
-04. The Slain God 04:54(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3F3A61C68BC0F030BB43407CC0FF7AA48EA71D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137869   (664496) от 29.05.2017
-
-Rude - Remnants... (2017) [FLAC|Lossless|image + .cue] <Ols School Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torrent to the Past 05:46
-02. House of Dust 05:19
-03. Blood Sucker 03:25
-04. Interpretations of the Ultimate Finality 05:08(   Читать дальше...   )Жанр: Ols School Death MetalПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F3591A2F1DA778A010D89E6B36CF00E79E27F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137875   (664501) от 29.05.2017
-
-Venenum - Trance of Death (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entrance 02:34
-02. Merging Nebular Drapes 08:51
-03. The Nature of the Ground 05:38
-04. Cold Threat 06:58(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA2F23B835613D9072FC249F572853B423E1DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511957   (664530) от 18.06.2012
-
-Ozric Tentacles - 28 albums (1984-2011) [FLAC/APE/WavPack|Lossless] <Progressive / Rsychedelic / Space Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_664530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attack of the Vapours (05:22)
-02. Lemon Kush (06:15)
-03. Flying Machines (06:26)
-04. Knurl (06:08)
-05. Lost in the Sky (07:20)
-06. Paper Monkeys (07:17)
-07. Plowm (07:52)
-08. Will of the Wisps (10:42)
-09. Air City (03:53)1984-2011Жанр: Progressive / Rsychedelic / Space Rock, InstrumentalПродолжительность: 01:01:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137867   (664560) от 29.05.2017
-
-Resurgency - No Worlds... nor Gods Beyond (2017) [FLAC|Lossless|image + .cue] <Ols School Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thresholds of Infinite Pain 03:56
-02. Progenitors of Suffering 03:16
-03. No Worlds nor Gods Beyond 04:22
-04. Upset Sun in Shades Deforms 03:14(   Читать дальше...   )Жанр: Ols School Death MetalПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D3A9EF8BDBDCC6D41E0698F106AF31443A9E992
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137872   (664565) от 29.05.2017
-
-Svart Crown - Abreaction (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Sacrament 05:23
-02. Carcosa 03:44
-03. The Pact: To the Devil His Due 07:21
-04. Upon This Intimate Madness 04:38(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D821A1E24EC674C7BEEF600C7C292E73B997FF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 512430   (664686) от 18.06.2012
-
-Acid King - 5 albums (1997-2006) [FLAC|Lossless] <Stoner Rock, Stoner Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_664686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lead Paint (04:31)
-02. Blasting Cap (04:40)
-03. Drop (06:30)
-04. The Midway (02:03)
-05. Evil Satan (07:55)
-06. If I Burn (03:43)
-07. One Ninety-Six (04:22)
-08. Vertigate #1 (03:47)
-09. Tank (03:53)
-10. Dry Run (04:16)(   Читать дальше...   )1997-2006Жанр: Stoner Rock, Stoner Doom MetalПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224733   (664866) от 11.05.2018
-
-Капитанский Ром - Роза ветров (2018) EP [MP3|320 Kbps] <Horror Punk, Folk Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664866.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Роза ветров
-2. Таверна
-3. Палач
-4. Лишь в своих сновидениях(   Читать дальше...   )Жанр: Horror Punk, Folk PunkПродолжительность: 00:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820F923A931E67CC4738F2ABC5A6217DDEA9412E
 ```
 
 

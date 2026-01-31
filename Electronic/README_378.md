@@ -1,3 +1,30 @@
+###  Публикация: 1215657   (756604) от 27.03.2018
+
+The Mover - Undetected Act from the Gloom Chamber (2018) Planet Phuture [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Comedown (06:16)
+ 02. Stars Collapse (07:32)
+ 03. Stealth (06:23)
+ 04. Shadow Deception (06:32)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07927C41A8D8C6570CEF338F139968EE2E52B84A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215770   (756616) от 27.03.2018
 
 Andrea Cossu - Spira (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
@@ -668,33 +695,6 @@ VA - Markus Schulz - Global DJ Broadcast (Miami Music Week Edition) (2018) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530E04E1B1B66566FB033D7BC8EC9D3776CC36F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215595   (758217) от 26.03.2018
-
-VA - Back To Love 03.03 (2003) [FLAC|Lossless|tracks] < House, Disco, Hip-Hop, Acid House, Garage House >
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Frankie Knuckles - The Whistle Song (EK 12'' Mix) (7:02)
-02.Lisa Stansfield - People Hold On (New Jersey Jazz Mix) (6:48)
-03.Sydney Youngblood - If Only I Could (Extended Version) (6:30)
-04.Crystal Waters - Gypsy Woman (She's Homeless) (Basement Boy 'Strip To The Bone' Mix) (6:52)(   Читать дальше...   )Жанр: House, Disco, Hip-Hop, Acid House, Garage HouseПродолжительность: 02:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527A98B681BD910C56788CFF5FFE7BD334B16CF4
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 978053   (964720) от 22.01.2016
+
+VA - Existence In Progress (2016) [MP3|320 кб/с] <Progressive House, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_964720.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2 Faced Funks - Powerbass (Original Mix)
+002. Years & Years - King
+003. Duke Dumont - Won't Look Back
+004. Mind In A Box - Unforgiving World(   Читать дальше...   )Жанр: Progressive House, Electro, ClubПродолжительность: 09:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B0926878608373307F330181E4C6FE15E148B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978049   (964730) от 22.01.2016
 
 VA - So Sexy, Vol. 2 (Chillout Selection) (2016) [MP3|320 кб/с] <Ambient, Lounge, ChillOut, Electronic>
@@ -683,33 +710,6 @@ VA - Beatport Progressive House: Pack 10 (2020) [MP3|320 Kbps] <Progressive Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85D9E1D5E7DABEE6B32E5950F2DF1F79741D6AAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358703   (967407) от 09.02.2020
-
-VA - German Top 100 Single Charts 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joker Bra & Vize - Baby
-02. The Weeknd - Blinding Lights
-03. Samra - Mon Ami
-04. Juju x Loredana - Kein Wort (feat. Miksu & Macloud)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FF5135932CE57A86C26ADD9E66BE20C60882C3
 ```
 
 

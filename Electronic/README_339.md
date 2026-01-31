@@ -1,3 +1,30 @@
+###  Публикация: 1537142   (669239) от 15.03.2022
+
+VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gunz For Hire - Ongedierte van de Nacht
+02. D-block & S-te-fan - Twilight Zone (Headhunterz Remix)
+03. Ran-DSound RushLePrince - We Are the Storm (Radio Edit)
+04. JDXSander Nijbroek - Tides (Performance Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:08 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A58868CFA388DB9301D5083D734F664E711ECE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136976   (669302) от 25.05.2017
 
 VA - The Art of Electronic Music: Deep House Edition (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -670,31 +697,6 @@ Schiller - Morgenstund (2019) Sony Music Media [FLAC|Lossless|WEB-DL|tracks] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F6AE7D2B8883C69A30D7B6237DAAC55B4B708F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291338   (670569) от 24.03.2019
-
-Ben Gold & Sivan - Stay (Sneijder Remix) (2019) [MP3|320 Kbps] <Trance, Uplifting>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670569.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stay (Sneijder Remix) [03:34]
-2. Stay (Sneijder Extended Remix) [07:52]Жанр: Trance, UpliftingПродолжительность: 00:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560266DAF7EB882B34497FF50375256DE556848F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1359431   (963222) от 13.02.2020
+
+DJ Иван Ионов - Soundcheck - Summer Non Stop (2005) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untitled (6:39)
+02. Untitled (5:54)
+03. Untitled (4:43)
+04. Untitled (7:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606AC6F4FBBDB264309850F31EAD9B285E2BEC6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359427   (963270) от 13.02.2020
 
 VA - Defragmentation (Mixed by DJ Бинокль) (2008) [MP3|320 Kbps] <Trance, Progressive, Deep House>
@@ -665,33 +692,6 @@ Textural Being - Discography 14 Releases (2010-2016) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:947B24B6624A4FF321088B4175F45C80972607BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358856   (967236) от 09.02.2020
-
-Pet Shop Boys - Monkey Business (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Dance-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Monkey Business (Radio Edit) [3:10]
- 02 - Monkey Business (Prins Thomas Discomiks) [8:46]
- 03 - At Rock Bottom [3:17]
- 04 - Monkey Business (Friend Within Remix) [5:45]Жанр: Synthpop, Dance-popПродолжительность: 00:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4000C8E667651E09A386B47424F3844205125785
 ```
 
 

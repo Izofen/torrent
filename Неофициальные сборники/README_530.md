@@ -1,3 +1,30 @@
+###  Публикация: 1273701   (799367) от 03.01.2019
+
+VA - Blues Night: Coctail For The Soul (2019) [MP3|320 Kbps] <Blues, Rock, Soul>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aynsley Lister - What's It All About
+002. Bart Walker Band - Right Side Up
+003. Billy D & The Hoodoos - Whyya Do It
+004. Boogie Stuff - Missing You(   Читать дальше...   )Жанр: Blues, Rock, SoulПродолжительность: 11:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FDF664390E8899E21A62D8D4A205615A105679E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273322   (799370) от 03.01.2019
 
 VA - New Year's Eve Party Hits 2019 (2018) [MP3|320 Kbps] <Dance, Electronic, Pop>
@@ -668,33 +695,6 @@ VA - 100 Greatest Female Voices (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F8CFB2AD9CCACEEF9C1E76B2E887F3CB4B97118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199681   (800149) от 17.01.2018
-
-VA - Radio Monte Carlo (2018) [MP3|320 Kbps] <Electronic, House, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Bastille  -  Blame  3:32
-002.  Moby  -  Sunday (The Day Before My Birthday)  5:09
-003.  Gilla  -  Johnny  3:50
-004.  Nora En Pure  -  Waves (Original Club Mix)  7:00(   Читать дальше...   )Жанр: Electronic, House, PopПродолжительность: 08:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162186CE82BD0D6FFC118924874A839BCC08631D
 ```
 
 

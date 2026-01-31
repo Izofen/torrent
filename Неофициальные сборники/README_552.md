@@ -1,3 +1,30 @@
+###  Публикация: 1114418   (831684) от 15.03.2017
+
+VA - Guitar Collection 11 (2017) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831684.jpg" />
+</div>
+
+
+###  Подробнее
+
+001| The Carl Verheyen Band - Dusk (Two Views Of The Canyon)  (01:51) 
+002| Al Marconi - Angola  (02:55) 
+003| Blindstone - By Grabthar's Hammer  (06:22) 
+004| Chris Rea - Forever  (01:27) (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 07:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323FD184A0B8234EF162AD0488C8C2B6D70FAA71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501971   (831749) от 12.10.2021
 
 VA - Beatport Chill House: Sound Pack #355 (2021) [MP3|320 Kbps] <Chill, Deep House, Electro>
@@ -668,33 +695,6 @@ VA - I Love Music! - Alternative Rock Edition Vol.32 (2017) [MP3|320 Kbps] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E00013AE185E8FE98F18526A6E5E464C2AC38895
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114264   (833416) от 14.03.2017
-
-VA - I Love Music! - Extreme Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_833416.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 40 Watt Sun - Another Room 11:55
-002. A Sun Traverse - The Autumn Of Fall 6:18
-003. Ailment - Dogma 12:51
-004. Bathsheba - Ain Soph 5:42(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 17:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F35BA0EEC27D892E7E1571705CA2A1D8599D20F2
 ```
 
 

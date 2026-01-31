@@ -1,3 +1,30 @@
+###  Публикация: 1492090   (902404) от 30.08.2021
+
+VA - Beatport Jackin House: Sound Pack #337 (2021) [MP3|320 Kbps] <Jackin, Funky House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902404.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. S-Project - I Need feat Laura Welle
+002. Jerem A - Color Me
+003. Penford & Pearson - So Brand New
+004. Andradez - Splash (Original Mix)(   Читать дальше...   )Жанр: Jackin, Funky House, Nu DiscoПродолжительность: 09:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2551F80FBA5267E7C00BCC7C2EA58CF66A64682
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492123   (902406) от 30.08.2021
 
 VA - NRW: Clubbing Tech House (Vol.01) (2021) [MP3|320 Kbps] <Club, Dance, Tech House>
@@ -674,39 +701,6 @@ VA - 100 Hits Dance DFM (2016) [MP3|256 кб/с] <House, Pop, Dance, RNB, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:383D343F24F5AFEDF4433E993122BC647ADE0A1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636282   (904178) от 29.03.2013
-
-VA - Real Disco (2013) [MP3|320 кб/с]<Disco, Eurodisco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arabesque - Midnight Dancer
-02. Baccara - Yes Sir, I can Boogie
-03. Dschinghis Khan - Dschinghis Khan
-04. ABBA - I Do, I Do, I Do, I Do, I Do
-05. Bananarama - Venus
-06. Boney M. - Daddy Cool
-07. Taco - Puttin' On The Ritz
-08. Baccara - Ay, Ay Sailor
-09. Arabesque - Keep the Wolf from the Door
-10. Boney M. - Rasputin(   Читать дальше...   )Жанр: Disco, Eurodisco, PopПродолжительность: 04:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC941EDC7CE7C383FFB87509A523DAC40C672110
 ```
 
 

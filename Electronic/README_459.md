@@ -1,3 +1,30 @@
+###  Публикация: 1371712   (888573) от 01.04.2020
+
+VA - Armada Music - Decade (2010-2020) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud Luxury feat. Brando - Body 2:43
+02. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like 3:24
+03. Lost Frequencies & Zonderling - Crazy 2:33
+04. Thomas Gold feat. Jillian Edwardss - Magic 2:51(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08FBA697CA3D1F19012BB783991C1B40E883E29F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371309   (888580) от 01.04.2020
 
 Peter Pearson - Quantum of Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
@@ -665,33 +692,6 @@ VA - Condura Selection Part 1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EE6B29ED9AB9D7A4F14342140E7CCCCF003F7DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994248   (889797) от 08.03.2016
-
-Jjos - Fantasy (Ambient Balearic Chill) (2013) [MP3|320 кб/с] <Downtempo, Chillout, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_889797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Need (Sensual Chill Mix) [4:16]
-02. Sylvanna Gelmetti - Another Day (Chill Mix) [4:09]
-03. Stop (Chill Mix) [4:56]
-04. Fantasy (Terrace Mix) [3:59](   Читать дальше...   )Жанр: Downtempo, Chillout, Easy ListeningПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EA2D28F2A1AD4927EB7D2DC3915BB53F570128
 ```
 
 

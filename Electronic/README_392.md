@@ -1,3 +1,30 @@
+###  Публикация: 1210928   (778230) от 05.03.2018
+
+VA - Relax Vibration Vol.03 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gene D.  -  5 Am In Ibiza (Original Mix)  4:36
+02.  Zetandel  -  A Letter To Kate (Original Mix)  4:41
+03.  Alex Field  -  About The Beautiful (Original Mix)  6:34
+04.  Mr.Udjin  -  Abstraction (Original Mix)  4:28(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AECC7F96E8895EA7E8F2DD2A20095C91E81307B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210934   (778232) от 05.03.2018
 
 VA - Best Of Progressive House 2018 Vol.02 (2018) [MP3|320 Kbps] <Progressive House>
@@ -665,33 +692,6 @@ Moby - Everything Was Beautiful And Nothing Hurt (2018) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C16EC264655C84FF0FFA6BBB806136FD0CD20C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210052   (778823) от 02.03.2018
-
-Moby - Everything Was Beautiful And Nothing Hurt (2018) [MP3|320 Kbps] <Downtempo, Electronic, Trip Hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mere Anarchy  5:15
-02.  The Waste Of Suns  4:45
-03.  Like A Motherless Child  4:37
-04.  The Last Of Goodbyes  4:24(   Читать дальше...   )Жанр: Downtempo, Electronic, Trip HopПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C23983080B733DD163F81776E49AA394C6247A
 ```
 
 

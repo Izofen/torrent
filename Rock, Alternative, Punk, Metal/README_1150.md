@@ -1,3 +1,328 @@
+###  Публикация: 1096350   (919135) от 24.01.2017
+
+Mono Inc. - Together Till The End (2017) [FLAC|Lossless|tracks] <Gothic Rock, Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  The Banks Of Eden  (03:55) 
+02|  Together Till The End  (04:23) 
+03|  Boatman (feat. Ronan Harris from VNV Nation)  (05:45) 
+04|  Out In The Fields  (04:06) (   Читать дальше...   )Жанр: Gothic Rock, DarkwaveПродолжительность: 01:25:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5454DE11615D6E0FEC04E6F38A58475C9EF6B1B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096753   (919145) от 24.01.2017
+
+Christoffer Franzen [of Lights & Motion] - 9 Albums - 1 Single (2013-2017) [MP3|320 кб/с]<Instrumental, Post-Rock, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lights & Motion - проект музыканта-мультиинструменталиста, автора композиций и продюсера Кристофера Франзена (Christoffer Franzen) из Гётеборга (Швеция).
+Вся музыка написана, сыграна и смиксована одним человеком. Так что Кристофер — «человек-оркестр»! В его работах услышите кинематографическое звучание высшего качества, много эмбиента, гитарных переборов и фортепиано. (   Читать дальше...   )2013 - Reanimation
+2013 - More Film / TV Music
+2013 - Save Your Heart
+2014 - Holiday Visions(   Читать дальше...   )Жанр: Instrumental, Post-Rock, Ambient, Cinematic •Продолжительность: 07:20:18 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0ED5ED5628B2173F0031FA006980D00C877596
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096594   (919149) от 24.01.2017
+
+Civil War - The Last Full Measure (2016) Japanese Edition [MP3|320 Kbps] <Heavy / Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road to Victory
+02. Deliverance
+03. Savannah
+04. Tombstone(   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C572CAD9D75B60B43095FE0DCC7241125DF59BF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988933   (919182) от 21.02.2016
+
+John Ford - A Better Day (2015) [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Me a River
+02. Deep in the Darkest Night
+03. You Can Do Anything
+04. A Better Day(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2A25F3D4098DCA270777FFB835D3DA5827EC92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988867   (919195) от 21.02.2016
+
+Dark Circus - Lipstick Party Killer (2016) [MP3|320 кб/с] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirty Seconds (04:07)
+02. How Long (03:23)
+03. The Hunter (03:55)
+04. Time (04:37)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D117E5D6495FF2194CAEA1037597DFA32BF6EAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096510   (919207) от 24.01.2017
+
+Marillion - Marbles In The Park (2017) 2CD [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919207.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Don't Hurt Yourself (5:40)
+2. You're Gone (6:59)
+3. Angelina (10:42)
+4. Drilling Holes (5:06)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8F7050785DF6F6A5FB8DA7883B12D8961D9426
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988776   (919240) от 21.02.2016
+
+Walpurgis - Queen Of Saba (1972) [MP3|320 кб/с] <Krautrock, Psych-Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disappointment
+02. Queen Of Saba
+03. Daily
+04. Hey You, Over There(   Читать дальше...   )Жанр: Krautrock, Psych-Prog RockПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116508E4ECC2CE5AB5DDADCD1941CF81CC27A04D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988941   (919259) от 21.02.2016
+
+Iconoclast - Hallucination (2016) [MP3|320 кб/с]<Progressive Deathcore, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919259.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:40] 01. The Virus Of Faith
+[04:14] 02. Vengeance
+[04:03] 03. Dissimulate
+[05:28] 04. New World Slaughter(   Читать дальше...   )Жанр: Progressive Deathcore, DjentПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC3336433DC7D43C8FAAF9ED1E47F301DD43656
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988947   (919264) от 21.02.2016
+
+Iconoclast - Hallucination (2016) [FLAC|tracks|WEB-DL]<Progressive Deathcore, Djent>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919264.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:40] 01. The Virus Of Faith
+[04:14] 02. Vengeance
+[04:03] 03. Dissimulate
+[05:28] 04. New World Slaughter(   Читать дальше...   )Жанр: Progressive Deathcore, DjentПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53031B10188BB55FEC31E0FB0D0A635408D39BE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096517   (919291) от 24.01.2017
+
+Serj Tankian - Orca (Symphony No. 1) (2012) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Act I - Victorious Orcinus (08:45)
+02. Act II - Oceanic Subterfuge (08:05)
+03. Act III - Delphinus Capensis (07:58)
+04. Act IV - Lamentation Of The Beached (08:53)Жанр: Alt. Rock, ExperimentalПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEAA46A7B3FE6C9C336DA5CB613FC793B6178BB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096484   (919346) от 24.01.2017
+
+Ygg - Ygg (2011) [MP3|320 Kbps] <Atmospheric Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ...Знаю, Висел Я В Ветвях На Ветру... (Intro)
+02. YGG
+03. Урд, Верданди, Скульд
+04. Гимн Природы(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99ECDA6A4CBC63438BC335F8CBE580D1CB6CDD2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096490   (919380) от 24.01.2017
+
+Svartby - Swamp, My Neighbour (2015) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919380.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Morbid Quag
+2. Trojansk Ratta
+3. Goat Crack
+4. Karl’s Egg Farm(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0293C63A64B82D978DC2B843712CCCF7E32C5B73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096551   (919397) от 24.01.2017
 
 Arktis - On The Rocks (1976) Reissue, 1997, Garden Of Delights [MP3|320 Kbps] <Rock>
@@ -392,327 +717,6 @@ Morrissey - I Am Not a Dog on a Chain (2020) [FLAC|Lossless|tracks + .cue] <Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE9F0D1A91C497C578066F44A1D7362600323CD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366815   (920577) от 13.03.2020
-
-Dakota - 9 альбомов 11CD (1980-2015) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1980 - Dakota
-1980 - Dakota (Remastered 2012)
-1984 - Runaway (Remastered 2012)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 09:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18737A325F9857507AA9AD484BC40A202D6C22B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366947   (920580) от 13.03.2020
-
-Burzum - Thulêan Mysteries (Thulean Mysteries) (2020) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Dark Ambient, Dark Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sacred Well (2:56)
-02. The Loss of a Hero (0:55)
-03. ForeBears (4:04)
-04. A Thulêan Perspective (4:02)(   Читать дальше...   )Производство: Byelobog ProductionsЖанр: Black Metal, Dark Ambient, Dark FolkПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2AE45D197C4A6C34DCB7162F37A3F1CBFDB49D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366955   (920581) от 13.03.2020
-
-Body Count - Carnivore (2020) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Thrash Metal, Rap Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carnivore (3:12)
-02. Point the Finger (feat. Riley Gale) (2:39)
-03. Bum-Rush (3:24)
-04. Ace of Spades (3:00)(   Читать дальше...   )Производство: Century Media – 19439719712Жанр: Metal, Rap Metal, HardcoreПродолжительность: 01:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611C8EFDC5A39321078AD14A0E3F3FCA4063DE16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366813   (920584) от 13.03.2020
-
-Jerry-Kelly - Somebody Else's Dream (1978) [MP3|320 Kbps] <Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerry-Kelly - Settle Down 04:33
-02. Jerry-Kelly - Magic 03:14
-03. Jerry-Kelly - Silly Boy 03:53
-04. Jerry-Kelly - Dear Love 04:10(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB16C725623E6351525AE6BCC869B26A57164E1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366718   (920586) от 13.03.2020
-
-Kirk Windstein (Crowbar) - Dream In Motion (2020) [MP3|320 Kbps] <Sludge Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream in Motion (04:11)
-02. Hollow Dying Man (03:32)
-03. Once Again (03:57)
-04. Enemy in Disguise (03:57)(   Читать дальше...   )Жанр: Sludge Doom MetalПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE46E0F6C8611F7BF764D6444A9A096E4D163B3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366671   (920587) от 13.03.2020
-
-Mysticum - Planet Satan (2014) CD Jevel box, 2019 Reissue, licensed from Peaceville [FLAC|Lossless|tracks + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LSD    [0:04:53.04]
-02. Annihilation    [0:04:40.50]
-03. Far    [0:04:43.11]
-04. The Ether    [0:06:48.14](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DE024F79BE8F7F90569C9293B0CC28C8E7CE0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490193   (920665) от 19.08.2021
-
-VA - Rock Out (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Radioactive (03:08)
-02. Imagine Dragons - I Bet My Life (03:12)
-03. Evanescence - My Immortal (04:22)
-04. YUNGBLUD - strawberry lipstick (02:43)(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BD5E835586320D0728A89731D85FA6AE7F8F4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490122   (920698) от 19.08.2021
-
-Dream Theater - A View From The Top Of The World (2021) Single [MP3|320 Kbps] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920698.jpg" />
-</div>
-
-
-###  Подробнее
-
-15-й полноформатный альбом группы,получивший название"A View From The Top Of The World" выйдет 22 Октября 2021 на InsideOutMusic.
-Line-up / Musicians:
-- John Myung / bass
-- John Petrucci / guitars, vocals (additional)(   Читать дальше...   )01. The Alien (09:33)Жанр: Progressive MetalПродолжительность: 00:09:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FED930194415567BC833223EDC1F7AD3C5CF7B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490172   (920703) от 19.08.2021
-
-Ночные Снайперы - 1993 vol.1 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920703.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. иду одна
-2. гости мои
-3. лето
-4. по твоей земле(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25410023526BCDAC76A4ED3C3BEDAA760DF013A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988510   (920707) от 20.02.2016
-
-Mastodon - White Walker (2016) [MP3|320 кб/с] <Heavy Metal, Progressive Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Walker (04:22)
-02. White Walker (A Capella) (03:12)Жанр: Heavy Metal, Progressive Metal, RockПродолжительность: 00:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F16B2A6EBDC7F141268AAE719A90824A23C7B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366812   (920715) от 13.03.2020
-
-Jerry-Kelly - Somebody Else's Dream (1978) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_920715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerry-Kelly - Settle Down 04:33
-02. Jerry-Kelly - Magic 03:14
-03. Jerry-Kelly - Silly Boy 03:53
-04. Jerry-Kelly - Dear Love 04:10(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266E7E47AB29EF7731DA9F3D0E6EA662BCD627FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366728   (920720) от 13.03.2020
-
-DED - 2 Releases (Mis-An-Thrope (CD) / Mannequin Eyes (EP)) (2017-2020) [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Mannequin Idol (Lullaby)
-02. Eyes Sewn Shut
-Продолжительность альбома: 00:06:02Жанр: Nu MetalПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A186B2111D9FDEFC7145112D795E9F2C5D18FFE
 ```
 
 

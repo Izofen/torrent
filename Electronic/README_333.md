@@ -1,3 +1,30 @@
+###  Публикация: 904031   (656992) от 01.06.2015
+
+VA - Palm Garden Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonsugi - Himerius - Darkness Lounge Paradise Mix [07:01]
+02. Seefeld Avec Mady - Ride On [03:44]
+03. Maurizio Piacente - You and Me [03:45]
+04. Sam Swift - Wonderful World [04:57](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F41DB2A23B6869BC0B9E076408BAE4CE02E309
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140250   (656996) от 05.06.2017
 
 VA - Ufo Classics (2017) [MP3|320 Kbps] <Minimal, Tech House>
@@ -675,33 +702,6 @@ VA - Vocal Trance Classics Top 40 (2022) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:985D44E8745CE2A8EB0DC19A47AD9A3E3ABCB495
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903645   (658169) от 31.05.2015
-
-VA - Cala Gracioneta (Pop Lounge Ibiza 2015) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Risasi - How You Like [04:01]
-02. Jnr Robinson - Wanna Praise [03:47]
-03. Trevor Jackson - Can You Blame Me [04:47]
-04. Rocklike - Holding On - Acoustic Version [04:25](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB31FE6ED78EAC89F4197253A2788B40377ECB0
 ```
 
 

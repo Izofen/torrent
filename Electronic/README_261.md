@@ -1,3 +1,30 @@
+###  Публикация: 1243012   (496094) от 25.08.2018
+
+VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Prince - Careless Whisper (Calenzo Club Mix) 3:38
+02. Carol Jiani - Feel It (Andre Schluter Funky Night Mix) 3:10
+03. Chris Excess feat. Lexine - It Feels So Good (Jason Parker Remix Edit) 3:45
+04. Jason Parker feat. Gemma Macleod - U Sure Do (Radio Edit) 3:25(   Читать дальше...   )Жанр: House, Nu Disco, Disco HouseПродолжительность: 02:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42622CBB8FCAEC0BBF4C9F0157C76BB96562B622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242897   (496106) от 25.08.2018
 
 VA - Deep-House Themes, Vol. 3 (2018) [MP3|320 Kbps] <Deep House>
@@ -692,33 +719,6 @@ The Cinematic Orchestra - Discography (1999-2010) 8 Альбомов [FLAC|Lossl
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317625   (500415) от 01.08.2019
-
-Sexy Chillout Music Cafe, Chillout Music Ensemble - Sexy Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500415.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Bossa Chillout (3:38)
-2.Deep UK Bounce (3:13)
-3.Miami Summer Time (3:48)
-4.La Luna a Ibiza (3:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EE5B2585A2D2501897023421A39188E4C7FD022
 ```
 
 

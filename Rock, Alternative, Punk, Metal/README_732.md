@@ -1,3 +1,328 @@
+###  Публикация: 1568075   (466037) от 06.08.2022
+
+The Flatliners - New Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk,New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Performative Hours (2:58)
+ 02. Rat King (3:31)
+ 03. Big Strum (3:09)
+ 04. Top Left Door (3:08)(   Читать дальше...   )Жанр: Punk,New WaveПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD8AD1815C87E85ECBC65DCA5AE0711D93CB9F20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058692   (466072) от 02.10.2016
+
+Blackjack - Worlds Apart (1980) Japanese SHM-CD, 2013 [FLAC|Lossless|image + .cue] <Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My World Is Empty Without You - 3:09
+02. Love Is Hard To Find - 3:18
+03. Stay - 4:37
+04. Airwaves - 3:43(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A28B9A8763B9A1E7F5011EB27FE1ECA78C3254
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058950   (466079) от 02.10.2016
+
+АукцЫон - Жилец вершин (1995) Геометрия, 2016, 2CD [WavPack|Lossless|image + .cue] <Rock, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный альбом «Жилец вершин» создан в 1995 году андеграундным бардом Алексеем «Хвостом» Хвостенко и рок-группой Аукцыон. Песни альбома были написаны на стихи поэта-футуриста начала ХХ века, «Председателя Земного шара» - Велимира Хлебникова. В ходе подготовки к записи группа и Хвост играли концерты-камлания, экспериментируя с медитативной музыкой и хлебниковскими (   Читать дальше...   )1995 - CD1: Жилец вершин
+1992 - CD2: Камлания (Концертные записи)Жанр: Rock, AvantgardeПродолжительность: 01:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2E4885C8D610B724CDC0810CFEA232AEB3B06FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568172   (466105) от 06.08.2022
+
+Zubrowska - Family Vault (2005) [FLAC|Lossless|image + .cue] <Brutal Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Hell
+ 02. Ode to My Black Sun
+ 03. C.O.V.E.D
+ 04. Maniac Rockers From Darkness(   Читать дальше...   )Жанр: Brutal DeathcoreПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCAF19CB7F6F3D64827DCFEEDE4280894CFC08F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567959   (466106) от 06.08.2022
+
+Age Of Agony - The Dark Conquers All (Demo) (2003) [FLAC|Lossless|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:43)
+02. The Dark Conquers All (04:18)
+03. Answer (03:38)
+04. Evolution (05:26)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:21:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497CB9282FAB578BE84000540C6FB2B09CB57675
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568169   (466107) от 06.08.2022
+
+Artical - Illusion X (2013) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look In The Mirror (06:03)
+02. Chasing My Life (06:30)
+03. I Am So Different (05:54)
+04. Follow The Light (05:35)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA733E2CEFB2F894E35FCFCE373FC9B2FF2046B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567970   (466108) от 06.08.2022
+
+Voracious Scourge - In Death (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retribution of the Damned (Intro) 01:44
+02. Heaven's Scorched 05:09
+03. Defleshed Messiah 04:54
+04. Voracious Scourge 03:51(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7B7E62A12517E031EE19001426ADA689B98D27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567962   (466109) от 06.08.2022
+
+Ars Goetia - Anachoreta (2007) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension Into The Abyss [1:05]
+02. Black Wisdom [3:47]
+03. Embrace... [3:59]
+04. The Hermit [5:01](   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:479D41F94161D13E25EA0F3192B2B68757084D6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289394   (466304) от 07.09.2020
+
+Necromantia - Chthonic Years / Demo Collection (2018) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vampiric RitualsЖанр: Black MetalПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA934559D43008977FB72094572787100145ED1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 240132   (466372) от 28.09.2010
+
+The Pete Best - The Pete Best Combo - Beyong The Beatles 1964-66 (1996) [MP3|320 kbps]<Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Aboard (Lamont) - 1:37
+02. Why Did You Leave Me Baby? (Bickerton, Waddington) - 01:46
+03. Shimmy Like My Sister Kate (Piron, Sutton) - 02:11
+04. I Need Your Lovin' (Bickerton, Waddington) - 02:43
+05. I Can Do Without You (Bickerton, Waddington) - 03:15
+06. Castin' My Spell (Johnson, Johnson) - 01:54
+07. I'm Blue (Turner) - 02:39
+08. She's Alright (Bickerton, Waddington) - 02:32
+09. Keys to My Heart (Bickerton, Waddington) - 03:14
+10. I'm Checkin' Out Now Baby (Bickerton, Waddington) - 03:02(   Читать дальше...   )Жанр: Rock and RollПродолжительность: 01:03:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407357   (466390) от 07.09.2020
+
+Stairway to Heaven - Brain Damage Tribute to Pink Floyd (2012) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brain Damage / Eclipse
+02. Money (45 Edit)
+03. Coming Back to Life
+04. Comfortably Numb(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D12FD492ED643E98DE511F016563A7609F4A619
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058689   (466433) от 02.10.2016
+
+Blackjack - Blackjack (1979) Japanese SHM-CD, 2013 [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466433.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Tonight - 2:58
+02. Heart Of Stone - 3:57
+03. The Night Has Me Calling For You - 4:35
+04. Southern Ballad (If This Means Losing You) - 3:45(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3E2AD99F6C934602FC3C2EBE7CD2F6803337FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058672   (466441) от 02.10.2016
 
 AOR - L.A Connection (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
@@ -373,331 +698,6 @@ magnet:?xt=urn:btih:761BD423CE11B9F49CE024055383AECC89EB192D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83BC5BA5A53DF32CF4DA9A7DBA7D9E24B1294174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160995   (467585) от 28.08.2017
-
-Signum Regis - Decennium Primum (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Decennium Primum
-02. Unfold the Mystery
-03. Damnatio ad bestias
-04. Screaming for Justice(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CDD1B5C295CBD7ABFF93D80F96500138329DA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161004   (467589) от 28.08.2017
-
-Masterplan - PumpKings (2017) Japan[FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chance
-02. Someone's Crying
-03. Mankind
-04. Step Out of Hell(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351C0B1B3539ACCD56ADD7D5C2DDAAE09D52AF43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160997   (467594) от 28.08.2017
-
-Secret Sphere - The Nature Of Time (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intermission
-02. The Calling
-03. Love
-4. Courage(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD2D4C8BE65E68F6C84FED08140E04B33CEF3E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161040   (467596) от 28.08.2017
-
-Humanitas Error Est - Human Pathomorphism (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destroyer of Worlds              00:55
-02. Quod homo appellatur morbus est  03:26
-03. Pain Feeder                      03:42
-04. Jagdzeit                         03:06(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E086F8F55C7AB8648ACD4B91E708954EAE581F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548569   (467602) от 18.09.2012
-
-Hidria Spacefolk - Astronautica (2012) [MP3|~240 kbps] <Psychedelic Rock,Progressive Rock,Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ad Astra (08:41)
-02. Cycloop (07:33)
-03. Badding (12:24)
-04. Endymion (06:05)
-05. Seirenes (11:17)Жанр: Psychedelic Rock,Progressive Rock,Space RockПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA972A0B5C826F5521C418EC9C6FB558CD1C489
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160973   (467634) от 28.08.2017
-
-Taberah - Sinner's Lament (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinner's Lament
-02. Wicked Way
-03. Harlott
-04. Horizon(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85878770DE3F7DD751079A87D1AF24C72318E1F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161037   (467636) от 28.08.2017
-
-Svartsyn - In Death (2017) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Seven Headed Snake 	07:25
-02. 	Dark Prophet 		07:53
-03. 	With Death 		06:14
-04. 	Inside the White Mask 	06:48(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D8E59C903DAE9C7E6BEE282877A38E79650950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161000   (467640) от 28.08.2017
-
-Sacrosanct - Recesses for the Depraved (1991) [APE|Lossless|image + .cue] <Progressive Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Like preached directions	5.37
-02.	Mortal remains			6.43
-03.	Illusive supremacy		6.55
-04.	Hidden crimes untold		4.33(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5717C06F09629DE23DE54340949A800459FA80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160960   (467642) от 28.08.2017
-
-Vampire - Vampire & Cimmerian Shade EP (2014) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Orexis
-02 Howl From The Coffin
-03 At Midnight I'll Possess Your Corpse
-04 Ungodly Warlock(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8022A0E5CCDE0F62812D4D572ED4EB82B5FD4CC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160953   (467645) от 28.08.2017
-
-Sin Isomer - Burst Into Isomer (2017) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quiet Sky
-02. The Last Spell
-03. Sin
-04. Future King(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78FA1008850FF196E0DFB5F218D4A23FB6F06E3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246035   (467902) от 08.09.2018
-
-JJ72 - JJ72 (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. October Swimmer (3:23)
- 02. Undercover Angel (3:45)
- 03. Oxygen (3:43)
- 04. Willow (4:23)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701A4FAFB3B7C59B2206C0DD762572F4CFCB3486
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567900   (468126) от 05.08.2022
-
-White Lion - The Best Of White Lion (1992) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wait (4:05)
-02. Radar Love (Golden Earring cover)  (5:58)
-03. Broken Heart (4:10)
-04. Hungry (3:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5072A2893EF7254C8C4ED3B3B7C4A6F3272517A
 ```
 
 

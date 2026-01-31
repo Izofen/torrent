@@ -1,3 +1,30 @@
+###  Публикация: 1112392   (843199) от 08.03.2017
+
+Mr.Kitty - A.I. (2017) [MP3|320 Kbps] <Synthpop, Electro>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I... 01:44
+02. Undo 02:51
+03. Habits (feat. PASTEL GHOST) 04:13
+04. Forget 03:31(   Читать дальше...   )Жанр: Synthpop, ElectroПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63032621CE583DF652054622A71C75B8E709FB2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112295   (843287) от 08.03.2017
 
 VA - DJ Zen - Winter (2017) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Psybient, Ambient, Downtempo, Progressive Trance>
@@ -666,33 +693,6 @@ VA - The Remixes, Vol.27 (2021) [MP3|320 Kbps] < House, Progressive House, Minim
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9629DA838644F405EA8998A6DE8F38F4B4AC972
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378532   (846273) от 25.04.2020
-
-Russian Village Boys - Kiss My Peace (2020) [MP3|320 Kbps] <Hardstyle, Hardcore, Nu-Rave>
-
->>Electronic
->>Hardstyle, Jumpstyle, Hardcore
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_846273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Drunk (feat. Skurt) [03:15]
-02. Romantic & Jackass [03:45]
-03. Ciao [02:24]
-04. Second Home (prod. by Skurt) [02:50](   Читать дальше...   )Жанр: Hardstyle, Hardcore, Nu-RaveПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975BC59DE82DCE37BFE22DAA6D40E552AE1629FC
 ```
 
 

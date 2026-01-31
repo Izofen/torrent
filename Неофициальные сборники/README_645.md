@@ -1,3 +1,30 @@
+###  Публикация: 1355071   (984866) от 25.01.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 24.01.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
+02. Rompasso - Paradise 2:51
+03. Zivert - Credo 3:04
+04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1B92A178B65F265DA86BF15523D75A4E9E3FEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355137   (984925) от 25.01.2020
 
 VA - The Official UK Top 40 Singles Chart 24.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -683,33 +710,6 @@ VA - 2016 Alive Project (2016) [MP3|320 кб/с] <Disco, Vocal, Euro, Latin Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:826539610D21EB1A2D3EA9087908A168F98555D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354393   (987623) от 22.01.2020
-
-VA - Ремиксы 2К20 2 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987623.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Anarchy17 - Восьмое марта (Remix) (3:04)
-2.Armin Van Buuren ft. Sharon Den Adel - In and Out of Love ( ALEX FLEEV REMIX) (3:44)
-3.ASPARAGUSproject - Зима (4:19)
-4.FILATOV & KARAS feat. RADA & MARIA - ЛИРИКА (efh bootleg) (2:56)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 07:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7568D61DC5B12766318958D4BABB1F58568572FE
 ```
 
 

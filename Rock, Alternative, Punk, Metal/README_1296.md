@@ -1,3 +1,327 @@
+###  Публикация: 1609814   (1042876) от 05.02.2023
+
+Adapter Adapter - Sleep Spell (2023) [MP3|320 Kbps] <Heavy Rock, Swamp Blues, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Phantom Limb
+02 Sleep Spell
+03 Flat Earth 2
+04 Gunnin' For You(   Читать дальше...   )Жанр: Heavy Rock, Swamp Blues, StonerПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37F5FDC15E9943C8C9DC0E0AD542DA8258AA454
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609987   (1042888) от 05.02.2023
+
+The Flower Kings - Adam & Eve (2004) Re-issue, 2023 Remaster, InsideOutMusic [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Supreme (19:39)
+02. Cosmic Circus (3:13)
+03. Babylon (2:30)
+04. A Vampire's View (8:47)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65AE2574FB56853B5ABBA4B92EF118BB8E7720D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610061   (1042937) от 05.02.2023
+
+Transatlantic - The Final Flight Live At L'Olympia (2023) 3xCD [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042937.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. The Absolute Universe Intro (01:52)
+ 02. Overture (07:20)
+ 03. Reaching For The Sky (05:39)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 02:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5B0C8B1108AF04E5882AB585364E4B4DFAD86A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425706   (1043052) от 01.01.2021
+
+Инкогнито - ОВЗЛ (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тени на теле
+02. Воздух
+03. Овзл
+04. Созвучны(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A4C0C1C08F1E9E51E0187FCA048299EE1D9134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436709   (1043061) от 01.01.2021
+
+Old Sea and Mother Serpent - 2 Albums (2012-2021) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wereserpents [00:20:26]
+02. The Scrag Temple [00:25:42]
+03. Subterranean Solstice [00:21:19]
+04. It Seems We Need Help of a Wizard [00:11:00]Жанр: Doom MetalПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63A2ECA16DD240B50ADFFE4985B196F616E03056
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436610   (1043081) от 01.01.2021
+
+Here Lies Man - Ritual Divination (2021) [MP3|320 Kbps] <Psychedelic Rock, Stoner, Fuzz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In These Dreams (05:15)
+ 02. I Told You (You Shall Die) (05:37)
+ 03. Underland (02:29)
+ 04. What You See (03:47)(   Читать дальше...   )Жанр: Psychedelic Rock, Stoner, Fuzz RockПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E8FEC02A7AC41DFFF4DC6DA89DD01C36373B085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436607   (1043084) от 01.01.2021
+
+Pine Ridge - Can't Deny (2020) [MP3|320 Kbps] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - So [00:01:20]
+02 - Can't Deny [00:04:34]
+03 - Someone in Your Head [00:04:04]
+04 - We Come Around [00:04:42](   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62BC5D274BD2702C904047C20886742C312F5A8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436699   (1043089) от 01.01.2021
+
+Dreams of Demise - Decipula (2020) [MP3|320 Kbps] <Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sedated (feat. Jose Bonet) [00:05:13]
+02 - Chemicals (feat. Young Choza) [00:03:54]
+03 - Lunar iridescence (feat. Bobby Hoechner) [00:05:01]
+04 - Deceptions (feat. Jose Hernandez) [00:03:55](   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE184206C6B396E9C078CA003392EA3C8526FB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436653   (1043091) от 01.01.2021
+
+Boz Scaggs - But Beautiful (2003) [FLAC|Lossless|tracks + .cue] <Vocal Pop, Torch Songs, Soul-Jazz, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - What's New
+02 - Never Let Me Go
+03 - How Long Has This Been Going On
+04 - Sophisticated Lady(   Читать дальше...   )Жанр: Vocal Pop, Torch Songs, Soul-Jazz, AORПродолжительность: 00:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C951E091EC4D0215B0BAC606395F8E2DC1F78DE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436615   (1043092) от 01.01.2021
+
+Ashley Moshe - 3 Albums (2014 - 2020) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Emocore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Грязь [00:04:08]
+02. Пудра [00:03:26]
+03. 40 [00:03:29]
+04. Тетрадь с полями [00:03:10](   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, EmocoreПродолжительность: 3 CD, 01:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA8F6791A2051EDF620722D3B630563E8BED47A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609805   (1043131) от 04.02.2023
+
+Avi Rosenfeld - Very Heepy Very Purple XIV (2023) [MP3|320 Kbps] <Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got A Riff [00:03:54]
+02. Fire And Ice ft. Damond Jiniya [00:05:12]
+03. In The Mass Grave [00:04:47]
+04. Marching Through The Gates [00:04:46](   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BE4BAB53594C381350FA8946AF98B5ECCA4C61C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609673   (1043162) от 04.02.2023
+
+David Crosby - If I Could Only Remember My Name (2021) 2xCD, Remastered, 2021, Rhino Records, 50th Anniversary Edition [FLAC|Lossless|tracks + .cue] <Folk Rock, Country Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One - Original Album:
+01. Music Is Love
+02. Cowboy Movie
+03. Tamalpais High (At About 3)(   Читать дальше...   )Жанр: Folk Rock, Country Rock, Classic RockПродолжительность: 01:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C72D57E6A146F6A9DC764999795CC15653A3EE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609671   (1043175) от 04.02.2023
 
 Слот - XX лет (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
@@ -371,329 +695,6 @@ magnet:?xt=urn:btih:BC40D9AA6E0F4E8497088C4578ED34FDF8C38C4F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12A9AFF50B9869886188A85E55877EEF83A33D70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608578   (1043340) от 02.02.2023
-
-Pain - 9 альбомов + 2 сингла (1996 - 2016) 24CD [FLAC|Lossless|image + .cue, tracks+.cue] <Electronic, Industrial rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дискография Pain (1996-2016), группы шведского мультиинструменталиста Петера Тэгтгрена.1996 - Pain (2002, Irond, CD 02-218, Russia)
-1996 - Pain (2002, Stockholm Records, 017 149-2, EU)
-1999 - Rebirth (1999, Stockholm Records, 542 139-2, EU)
-1999 - Rebirth (2008, Mazzar, MYST CD 297, Russia)Жанр: Electronic, Industrial rock, MetalПродолжительность: 18:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48DCC29AD105F65114DEFCD271A658B8468A9DD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608978   (1043358) от 02.02.2023
-
-Мачете - Ambassador (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Войны света [00:03:56]
-02. Молитва Мачете [00:05:14]
-03. Аллилуйя [00:06:26]
-04. Душа [00:04:02](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289798B21C0B2675A40330C45E362977B51199F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609289   (1043361) от 02.02.2023
-
-Ronnie Romero - Raised On Heavy Radio (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спев с Rainbow Ritchie Blackmor'а и получивший признание, а совсем недавно взяв на себя роль фронтмена Michael Schenker Group, Ronnie Romero мог бы обоснованно заявить, что на данный момент ему мало что нужно доказывать. К счастью, чилиец обладает ненасытным аппетитом к тому, что у него получается лучше всего. Продолжение великолепного прошлогоднего Raised On Radio, (   Читать дальше...   )01. The Battle Rages On (Deep Purple cover) (6:01)
-02. Metal Daze (Manowar cover) (4:21)
-03. Turbo Lover (feat. Nozumo Wakai) (Judas Priest cover) (5:30)
-04. Hallowed Be Thy Name (Iron Maiden cover) (7:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04E0CBCD85A34AAA1A6A7FF46CA9566D0045F613
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609251   (1043374) от 02.02.2023
-
-VA - Fresh Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shinedown - Planet Zero (3:42)
-02. illenium - Story of My Life (Heavy Edit)Жанр: RockПродолжительность: 02:02:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78D049D66640BE7EC8A9398E6E46F9DCA3E2E970
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608992   (1043404) от 01.02.2023
-
-Юрий Шевчук И Группа ДДТ - Сборник Песен (2021) [OGG Vorbis|480 Kbps] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белая Река
-02. В Последнюю Осень
-03. Просвистела
-04. Что Такое Осень(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B3650C8A88CEFE1B720DCF6CB1CF292655ACB4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608794   (1043438) от 01.02.2023
-
-Pink Floyd - Animals (2018 Remix) (1977) Reissue, Remastered, 2022, Pink Floyd Records [OGG Vorbis|450 Kbps] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pigs On The Wing 1
-02. Dogs
-03. Pigs (Three Different Ones)
-04. Sheep(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD1D49858D458B85851B795E79ACF77B9A6B6F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590973   (1043539) от 31.01.2023
-
-The Smashing Pumpkins - Atum: Act I-II (2022-2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - Act I
-2023 - Act IIЖанр: Alternative RockПродолжительность: 2CD, 01:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007F3C239AB7A47156011B80E2802AED3B19DCD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608703   (1043541) от 31.01.2023
-
-Steppenwolf - Magic Carpet Ride (The Dunhill / ABC Years 1967-1971) (2021) Box Set, Compilation, 8xCD, Reissue, Remastered, Esoteric Recordings [FLAC|Lossless|image + .cue] <Classic Rock, Blues  ...
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043541.jpg" />
-</div>
-
-
-###  Подробнее
-
-В конце 60-х годов Steppenwolf со своим нервным бескомпромиссным рок-н-роллом символизировала беспокойные социально-политические процессы, происходившие в обществе. Энергичный стиль Steppenwolf помог заложить фундамент хард-рока 70-х, а термин "heavy metal" впервые прозвучал в их песне "Born to be wild".
-
-Помимо этого самого известного байкерского (   Читать дальше...   )CD One - Steppenwolf – Released In January 1968:
-01. Sookie Sookie
-02. Everybody's Next One
-03. Berry Rides Again(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 07:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364257FEC102134305CAFCF96EDD710F99A1BFDA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608778   (1043543) от 31.01.2023
-
-Steppenwolf - The Epic Years 1974-1976 (2023) 3xCD, Box Set, Compilation, Reissue, Remastered, Esoteric Recordings [FLAC|Lossless|image + .cue] <Classic Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярность и влияние Steppenwolf не ослабевали до начала 1970-х годов. Но, измученные бесконечной работой над альбомами и турами, квинтет официально распался в День святого Валентина 1972 года, день, который мэр Лос-Анджелеса Сэм Йорти официально назвал «Steppenwolf Day». Затем Кей выпустил пару сольных альбомов, получивших признание критиков, Forgotten Songs and (   Читать дальше...   )CD One - 1974 - Slow Flux:
-01. Gang War Blues
-02. Children Of Night
-03. Justice Don't Be Slow(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 02:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CC13E5DB7F4EA9262453687A9DD91838E646B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608709   (1043550) от 31.01.2023
-
-Лучший Самый День - Мёртвых больше, чем живых (2021) [MP3|320 Kbps] <Punk Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На краю вселенной
-02. Солдатики
-03. Водку продали, деньги пропили
-04. Мёртвых больше, чем живых(   Читать дальше...   )Жанр: Punk Rock, Pop PunkПродолжительность: 00:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212291A1214269D4FC7140A5350871C97CE32091
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608331   (1043552) от 31.01.2023
-
-Rainbow - Long Live Rock ‘n’ Roll (1977) Reissue, Remastered, 2010, Polydor [OGG Vorbis|480 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Live Rock ‘n’ Roll
-02. Lady Of The Lake
-03. L.A. Connection
-04. Gates Of Babylon(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD4C4AF7F2E5B0CAD7EDFF62875C87390A4EF9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608542   (1043562) от 31.01.2023
-
-The Smashing Pumpkins - Atum: Act I-II (2022-2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalanche (5:43)
-02. Empires (3:10)
-03. Neophyte (4:17)
-04. Moss (2:59)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:360365827CCDF81E7908D3CAC77D27071BB4C9E8
 ```
 
 

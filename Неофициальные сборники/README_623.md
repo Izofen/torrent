@@ -1,3 +1,30 @@
+###  Публикация: 1091832   (940810) от 10.01.2017
+
+VA - 155 DJ Sound Music World Tunes (2017) [MP3|96-320 Kbps] <Club, Bigroom, Vocal, Happy Sound, Electro, Progressive, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fabelhaft Ft. Carmen & Camille - Bringing Me Back (Radio Edit) [3:31]
+002. Lowkiss Vs Ryan Riback Ft. Sarah Mcleod - Love Me Tonight [4:07]
+003. Robin Schulz Feat. Francesco Yates - Sugar [3:39]
+004. Nature One Inc. - Stay As You Are (Jerome S Official Anthem Edit Mix) [2:57](   Читать дальше...   )Жанр: Club, Bigroom, Vocal, Happy Sound, Electro, Progressive, HouseПродолжительность: 14:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7A4C35CA3726022A0EE13CBBDBFB9136506E0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092015   (941036) от 10.01.2017
 
 VA - Deep House Collection Vol. 103 (2017) [MP3|320 Kbps] <House , Deep House>
@@ -668,33 +695,6 @@ VA - New Nu Disco Funk (2020) [MP3|320 Kbps] <Funky Disco, Nu Disco, Disco House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09AE3605F7D152BE44F1723F12F96C5D72D2F841
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363613   (942319) от 28.02.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 28.02.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Billie Eilish - Everything I Wanted 4:05
-02. The Weeknd - Blinding Lights 3:22
-03. Trevor Daniel - Falling 2:39
-04. Carla Morrison - Disfruto (Audioiko Remix) 3:16(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0EE973B4CFC58F8554BEA87B3DC6853BF5AD75
 ```
 
 

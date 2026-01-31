@@ -1,3 +1,30 @@
+###  Публикация: 1438771   (1040330) от 11.01.2021
+
+Нейромонах Феофан - Десять (Live) (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] <Russian Folk Rock>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Казаки (Десять Live) [00:01:37]
+02. Ядреность - Образ Жизни (Десять Live) [00:04:05]
+03. Пляски С Медведем (Десять Live) [00:03:24]
+04. Холодно В Лесу (Десять Live) [00:02:08](   Читать дальше...   )Жанр: Russian Folk RockПродолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E49F5FF72026723FD4B703C5947609F06F0F156
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438795   (1040333) от 11.01.2021
 
 Нейромонах Феофан (Neuromonakh Feofan) - Акустика (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Russian Folk Rock>
@@ -666,33 +693,6 @@ Tiesto - SiriusXM Tiesto & Friends NYE Party (2020-12-31) [MP3|~245 Kbps (V0)] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE48488253156D9E75968E76894E7DC1CD9A9C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438426   (1041155) от 08.01.2021
-
-VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1041155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massane - No Return
-02. Marsh & Phenoir featuring Mariel Beausejour - Don't Wait
-03. Beije - Standing Between the Worlds
-04. Markus Schulz & Adina Butar - In Search of Sunrise (Watercraft Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AEE758610A12A7DAB5E3476BA49A44CCA183795
 ```
 
 

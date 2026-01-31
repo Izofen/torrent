@@ -1,3 +1,30 @@
+###  Публикация: 1409762   (440591) от 19.09.2020
+
+VA - TOP Non-Stop - House Music Before 2000 (2020) [MP3|192-320 Kbps] <Deep House, Funky House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ron Trent - Altered States (Light City mix, 1992) (3:44)
+02. Ron Trent - Poetry (15:00)
+03. Fortran 5 - Look to the Future (Start the Dance mix, 1992) (7:19)
+04. Brian Transeau - The Moment of Truth (The Blue Note dub, 1993) (5:49)(   Читать дальше...   )Жанр: Deep House, Funky House, Progressive HouseПродолжительность: 10:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D82905A36AB3026931148BA3DF53AF408AF8952
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409790   (440592) от 19.09.2020
 
 VA - ЕвроХит Топ 40 Europa Plus 18.09.2020 [MP3|320 Kbps] <Pop, Dance>
@@ -683,33 +710,6 @@ VA - Latin Beats Funky Mix (2018) [MP3|320 Kbps] <Latin, Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08202298BCF1B846BEE9596D97737D873706D528
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944122   (442762) от 06.10.2015
-
-VA - Carefree Lounge (Laidback Chillout Music) (2015) [MP3|320 кб/с]<Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything I Want - Jive Ass Sleepers
-02. Light of Day - Jive Ass Sleepers
-03. Smooth Talking - Jive Ass Sleepers
-04. Just Steam (Guitar Lead Version) - Adagio Music(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D532497DB5148FE2AC888C2D8233F0ED3B4E4C74
 ```
 
 

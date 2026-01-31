@@ -1,3 +1,30 @@
+###  Публикация: 1247702   (451378) от 16.09.2018
+
+David Forbes pres. Hal Stucker - Electronic Excursions (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Forbes pres. Hal Stucker - Celeste (Original Mix)
+02. David Forbes pres. Hal Stucker - Chaos Bowl (Original Mix)
+03. David Forbes pres. Hal Stucker - Fairlights (Original Mix)
+04. David Forbes pres. Hal Stucker - Monolith (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Progressive HouseПродолжительность: 01:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB4F69D75B4E4DACF52E922B14B27D755EA946A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247676   (451390) от 16.09.2018
 
 VA - Le Tour De Trance (2018) [MP3|320 Kbps] <Trance>
@@ -678,33 +705,6 @@ VA - Goa 2020 Vol. 3 [Compiled by DJ BiM] (2020) [MP3|320 Kbps] <Psy-Trance, Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EEA99560548A0A81BCDAA6D03B3A10D614E04D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569310   (453512) от 12.08.2022
-
-Erasure - Day-Glo (Based on a True Story) (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Based on a True Story
-02. Bop Beat
-03. Pin-Prick
-04. The Conman(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5199116020AF81BD239DC67EB887469990299E84
 ```
 
 

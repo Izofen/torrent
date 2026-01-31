@@ -1,3 +1,343 @@
+###  Публикация: 1563340   (504580) от 14.07.2022
+
+Brutality - In Mourning (1997) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obsessed (03:57)
+02. The Past (05:16)
+03. Destroyed by Society (03:36)
+04. Waiting to Be Destroyed (04:18)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE717C32AC3BCC3EFB755833127008AFB0ED40D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563358   (504661) от 14.07.2022
+
+Ebonmortis - Reconstruction by Force (2007) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Shred Asunder (05:39)
+02. Stitchface (03:29)
+03. Amid the Devil's Laughter (04:48)
+04. Cadence of the Damned (04:57)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A2C0FEC2C64FABF4D718A48A49D7333A5BE4F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 233272   (504692) от 05.09.2010
+
+Amaran's Plight - Voice in the Light (2007) [FLAC|Lossless]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive MetalПродолжительность: 01:16:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538518   (504801) от 28.08.2012
+
+Группа ТОП и Звёзды - Ночь Нежна (2005) [APE|Lossless]<Rock, Blues-Rock, Swing, Rock-n-Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая часть песен с пластинки с лиричным названием «Ночь Нежна» спета культовыми рок музыкантами: Владимир Шахрин (ЧАЙ-Ф), Вячеслав Бутусов (Ю-ПИТЕР), Вадим Самойлов (АГАТА КРИСТИ), Максим Покровский (НОГУ СВЕЛО) и Михаил Симаков (АПРЕЛЬСКИЙ МАРШ). Бесконечное обаяние, наивная романтика, исключительная динамика - под началом Евгения Горенбурга, лидера команды «ТОП». «ТОП» это юношеское восприятие мира в музыке. Свингующий джаз и бесконечный рок-н-ролл – все это про любовь. Мощь духовых, саунд ударных, мелодичность гитарных соло, рок-н-ролльный вокал – все это современно и мастерски.01. Пока Звучит Рок-Н-Ролл (Владимир Шахрин) :: 04:07
+02. Любовь - Это Дым (Вячеслав Бутусов) :: 04:46
+03. Пять Минут (Евгений Горенбург) :: 03:20
+04. Дерево (Вадим Самойлов) :: 03:34
+05. Ночь Нежна (Владимир Шахрин) :: 05:03
+06. Это Просто Слова (Вячеслав Бутусов) :: 04:01
+07. Голос В Ночи (Михаил Симаков) :: 03:22
+08. Я Только Выключу Свет (Максим Покровский) :: 04:24
+09. Зиганшн Буги (Евгений Горенбург) :: 03:32
+10. Мы Уходим В Закат (Вадим Самойлов) :: 03:39Жанр: Rock, Blues-Rock, Swing, Rock-n-RollФормат: CD, Album, CompilationПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540435   (504870) от 28.08.2012
+
+Parkket - Научиться летать (2012) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Научиться летать (03:44)
+02. Сумерки (06:06)
+03. Жизнь как вино (03:27)
+04. Я не такой как ты (03:08)
+05. До свидания (03:21)
+06. Не уходи (02:52)
+07. Не плачь (03:12)
+08. Ночь (03:07)
+09. Наше время прошло (04:31)
+10. Друзья (03:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F46D1F7DED9E55AD2D94916FF23AFAA2760713E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538164   (504876) от 28.08.2012
+
+Charlie Shred - Charlie Shred (2012) [FLAC|Lossless]<Power Metal/Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arise (0:48)
+02. Panic (4:25)
+03. Death Comes to All (5:04)
+04. The Rose (3:56)
+05. Tainted Inside (3:34)
+06. Time to Die (3:00)
+07. The Ancestors Guide (3:15)
+08. Game Over (5:12)
+09. Wellcome to Hell (4:11)
+10. Fall Down (6:30)(   Читать дальше...   )Жанр: Power Metal/Heavy MetalПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316746   (505016) от 27.07.2019
+
+Наутилус Помпилиус (Nautilus Pompilius) - Серебряный век (2015) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Титаник
+02. Дыхание
+03. Утро Полины
+04. На берегу безымянной реки(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062C9CB7D5B9BE3B4837C7272A10F8BECFF65680
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933739   (505061) от 02.09.2015
+
+Amorphis - Under The Red Cloud (2015) Limited Edition [MP3|320 кб/с]<Progressive, Doom, Folk, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under the Red Cloud
+02. The Four Wise Ones
+03. Bad Blood
+04. The Skull(   Читать дальше...   )Жанр: 01:00:04Продолжительность: Progressive, Doom, Folk, Melodic Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:822DEC915FF74299CAE474C84C2822EE7560ACE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316662   (505070) от 27.07.2019
+
+Babooshka - На страже Православия (2019) [MP3|320 Kbps] <Punk Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На страже Православия
+2. Материнский капитал
+3. Мне всегда 88
+4. Стань скином(   Читать дальше...   )Жанр: Punk Rock, AlternativeПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F1F228ECE529B9E3297D9D7412EA59FB15AA1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933505   (505269) от 02.09.2015
+
+Motorhead - Bad Magic (2015) [FLAC|tracks+.cue]<Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victory Or Die
+02. Thunder & Lightning
+03. Fire Storm Hotel
+04. Shoot Out All Of Your Lights(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC0B35131059B0CE64FC025A2BDE462BA50919BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563139   (505384) от 13.07.2022
+
+Project Pain - 3 Studio Albums (2012-2018) 3xCD [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505384.jpg" />
+</div>
+
+
+###  Подробнее
+
+2012 - I Have Sinned
+2015 - Thrashed To Kill
+2018 - Brothers In Blood
+(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:178D9484497FB086C3028C7DA4C4E16D6BD58956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563136   (505385) от 13.07.2022
+
+Molotov - Con Todo Respeto (2004) [FLAC|Lossless|image + .cue] <Alternative Rock, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amateur (cover of «Rock Me Amadeus» by Falco)
+02. Dise?o Rolas (cover of «Designer Music» by Lipps Inc)
+03. Marciano (Martian) (cover of «I Turned into a Martian» by The Misfits)
+04. The Revolution Will Not Be Televised (La Revo) (cover of the original by Gil Scott-Heron)(   Читать дальше...   )Жанр: Alternative Rock, Rapcore
+Страна исполнителя: Mexico (Mexico City)Продолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F9E580E3314C979D511093E881E75BB8F91FD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563226   (505386) от 13.07.2022
 
 Protector - 4 Studio Album (1988-1993) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
@@ -372,333 +712,6 @@ Praying Mantis - Legacy (2015) [OGG| 489-523 кб/с]<Melodic Heavy Metal, Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB80E2EB4EA072104621372B2259C3B6E46CC61C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232759   (506198) от 03.09.2010
-
-Виктор Зинчук - 6 альбомов (1994-2005) [FLAC|Lossless]<Neoclassical, Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506198.jpg" />
-</div>
-
-
-###  Подробнее
-
-?. Вариации на славянскую тему (2:53)
-01 Чардаш. Монти (3:37)
-02 Тико-Тико (4:01)
-03 Лебедь. Сен-Санс (2:57)
-04 Токката (3:31)
-05 Воздушные хлопья кукурузы (4:38)
-06 Эль-бимбо (3:49)
-07 Вальс К (5:13)
-08 Романс. Бетховен (5:56)
-09 Воспоминания об Альгамбре (3:26)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562996   (506219) от 12.07.2022
-
-E.S.T. - Russian Vodka (Demo) (1988) Mini-Album, 2022, Limited Edition [MP3|320 Kbps] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Перестройка [00:03:45]
-02 - Телеги [00:02:45]
-03 - Сука [00:02:23]
-04 - Russian Vodka [00:02:18](   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:22:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A70A45CE7E7E86BD43E48DF961ACEB8AEAC1C06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563025   (506222) от 12.07.2022
-
-Джанни Родари - Призрак Тома Джоуда (2021) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Призрак Тома ДжоудЖанр: Rock, SkaПродолжительность: 00:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9055847400BD7DAAC33935F447B1F17075D4BE93
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563120   (506223) от 12.07.2022
-
-Blue Goose - Blue Goose (1975) Japanese Edition, 2004, Air Mail Archive [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Struttin’ Stuff
-02. The Chorus
-03. Call On Me
-04. Loretta(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E298DEAFE4E1D9CCA099C7990DF699F1AAE82F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563189   (506224) от 12.07.2022
-
-Soulipsist - Гештальт терапия. Сеанс 1 (2022) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Гештальт терапия [00:01:12]
-02 - Геликоптер [00:02:57]
-03 - Манга [00:04:12]
-04 - Самурай [00:02:58](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24A38345D1D917D29AC5C75A828FD47DB772F07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563143   (506225) от 12.07.2022
-
-Molotov - Con Todo Respeto (2004) [MP3|320 Kbps] <Alternative Rock, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amateur (cover of «Rock Me Amadeus» by Falco)
-02. Dise?o Rolas (cover of «Designer Music» by Lipps Inc)
-03. Marciano (Martian) (cover of «I Turned into a Martian» by The Misfits)
-04. The Revolution Will Not Be Televised (La Revo) (cover of the original by Gil Scott-Heron)(   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F5651A3FD5C1E5115C8862EA343365E6E17B8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933037   (506248) от 01.09.2015
-
-Pentagram - Curious Volume (2015) [OGG| 486-535 кб/с]<Doom Metal, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Down And Die
-02. The Tempter Push
-03. Dead Bury Dead
-04. Earth Flight(   Читать дальше...   )Жанр: Doom Metal, Hard Rock, Heavy MetalПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9080E768E8A4EFB143D0946951DAF74470F55A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933217   (506255) от 01.09.2015
-
-The Rubens - Hoops (2015) [OGG| 477-516 кб/с]<Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallelujah
-02. The Night Is On My Side
-03. Hoops
-04. Switchblade(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460A34FAD2F517ABD3E1CB49C1F4D7531690B913
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933132   (506259) от 01.09.2015
-
-Carousel - 2113 (2015) [OGG| 438-478 кб/с]<70's Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble
-02. Photograph
-03. Buried Alive in Your Arms
-04. Jim’s Song(   Читать дальше...   )Жанр: 70's Hard RockПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280CBC9C5C2C7BE2241D8405791147A549DDAF86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563104   (506309) от 12.07.2022
-
-Meei - The Aftermath (2022) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:51)
-02. The Condescending Scribe (3:34)
-03. The Dune (4:03)
-04. Guilt (4:52)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A527C0C18DFBFD435030D8445D25E9B215348BF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563075   (506310) от 12.07.2022
-
-Forest Fire - Осколки (2022) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Стеклянный Мир [00:03:32]
-02 - Точка Невозврата [00:03:03]
-03 - Зеркало [00:03:06]
-04 - Не Вернуть [00:03:50](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07415259A901F7B6E51387DE8F8FA8E40E8D6816
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563069   (506311) от 12.07.2022
-
-Vanquisher - An Age Undreamed Of (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nemedian Chronicle
-02. The Pride Of Aquilonia
-03. Storming Venarium
-04. Ode To the Slain(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E3D7C232167BE2299BA469A073268715C9CDB3
 ```
 
 

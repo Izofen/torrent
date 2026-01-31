@@ -1,3 +1,84 @@
+###  Публикация: 1359611   (961986) от 14.02.2020
+
+Орбита - Raketa (2002) [MP3|320 Kbps] <Pop, Europop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_961986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вот Такая Любовь [3:33]
+02. Что Же Делать [5:05]
+03. Нарисуй [4:09]
+04. Последний Раз [4:15](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270DA909B8F006B4A7E1B43822BB50825C80D013
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978833   (962159) от 24.01.2016
+
+VA - Piano Music For Weddings (2011) [MP3|320 кб/с] <Pop, Easy listening>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Only Just Begun (Stan Whitmire) (3:20)
+02. I Will Always Love You (Pat Coil) (5:02)
+03. The Wind Beneath My Wings (David Hamilton) (4:59)
+04. So This Is Love (The Cinderella Waltz) (David Huntsinger) (3:07)(   Читать дальше...   )Жанр: Pop, Easy listeningПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34CBD9BECA0C7A2D1A47BADB75B0129D58BA0379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978563   (962512) от 24.01.2016
+
+Philippe Chatel - Renaissance (2016) [MP3|320 кб/с] <Chanson, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 heures du matin (2:49)
+02. L'absence (4:07)
+03. La fille dans la bouteille (3:03)
+04. Chanson du pere (2:26)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5836D223A03707FE1829C16D1F7C37119F704E27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1359704   (963092) от 13.02.2020
 
 VA - 100 Greatest Jukebox Hits (2020) [MP3|320 Kbps] <Pop, Rock, Other>
@@ -614,87 +695,6 @@ Deborah Harry - Debravation (1993) [APE|Lossless|image+.cue] <Pop Rock, Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13D39D2EC139BBCCD68826F783A4764C450CCFAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977356   (966572) от 20.01.2016
-
-VA - Nonplusultra: Pop 90er (2007) 5CD Box-Set [MP3|320 кб/с]<Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых популярных песен 90-х годов прошлого столетия01. Bangles - Eternal flame (Album Version) (03:57)
-02. Crash Test Dummies - Mmm Mmm Mmm Mmm (03:54)
-03. Shabba Ranks feat. Chevelle Franklin - Mr. Loverman (Radio Mix) (03:39)
-04. TLC - Waterfalls (Single Edit) (04:12)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F13AB26C57E55E933484BEF8232FEEA3121CFA42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977225   (966633) от 20.01.2016
-
-VA - Nonplusultra: Pop 80er (2007) 5CD Box-Set [MP3|192 кб/с]<Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник самых популярных песен 80-х годов прошлого столетия01. Bangles - Eternal flame (La flama enternal) (Album Version) (03:55)
-02. Marvin Gaye - Sexual healing (Album Version) (03:58)
-03. Cyndi Lauper - True colors (Album Version) (03:49)
-04. Terence Trent D'Arby - Sign your name (Album Version) (04:38)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977C9C8D94A107BD4AED84E15979AACA270FEE48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358754   (967133) от 09.02.2020
-
-Al Bano & Romina Power - Raccogli l'attimo (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_967133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raccogli l’attimo
-02. Per troppo amore
-03. La luce che hai
-04. Fuori pericolo(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F28967F9C1FE420EB4E3A9F20CEA7E0C75971640
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1479617   (1009534) от 24.06.2021
+
+VA - 30(6) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arsenium & Ханна & Tymma - Coco-Inna (remix) (2:38)
+02. Las Olas - You Are My Heart You Are My Soul (Remix) (3:06)
+03. Bhaskar Moguai - Shadows (2:34)
+04. GAYAZOV$ BROTHER$ - Больше мне не наливать (3:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3998DBF090D71B133E26656DF1EAA655FEB5B3B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479362   (1009538) от 24.06.2021
 
 VA - HGM: Deep House Project June (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -668,33 +695,6 @@ Murаli Соryеll - A New Life (2021) [MP3|320 Kbps] <Blues, Rock Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED407DF530637011CD5A6336F0642EA35303941D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478156   (1010481) от 18.06.2021
-
-VA - Fly Dancing: Dancehall Summer Party (2021) [MP3|320 Kbps] <Dancehall, Dub Riddim, Reggaeton>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010481.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Teejay - Clean Like Jesus
-002. Determine - Send It Back A Yard
-003. Wikyd - Me She Like
-004. Stranjah Miller - Israelites(   Читать дальше...   )Жанр: Dancehall, Dub Riddim, ReggaetonПродолжительность: 04:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5645E367E4CBCE9332DD08952C0AD5ADA8770E7
 ```
 
 

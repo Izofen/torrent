@@ -1,3 +1,30 @@
+###  Публикация: 1051402   (532575) от 11.09.2016
+
+VA - Conversations With Myself (2016) [MP3|320 Kbps] <Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532575.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Bowie - Diamond Dogs
+002. Iron Savior - Rebellious
+003. Katatonia - Passer
+004. Lacuna Coil - Live to Tell(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 07:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5EAF0AEB6934596DB7552ED936E5E2ABEE041D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 533484   (532745) от 10.08.2012
 
 VA - Guitar Classics-The Best Singer Songwriters (2010) [MP3|320 кб/с]<Guitar, Acoustic>
@@ -686,33 +713,6 @@ VA - Музыкальное Наслаждение Радио Шансон (2016
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:842F6BFCB8465849AF06AEAC7AA8B02CBC1A6A1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050961   (534652) от 10.09.2016
-
-VA - Танцевальная хитовая дискотека. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534652.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Good Lyfe & Vermosa Feat. Brkln - After Midnight
-002. Florrie - Real Love
-003. Robin Schulz & M-22 Feat. Aleesia - Love Me Loud
-004. Felix Jaehn Feat. Polina - Book Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD15A628B7771F51BD2DB582ABED4AFC595CAFD
 ```
 
 

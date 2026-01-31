@@ -1,3 +1,30 @@
+###  Публикация: 1563797   (502756) от 16.07.2022
+
+Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502756.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Waiting on You
+2. Gardens of Misery
+3. Dreams
+4. Dying For(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AAADD045B3A8E171F3AFEB372BE2E59C22E114
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563801   (502760) от 16.07.2022
 
 True North - Out Loud (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
@@ -665,33 +692,6 @@ Greg Puciato - 3 Albums / 3 Singles (2020-2022)  Federal Prisoner Record [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBC68CDCFDCA955A3ABC64F8427231D64A7DBFB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561173   (515588) от 04.07.2022
-
-Gorillaz - Gorillaz (2001) 2CD, 20th Anniversary, Deluxe Edition, 2021, Parlophone [FLAC|Lossless|tracks] <Art Pop, Trip-Hop, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Re-Hash (Instrumental) [00:03:32]
-02. 5/4 (Instrumental) [00:02:35]
-03. Tomorrow Comes Today (Instrumental) [00:03:07]
-04. New Genious (Brother)Жанр: Art Pop, Trip-Hop, ElectronicПродолжительность: 2CD, 01:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F18A6C3A0DCDC4EB27B8934A28076A9BF011509
 ```
 
 

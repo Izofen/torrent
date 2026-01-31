@@ -1,3 +1,192 @@
+###  Публикация: 1211108   (778069) от 05.03.2018
+
+ДиДюЛя & Chris Wonderful - Аквамарин (2017) [FLAC|Lossless|image + .cue] <Instrumental, Flamenco, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свадебное путешествие (4:16)
+02. Страна дураков (3:59)
+03. Белый месяц (3:41)
+04. Посох шамана (3:48)(   Читать дальше...   )Жанр: Instrumental, Flamenco, New AgeПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50895595C4F6B115FF169FE69F992B65446617D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210964   (778148) от 05.03.2018
+
+Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Son of Krishna (6:50)
+02. Human Nature (7:25)
+03. In Search of the Truth (8:06)
+04. Dhamma (7:25)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EF6BD4B6D9259D011D4DC11260B5A9544DA28C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210916   (778166) от 05.03.2018
+
+Arthur Fieldler & The Boston Pops - Pop Concert Favorites (1992) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stars and Stripes Forever (Sousa) (3:27)
+02. The Syncopated Clock (2:21)
+03. Home On the Range (3:15)
+04. Yankee Doodle (2:33)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4944A80D033C4786762616683AD6799CAD6231DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012754   (778285) от 02.05.2016
+
+Андрей Данилко - После тебя... (2005) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отрываясь от земли (5:40)
+02. Весна (4:00)
+03. Собирая жёлтые листья (3:53)
+04. 22 (4:50)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B19A48762073533024599D9A7BC27FEEB39274
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012796   (778332) от 02.05.2016
+
+Will Brady - 3 альбома (1997-2009) [MP3|192 кб/с] <Instrumental, Blues, New-age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental, Blues, New-ageПродолжительность: 00:24:55
+
+01. Mr Gibson
+02. La Llorona(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF4A207FB9F5622E5A81E28605985B5EABC0801
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012703   (778361) от 02.05.2016
+
+Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle Spirit    11:13
+02. Sacred Companion    07:46
+03. And Wings to Protect You    04:14
+04. Watcher of Heaven    07:57(   Читать дальше...   )Жанр: New Age, Celtic, InstrumentalПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE95D445FCB04063321E1FC57CA4EC0C9297559
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210692   (778474) от 04.03.2018
+
+Francis Goya - Collection 2CD,  (2005) [FLAC|Lossless|image + .cue] <Acoustic Guitar, Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Story (3:33)
+02. El Condor Pasa (3:12)
+03. Those Were The Days (3:10)
+04. Zorba's Dance (4:31)(   Читать дальше...   )Жанр: Acoustic Guitar, Instrumental, FlamencoПродолжительность: 02:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D71B449632E79E20B436840030E489E74F6B818E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210785   (778520) от 04.03.2018
 
 Valefim Planet - Heart Of The Sun (2018) [MP3|320 Kbps] <Enigmatic, New Age>
@@ -506,195 +695,6 @@ Midori - The Healer (2018) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76B07D438DBA32E548A2E46D8AFF2A7476428048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209189   (779259) от 27.02.2018
-
-Acoustic Garden - Concept Emotional (2018) [MP3|320 Kbps] <Country, Folk, Blues>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Ready To Lose
-02. Always
-03. The Present
-04. Change The Weather(   Читать дальше...   )Жанр: Country, Folk, BluesПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A0CE063E76BE3FB2C67448B0444D26EE8D3D18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209156   (779264) от 27.02.2018
-
-Jay Stapley - Ambient Blues (1996) [MP3|320 Kbps] <New Age, Blues, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambient Blue  [12:08]
-02. Loop.E.Lou  [8:27]
-03. Delta Curve  [9:24]
-04. Sleepin'n'Slidin  [4:23](   Читать дальше...   )Жанр: New Age, Blues, WorldПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D28987696CAB0191C9EC8DC61FB2251997817A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209237   (779272) от 27.02.2018
-
-David Davidson - Celtic Dreams (2018) [MP3|320 Kbps] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anois Feicim Do Bhron
- 02. Damhsa Tine
- 03. Sally Garden
- 04. A Feitheamh Le Do Theacht Ar Ais(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:334C3FE4C2B21ADCDE5616A7BAADAE32B4AF2C9A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209354   (779273) от 27.02.2018
-
-Wychazel - Akashic Dream (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779273.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deja Vu (9:44)
-2. Akashic Dream (12:00)
-3. Alcoves and Passages (8:42)
-4. Life After Life (10:42)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4D6DF780ACCFB61DDA19B36CCD50759660DE4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209402   (779281) от 27.02.2018
-
-Andrew Kinsella - Cosmic Dawn (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779281.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cosmic Dawn (10:20)
-2. Primal Seed (8:42)
-3. Convergence (5:05)
-4. Stardust (8:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B72532E34CBB01FD270CE18478C4A4FC5C06825
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209286   (779288) от 27.02.2018
-
-Mathieu Age - Feminin Sacre (2018) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liberation salvatrice (3:31)
-02. Energie interne (3:43)
-03. D'ouverture a la guerison Reiki (3:26)
-04. Musique therapeutique (4:17)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9185269FDF90E6AF6E64CF4AB5C7409472888C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209177   (779520) от 25.02.2018
-
-VA - Amazing Piano Music (2018) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenny Bern - Simple Piano
-02. Gregory Aigersson - De-Stress
-03. Daniel Philo - Life On the Line
-04. John Flame - Notice Me(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C23BB5C61E0529B0B0F13FE9EE43D94D5AB1C7
 ```
 
 

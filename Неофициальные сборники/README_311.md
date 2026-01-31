@@ -1,3 +1,30 @@
+###  Публикация: 1240648   (523389) от 13.08.2018
+
+VA - Mega Pack Russian Retro 90's Remix 2018 [MP3|320 Kbps] <Euro-House, Eurodance, Europop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523389.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 - t.A.T.u - Скажи зачем
+002 - Лика - Одинокая луна (Ural DJ's Boot Extended Mix)
+003 - Светлана Разина - Зима (Efimenko Synthpop Remix)
+004 - A-Mase Sharliz - Мало огня (Линда Cover Radio Mix)(   Читать дальше...   )Жанр: Euro-House, Eurodance, EuropopПродолжительность: 45:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA83F119D3DABB507DCBD9290D7DE5482E65E01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240651   (523395) от 13.08.2018
 
 VA - Club Dance Ambience Vol.159 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
@@ -674,33 +701,6 @@ VA - Acoustic Hour - We Are Independent Vol.2 (2016) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7233C24D1F4DC2F832F96F2302DE4CB9616EBECB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313314   (524455) от 08.07.2019
-
-VA - Hedkandi Summer (2019) [MP3|320 Kbps] <Dance, Pop, Electro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_524455.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alvaro Soler - La Cintura
-002. C-Bool - Wonderland
-003. Marshmello & Anne-Marie - Friends
-004. Jack And The Other - The Drift(   Читать дальше...   )Жанр: Dance, Pop, ElectroПродолжительность: 09:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B22C6B99D99943DF800A2C6AB1943F75A16DC82
 ```
 
 

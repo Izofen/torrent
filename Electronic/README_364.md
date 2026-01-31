@@ -1,3 +1,30 @@
+###  Публикация: 1399055   (725070) от 02.08.2020
+
+Dormantgod - Animated Bas-Reliefs (2007) [FLAC|Lossless|image + .cue] <Dark Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725070.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maker Of Planets And Moons (05:54)
+2. Sub-Antarctic Nightmare (04:10)
+3. Unearthing Of The Crinoideans (05:08)
+4. Elliptic Fall (08:11)(   Читать дальше...   )Жанр: Dark AmbientПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16293AEB255D712F729B9BC56A5C6BBFAFFB5CED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218035   (725085) от 08.04.2018
 
 VA - DJ Robert Miles - In The Mix (1997) Mixed [FLAC|Lossless|image + .cue] <Breakbeat, Goa Trance, Progressive Trance>
@@ -663,33 +690,6 @@ VA - Chillaxed Hawaii Nights (2016) [MP3|320 кб/с] <Chillout, Downtempo, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE072637C3063BCFD4E1AE70020A01430707668D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023133   (726733) от 04.06.2016
-
-VA - Bar & Lounge Music Vol. 2 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polished Chrome - Laid-Back
-02. Luis Hermandez - Havanna Nights
-03. 1605 - Complicated
-04. Glint - Elegant Gentry(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE0BCB163E569DBD30EC29E034C51AB8DF2AB361
 ```
 
 

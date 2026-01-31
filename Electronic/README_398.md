@@ -1,3 +1,30 @@
+###  Публикация: 1206024   (782914) от 12.02.2018
+
+Don Diablo - Future (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to Us (feat. Mike Waters) (03:00)
+02. Everybody's Somebody (feat. Bully Songs) (03:18)
+03. Put It On For Me (feat. Nina Nesbitt) (03:23)
+04. Give Me Love (feat. Calum Scott) (03:28)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C5CA7D139D61D588E260F8FB2880A6BE44BD4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206081   (782937) от 12.02.2018
 
 Spaceinvader - Escape (2018) [MP3|320 Kbps] <Synthwave, Darksynth, Retrowave>
@@ -667,33 +694,6 @@ Synth Dimension - Dreams Of Electronic Mind (2013) Full Edition [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1334EA39508496029FD7E1C93AC10F880FC4076D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390179   (783402) от 14.06.2020
-
-Grum - Deep State Deluxe (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep State (02:17)
-02. Stay (Feat. Natalie Shay) (Extended Mix) (08:54)
-03. Lose Control (Extended Mix) (06:46)
-04. Tomorrow (Feat. Dom Youdan) (Extended Mix) (06:28)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trance, DowntempoПродолжительность: 01:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A81668A8FAA4E78B6437C9BD501536B2488295
 ```
 
 

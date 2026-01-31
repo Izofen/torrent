@@ -1,3 +1,30 @@
+###  Публикация: 1285813   (719062) от 27.02.2019
+
+Voin Oruwu - Etudes From A Starship (2019) Kvitnu [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, IDM, Leftfield>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titan (02:14)
+ 02. Rising (03:12)
+ 03. Blur Planet (04:35)
+ 04. Source (02:12)(   Читать дальше...   )Жанр: Experimental, Ambient, IDM, LeftfieldПродолжительность: 00:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753B54A9A3B0D45A9B903DFE41093DBF76A2D2A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285833   (719063) от 27.02.2019
 
 VA - Pure Energy Records Vol. 1 (Incl.Exclusive Mixed by Trance Arts) (2018) [MP3|320 Kbps] <Trance>
@@ -665,33 +692,6 @@ Fedde Le Grand - Something Real (2016) [MP3|320 кб/с] <Electro House, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70017BCA624EC50FF8305C9CF592B8034BCE5544
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023931   (720657) от 07.06.2016
-
-Hydrangea - Dawn Lights (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic,  Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anomala (Intro) (1:21)
-02. First (6:03)
-03. Second Degré (4:59)
-04. Hope (5:23)(   Читать дальше...   )Жанр: Electronic,  Ambient, TechnoПродолжительность: 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA45EC9D39B1C4DFFFA06215DE28EB1785D026C2
 ```
 
 

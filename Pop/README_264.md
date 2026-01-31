@@ -1,3 +1,84 @@
+###  Публикация: 1526413   (738487) от 24.01.2022
+
+Madeline Juno - Besser kann ich es nicht erklaren (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neukölln (3:52)
+ 02. Obsolet (3:04)
+ 03. Jedes Mal (3:15)
+ 04. Tu was du willst (3:11)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86C555822107B643A1B5AC9938696B1DE63DC4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526503   (738489) от 24.01.2022
+
+Sam Martin - Blue Tuesday (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Was Always You (4:00)
+ 02. All My Tears (2:41)
+ 03. I Still Haven't Found What I'm Looking For (3:39)
+ 04. A Day In The Life (3:58)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94058FC10A61408234BCC418CC679E2DB2A22A98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526156   (738778) от 23.01.2022
+
+VA - Romantic Songs (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carmody - Ain't No Mountain High Enough (2:47)
+02. Echosmith - Tell Her You Love Her (Acoustic) (4:19)
+03. The Cars - Drive (3:54)
+04. Ed Sheeran - How Would You Feel (Paean) (4:40)(   Читать дальше...   )Жанр: PopПродолжительность: 01:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD87C743BE8494B54E377C97B853558F8DA3CA2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526129   (738792) от 23.01.2022
 
 Ally - With You In The Room (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -614,87 +695,6 @@ Robbie Williams - Under The Radar Volume 3 (2019) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABA1FFBD3EB7E037DE163A28A9F80329CF060FBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283014   (741049) от 15.02.2019
-
-VA - Sanremo 2019 (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741049.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Loredana Berte' - Cosa ti aspetti da me
-02. Ultimo - I tuoi particolari
-03. Patty Pravo & Briga - Un po' come nella vita(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D05EEC26846030AAC8300C49ED013ADD886004F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283017   (741058) от 15.02.2019
-
-Robbie Williams - Under the Radar, Vol. 3 (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741058.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Impossible
-2. Gold
-3. Dirty Rotten
-4. Good People(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2742B9C5AA595456AA4E094D7E2498C83883CC7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283144   (741060) от 15.02.2019
-
-VA - Italo Disco Evolution (2018) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cy-Ro - It's All up to You (Extended Mix) 05:56
-02. Michelle Rose - Hard to Say I'm Sorry (Extended Mix) 06:11
-03. Ciao Ciao - The Magic of Sunshine (Extended Mix) 06:07
-04. Francis Cooper - Pretty Woman (Extended Mix) 05:50(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54D36BED608878E4D3C2FE7F4BE342C55FF3F66F
 ```
 
 

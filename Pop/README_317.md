@@ -1,3 +1,84 @@
+###  Публикация: 1102199   (891165) от 09.02.2017
+
+Patrick Remy - Constellations (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quasar 3c 273 (3:44)
+02. Berenice (3:45)
+03. Magellan (6:25)
+04. Zeta (3:40)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:351B7355A153CDE54B4238DC24F1C4323368538C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994008   (891310) от 07.03.2016
+
+VA - All Time Joy Classics Volume 1-3 (2011-2015) [MP3|320 кб/с] <Pop, Soul, Jazz>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891310.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bob Dylan - One More Cup of Coffee (3:42)
+ 2. Joan Baez - Diamonds and Rust (4:45)
+ 3. Simon & Garfunkel - The Sound of Silence (3:04)
+ 4. Bill Withers - Ain't No Sunshine (2:02)(   Читать дальше...   )Жанр: Pop, Soul, JazzПродолжительность: 08:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD28080385108B79521961FF15A36A61AFE525F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994417   (891322) от 07.03.2016
+
+VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как видите стараниями коллег по клубу серия немецкого подразделения Sony Music продолжает жить на нашем трекере (ссылка на все релизы серии внизу поста). Пожалуй, именно у нас на трекере самое полное собрание этой серии. В данном боксете представлены хиты мира диско. Вспомним как это было!CD1:
+01. Boney M. - Daddy Cool  (3:28)
+02. Baccara - Yes Sir, I Can Boogie  (4:29)
+03. Patrick Hernandez - Born to Be Alive  (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 03:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89879A135FB66087933FA1A38E3CA8D84E5FFA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994372   (891442) от 07.03.2016
 
 Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image + .cue] <Pop, Dance Pop>
@@ -613,84 +694,6 @@ DJ Andersson - Crazy Cool Hitmix (2006) [FLAC|Lossless|image + .cue] <Disco,  El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:807B31BB62A48E621EFC6D97D6E508A5AE870F51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 295500   (894361) от 14.02.2011
-
-Светлана Владимирская - 2 CD (1993/2005) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_894361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Pop ||Продолжительность: 00:39:56
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992954   (895232) от 05.03.2016
-
-VA - Romantic Collection vol.1 (2000) [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. House Of The Rising Sun-Animals (04:30)
-02. Wind Of Change-Scorpions (05:13)
-03. Hotel California-Eagles (06:32)
-04. In The Death Car-Iggy Pop (05:12)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F5A1B6B05CD2CBD7E8AFAA3214D2D5B38A70A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993296   (895254) от 05.03.2016
-
-Boney M. - The Greatest Hits (2001) Compilation [FLAC|Lossless|image + .cue] <Europop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Daddy Cool 03:29
-02.Rivers Of Babylon 04:22
-03.Brown Girl In The Ring 04:03
-04.Ma Baker 04:36(   Читать дальше...   )Жанр: Europop, DiscoПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:213B1C84D4CC1C3E2A95E8B33F344CFD1B2E072E
 ```
 
 

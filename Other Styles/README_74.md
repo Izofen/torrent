@@ -1,3 +1,187 @@
+###  Публикация: 1161394   (465639) от 29.08.2017
+
+Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] <Meditative, Ambient, Chants>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakti Prayer (25:23)
+02. Ripples Of Beauty (29:00)Жанр: Meditative, Ambient, ChantsПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94140A35F1076464024036E9690B830C148AB6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161473   (465644) от 29.08.2017
+
+Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Rain	4:47
+02.	Lalo Cura	5:59
+03.	Haiku4	0:23
+04.	Butterfly Dream	4:29(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98A69919B84286094F909B5A0D4BBD57E054FF1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407418   (466395) от 07.09.2020
+
+The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Your Arms Again
+02. Lies
+03. Born To Be Blue
+04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39A099F83FA7C38A13098746D355E7C53964240B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407299   (466396) от 07.09.2020
+
+The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Sitiera
+02. Recuerdos
+03. No Vale la Pena
+04. Poder Vivir(   Читать дальше...   )Жанр: Latin, Country, TejanoПродолжительность: 00:49:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC35407B8D019938034182567EEFB738C983FD76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407419   (466398) от 07.09.2020
+
+The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In Your Arms Again
+02. Lies
+03. Born To Be Blue
+04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43D449F042CE44C44752F8602AE03C55BE953A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940731   (466746) от 25.09.2015
+
+The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC|Lossless]<Instrumental, Easy listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Tonight I Celebrate My Love
+03. Body Talk
+04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417C6CCC4DE995D3C92BA9AAF04AB03361C860EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548433   (466764) от 18.09.2012
+
+ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная аудиопрограмма>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Психоактивная аудиопрограммаПродолжительность: 00:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BC1BEC724F23CE3EF9E6F5239FE3D87D6B7B908
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1161253   (467372) от 28.08.2017
 
 VA - Magic Is The Moonlight/ South Sea Island Favorites (2000) [MP3|320 Kbps] <Instrumental, Vocal, Easy Listening>
@@ -526,192 +710,6 @@ The Romantic Strings Orchestra - The Greatest Love Of All (1998) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DEB85778A0EE33DD408119DF08F10E496F9331
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701825   (471884) от 20.09.2013
-
-Bill Frisell - 6 альбомов (2004-2013) [FLAC|Lossless]<Contemporary Jazz, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Contemporary Jazz, Instrumental |Продолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132E20CA9A4A15392BC788FE7EE2FB5BE8B59A0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245579   (471909) от 06.09.2018
-
-Relaxing Piano Music & Sleep Baby Sleep - Newborns - Relaxing Pregnancy Music (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Lullabye for Alice Grey (Amazing Bedtime Music)	5:09
-02 Native American Massage Music	6:45
-03 Ocean Waterfall  4:08
-04 Relax Your Soul B 4:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84549EEBABA46B14EFB0CADF86D2391F8D2A3FE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245470   (472014) от 06.09.2018
-
-Jan Pham Huu Tri & Gabin De L’Auray - Gentle Acoustic Guitar (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumemtal, Guitar, Downtempo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Togetherness (*) 01:58
-02. Holiday Souvenir (*) 01:49
-03. Lasting Friendship (*) 01:30
-04. Sunshine Hug (*) 01:45(   Читать дальше...   )Жанр: Instrumemtal, Guitar, DowntempoПродолжительность: 00:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48E6900250E0E92BD55B71E24FB3C1AE69A54AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701841   (472067) от 20.09.2013
-
-IchPak - De mo (2013) Авторская раздача [MP3|320 кб/с]<untitled>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_472067.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:53] 01 - SOFA
-[04:15] 02 - Atusubitu
-[03:03] 03 - 12на5
-[01:16] 04 - Bionic Commando Groder's Anthem cover(   Читать дальше...   )Жанр: untitledПродолжительность: 00:26:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFF13FF1958CFB03C008B1F9557F4CE09993D50
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797289   (473540) от 05.09.2018
-
-Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:43)
-02. The Rains of Castamere* (02:42)
-03. Breaker of Chains (04:05)
-04. Watchers On the Wall (02:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 1:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939416   (473558) от 22.09.2015
-
-Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Hat Blues (02:49)
-02. When It Comes To Loving You (02:41)
-03. Darlin Its A Waste Of Time (03:28)
-04. The Chores Song (03:06)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12B785EC0BA5D2F1562051DE74912CA3073BB14A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939410   (473564) от 22.09.2015
-
-Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes the Heartache (03:27)
-02. I've Been Drinkin' More (03:34)
-03. Hot Mouth Mama (02:32)
-04. Fancy Limousine (03:29)(   Читать дальше...   )Жанр: Texan CountryПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E1CD728A3D576164054C50FF6EBADE04390C0C
 ```
 
 

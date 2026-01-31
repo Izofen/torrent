@@ -1,3 +1,30 @@
+###  Публикация: 925008   (543007) от 05.08.2015
+
+VA - Hits Dance 2015 Surrender (2015) [MP3|320 кб/с]<Pop, Disco, Hands Up, Club, EDM>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_543007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L.A.R.5 & Mg King - Work It Out (Radio Edit)
+02. Etania - Warriors Of Love (Radio Edit)
+03. Denis Pewny Feat. Julia - Hero (Club Mix Edit)
+04. Tainos Feat. Alycia Stefano - Pam Pam (Latin Edit)Жанр: Pop, Disco, Hands Up, Club, EDMПродолжительность: 11:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84E5997E63481FF645C7F7A40E57D4B3A39549E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924977   (543075) от 05.08.2015
 
 VA - Rainbow Dance Hit (2015) [MP3|320 кб/с]<Pop, Dance, Club>
@@ -666,33 +693,6 @@ VA - Falling: Synthpop Compilation (2019) [MP3|320 Kbps] <Electropop, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:172B1139C5D0815C93A7AC0E2DC8A2ADE1491F46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048829   (545271) от 03.09.2016
-
-VA - Surfing Trance Distant (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Emotioal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_545271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myk Bee  -  Endless Drive (Original Mix)  7:46
-02. Mr Andre  -  Electic Rainbow (Original Mix)  6:28
-03. Liquid Souls  -  Faith (Bouncerz Remix)  8:32
-04. Ltn Pres. Blue Ghost  -  Chasing The Arrow (Radio Edit)  3:24(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, EmotioalПродолжительность: 02:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:889BEE976DCA15621656870BA5F6BC0260B8AF41
 ```
 
 

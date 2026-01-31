@@ -1,3 +1,27 @@
+###  Публикация: 517072   (648992) от 30.06.2012
+
+David Wright - 21 albums (1991 - 2011) [MP3|128-320 кб/с]<Progressive Electronic, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive Electronic, AmbientПродолжительность: 01:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFB35C35F46E71EFC93EEC12A31D535BB9E2EEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517192   (649471) от 30.06.2012
 
 VA - Hed Kandi Pres: Beach House (2012) [MP3|320 кб/с]<Deep House, Funky House, Disco House, Soulful House>
@@ -667,33 +691,6 @@ Analogue-X - Imaginary (2019) [MP3|320 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE2852843DA0C085D44184DA11D8D6DFE27BA89D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291887   (650687) от 27.03.2019
-
-Firstworld - Im Right Here (2018) [FLAC|Lossless|tracks + .cue] <Electronic, Synthwave, Dream Pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650687.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Im Right Here (03:10)
-2. Not Obvious (04:44)
-3. Running Away (03:35)
-4. Space (04:52)(   Читать дальше...   )Жанр: Electronic, Synthwave, Dream PopПродолжительность: 00:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4305C5F2056500E0255F10E88F257F5D48E9E514
 ```
 
 

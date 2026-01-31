@@ -1,3 +1,30 @@
+###  Публикация: 1000776   (857311) от 26.03.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 26 ) (2016) [MP3|320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lian Ross - Say You'll Never (D.J. Alternative Mix) (6:33)
+02. Fancy - Flames Of Love (Vox Extended Mix) (5:51)
+03. Sandra - Around My Heat (Dj Sveshnikov Remix) (3:43)
+04. Depeche Mode - Personal Jesus (The Stargate Mix) (3:59)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE2B78F084E24202B78FD380659CFB50C65877EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109190   (857349) от 28.02.2017
 
 VA - Deep House Collection Vol.110 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -663,33 +690,6 @@ VA - Popular Euro Song: Spring Edition (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C57BD60D6B620D7F5498E2B92A31716AA2AFB9FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376722   (858806) от 18.04.2020
-
-VA - Beatport Trance: Electro Sound Pack #60 (2020) [MP3|320 Kbps] <Trance, Uplifting, Progressive, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858806.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zumbo - Information Psy
-002. Aquarius Orb - F.P.N.S.
-003. Lange - Nearly Home
-004. Estiva - Perpetual (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting, Progressive, VocalПродолжительность: 12:27:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88077E53657D22850FDE326FACCF2442241E2125
 ```
 
 

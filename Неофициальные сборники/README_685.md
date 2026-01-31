@@ -1,3 +1,30 @@
+###  Публикация: 1437104   (1042259) от 04.01.2021
+
+VA - Music for You vol.15 (2021) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pyramaze - Transcendence (04:17)
+ 02. Black Fate - Secret Place (04:16)
+ 03. Pomegranate Tiger - Maxims (05:06)
+ 04. Nevermore - Born (05:58)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 04:10:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7886697AE44328E5C3ED3F2A84F18D46A8E024C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437177   (1042277) от 04.01.2021
 
 VA - Amusement Park: Pop Dance Music (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ Kristina Train - Compilation (2023) [MP3|320 Kbps] <Pop, Soul, Singer-Songwriter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BFCDFE42D19E0A859DAA99F98B95D76AEA0B3CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436338   (1042979) от 01.01.2021
-
-VA - Shazam Хит-парад World Top 200 Декабрь (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042979.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Stapleton - Tennessee Whiskey (4:53)
-002. Pháo, Wack - 2 Phút Hơn - Remake (2:33)
-003. Fousheé - Deep End (2:21)
-004. CJ - Whoopty (2:03)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B51F1DDF3C5546FDF26DAB6FE18866F82E3A56
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1101939   (889095) от 10.02.2017
+
+VA - Record Russian Mix Top 100 February 07.02.2017 [MP3|307-320 Kbps] <Club House, Pop-Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889095.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Elements x Crew 7 - California Dreamin' (DJ Miller x DJ Alex Milano Booty Mix) 4:14
+002. 20 Fingers vs Vincent & Diaz - Short Dick Man (Markiza Mash Up) 3:49
+003. Alexias - I Need U (The Mankeys Edit) 3:18
+004. Alisha Pillay - Mayday (Pride & Kashtan Remix) 4:29(   Читать дальше...   )Жанр: Club House, Pop-Dance, Electro HouseПродолжительность: 07:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1555D63575E009953E90C192E709224BA32A6A90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102795   (889218) от 10.02.2017
 
 VA - The Best - In Music We Trust Vol.13 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch, Electro House, Club, Dance>
@@ -668,33 +695,6 @@ VA - 100 Gold Classic Music (2016) [MP3|320 Kbps] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A68D79233681CD17B657A84EF1E0965F86FC79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102323   (890337) от 09.02.2017
-
-VA - 100 Gold Classic Music Vol.2 (2017) [MP3|320 Kbps] <Classical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890337.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Johann Sebastian Bach - Badinerie  1:25
-002.  Johann Sebastian Bach - Menuett  1:20
-003.  Franz von Suppe - O du mein Osterreich  2:06
-004.  Franz von Suppe - Leichte Kavallerie  6:48(   Читать дальше...   )Жанр: ClassicalПродолжительность: 06:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2254188FDB592D006A327C306B9A0DEB91B1CD0
 ```
 
 

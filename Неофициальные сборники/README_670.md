@@ -1,3 +1,30 @@
+###  Публикация: 1458876   (1023491) от 31.03.2021
+
+VA - Club Music vol.2 (2021) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023491.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Нискуба - Балаклава (2:14)
+002. MATTN, Klaas - The Logical Song (2:42)
+003. EQRIC, Xenton, Jex - The Final Countdown (2:24)
+004. Jonas Blue, AWA - Something Stupid (2:56)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 09:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8699040B3B43EC718495293EBFA784419CEDCC27
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458971   (1023514) от 31.03.2021
 
 VA - Zone Bassline (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Dub House>
@@ -670,33 +697,6 @@ VA - Liquid Chill Bass (2021) [MP3|320 Kbps] <D&B, Bassline, Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4F2EB6727599261A1BF194E34E0BAF6C6636062
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457020   (1024632) от 25.03.2021
-
-VA - E-Dance: Essential Techno Sound (2021) [MP3|320 Kbps] <Club, Dance, Techno, EDM, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024632.jpg" />
-</div>
-
-
-###  Подробнее
-
-Включив эти треки, у любого сразу же возникнет острое желание попасть на танцпол, полностью отдаться на волю киловаттам звука, от которых будет трепетать каждый орган тела. Попасть во власть стробоскопов, от которых полностью снесёт оба полушария, когда перестаешь понимать, где верх, а где низ001. Nicolas Hilton - I Don't Now
-002. Alex Dolby - Jungle Prisioners
-003. The Flamme - Sung Better
-004. Human Robot - Biochips(   Читать дальше...   )Жанр: Club, Dance, Techno, EDM, Tech HouseПродолжительность: 13:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79DBB48139B296A8A9F0AC8729ED0642B316231
 ```
 
 

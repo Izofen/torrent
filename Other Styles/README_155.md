@@ -1,3 +1,204 @@
+###  Публикация: 1374712   (870764) от 11.04.2020
+
+Blackmore’s Night - Under A Violet Moon (1999) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under A Violet Moon (04:24)
+02. Castles And Dreams (03:34)
+03. Past Time With Good Company (03:24)
+04. Morning Star (04:41)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E2CBBC7B2930B80A13217B78389922A620433B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644185   (870885) от 15.04.2013
+
+Квiтка Цiсик - 2 альбома (1980, 1989) [MP3|320 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(3:39) 01. Де ти тепер
+(4:15) 02. Черемшина
+(2:38) 03. Коломийка
+(3:07) 04. Тече рiчка
+(3:11) 05. При ватрi
+(6:18) 06. Я пiду в далекi гори
+(3:08) 07. Ой заграли музики
+(5:11) 08. Два кольори
+(4:22) 09. Коханий
+(5:05) 10. Верше, мiй верше(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9DF754251B03200D9DF705377B201BC5176FF1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496487   (870928) от 18.09.2021
+
+Hans Zimmer - Dune (3 CD) (2021) Music From The Soundtrack [FLAC|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Sisters [00:16:25]
+02. I See You in My Dreams [00:18:25]
+03. House Atreides [00:13:54]
+04. The Shortening of the Way [00:11:14](   Читать дальше...   )Жанр: ScoreПродолжительность: 3 CD, 03:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D032DCF0CAE22267D017541C2EDD5F90EB6EFA8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106773   (871052) от 20.02.2017
+
+VA - Ёлки 5 (Музыка к фильму) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Секрет - На любой стороне земли (03:44)
+02. Павел Есенин - The Beginning (01:40)
+03. Павел Есенин - The Arctic Life (00:50)
+04. Павел Есенин - Vova & Varya (00:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D314B0A6D2F848B11201FC11512D89217B323A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496473   (871066) от 18.09.2021
+
+Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [FLAC2.0|24/48|tracks|WEB-DL] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Sisters [00:16:25]
+02. I See You in My Dreams [00:18:25]
+03. House Atreides [00:13:54]
+04. The Shortening of the Way [00:11:14](   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49D25D5FE09EE0B63979CD592596882221977625
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997888   (871135) от 18.03.2016
+
+Photek - Need for Speed (EA Games Soundtrack) (2016) [MP3|320 кб/с] <Electronic, Drum & Bass, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crew
+02. Pursuit Low
+03. Pursuit Hi
+04. Cool Down(   Читать дальше...   )Жанр: Electronic, Drum & Bass, SoundtrackПродолжительность: 00:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E39EB4863FA08D7EEF69C0AA3DDB3752B9DB2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187126   (871136) от 31.03.2010
+
+Марши В Исполнении Духовых Оркестров - Парад (1999) [FLAC|Lossless]<Военные марши>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - Салют Москвы - Отдельный показательный оркестр Министерства Обороны СССР. Дирижер Николай Назаров
+02 - Все Выше - Образцовый военный оркестр Почетного Караула Моск. гарнизона
+03 - Духовный Оркестр - Образцовый военный оркестр Почетного Караула Моск. гарнизона
+04 - Торжественный Марш - Отдельный показательный оркестр Министерства Обороны СССР. Дирижер Николай Назаров
+05 - Капитан Гастелло - Отдельный показательный оркестр Министерства Обороны СССР. Дирижер Николай Назаров
+06 - Героям Отечественной Войны - Отдельный показательный оркестр Министерства Обороны СССР. Дирижер Николай Назаров
+07 - Марш Нахимовцев - Образцовый оркестр Военно-морского флота СССР
+08 - Борцы За Мир - Отдельный показательный оркестр Министерства Обороны СССР. Дирижер Николай Назаров
+09 - Будапешт - Отдельный показательный оркестр Министерства Обороны СССР. Дирижер Николай Назаров
+10 - Флотский Марш - Образцовый военный оркестр Почетного Караула Моск. гарнизона(   Читать дальше...)Жанр: Военные марши
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106840   (871209) от 20.02.2017
 
 Aenigmatica - Sanctum (2016) [FLAC|Lossless|tracks] <New Age, Chillout, Ambient>
@@ -526,209 +727,6 @@ VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBB555B577F6B06ADCA9F1C2E6BF07BA448AE93E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106400   (873641) от 19.02.2017
-
-VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelly O'Neill – Mystic Dream
-02. Emerald Singers – Adiemus
-03. Massini – Mystera
-04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE40006D68CF45C3C624E6F82D01F32B1D5F090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997576   (873676) от 17.03.2016
-
-Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hymn
-02. (Everything I do) I do it for you
-03. Yesterday
-04. Deep Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA4E4652D200F07245EE82CAFCB363319D6267B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106282   (873736) от 19.02.2017
-
-Devaldi - Petrichor (2016) [MP3|320 Kbps] <Electronic, Relaxing>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Singur
-02. Bri
-03. Petrichor
-04. Ta Matia Sou(   Читать дальше...   )Жанр: Electronic, RelaxingПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63CA6E483D9F290E0B82677C179384B1F015CA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872447   (873802) от 25.02.2015
-
-Moderator - The World Within (2015) [FLAC|Lossless|WEB-DL]<Trip-Hop, Jazzy hip-hop, Downtempo>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Blind You To My Spell (ft. Jeanette Robertson & Witness) (3:20)
-02. Harlem River (3:53)
-03. Words Remain (3:27)
-04. Almost There (3:10)
-05. It Wasn't For You (2:48)(   Читать дальше...   )Жанр: Trip-Hop, Jazzy hip-hop, DowntempoПродолжительность: 00:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2052D2FDCA25FC282CFE8FD9A420711D844440B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872521   (873812) от 25.02.2015
-
-Ensiferum - One Man Army (2015) Limited Edition 2CD [FLAC|Lossless]<Viking, Folk Metal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. March of War (instrumental)
-02. Axe of Judgment
-03. Heathen Horde
-04. One Man Army
-05. Burden of the Fallen(   Читать дальше...   )Производство: Metal Blade (Sony Music)Жанр: Viking, Folk Metal
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F3672957439BBD87A96984EF21D66FA38E5CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643446   (873857) от 14.04.2013
-
-VA - The Indian Road. The Best Of Native American Flute Music Vol.1 (2002) [MP3|256 кб/с]<Folk, Instrumental, Native american, Flute>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(2:37) 01. Mary Youngblood - The Offering
-(4:38) 02. Mary Youngblood & Joanne Shenandoah - Fog
-(4:16) 03. Mary Youngblood & Tom Wasinger - Unrequited
-(3:28) 04. Joanne Shenandoah & James Hoskins - Peace And Power
-(3:14) 05. Mary Youngblood - Within My Heart
-(3:45) 06. R. Carlos Nakai & Peter Kater - Flight Song
-(4:34) 07. Lawrence Laughing & Tom Wasinger - Eagle Come Pray For Me
-(2:58) 08. Robert Mirabal - Yellow Ram's Song
-(2:56) 09. Mary Youngblood - Eagle Clan
-(3:41) 10. Mary Youngblood (   Читать дальше...   )Жанр: Folk, Instrumental, Native american, FluteПродолжительность: 00:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6660DE656688DF1588BAA4837F56B8DE69041BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643341   (873865) от 14.04.2013
-
-Анна Каренина /  Anna Karenina (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.  Overture (3:20)
-2.  Clerks (1:06)
-3.  She Is of the Heavens (2:00)
-4.  Anna Marches into a Waltz (0:58)
-5.  Beyond the Satge (1:24)
-6.  Kitty's Debut (2:36)
-7.  Dance with Me (4:22)
-8.  The Girl and the Birch (1:01)
-9.  Unavoidable (1:42)
-10.  Can-Can (2:01)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1A6A6A359631A9B178008AEF2B304C144366C9
 ```
 
 

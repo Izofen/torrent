@@ -1,3 +1,36 @@
+###  Публикация: 548862   (464679) от 19.09.2012
+
+VA - Зарубежная Дискотека СССР (2012) [MP3|192 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Radiohead - Creep
+02 Cb Milton - A Real Love
+03 Kaoma - Lambada
+04 Depeche Mode - I Feel Loved
+05 Intrance - Te Quierro Puta (Original Mix)
+06 Ivan - Fotonovella
+07 Whitney Houston - I Learned From The Best
+08 Maxi Priest - Close To You
+09 White Town - Your Woman
+10 Kellee - My Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 08:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A101F32AE4348D160DD9805BA8FFF3D0969B52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549176   (464684) от 19.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 77 [MP3|320 кб/с]<Instrumental>
@@ -704,33 +737,6 @@ VA - Club Dance Ambience Vol.88 (2016) [MP3|320 Kbps] <House, Electro House, Mas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE1BC70C55C02DDFCD8281D3C8491E55B29D0EA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058673   (465863) от 02.10.2016
-
-Pet Shop Boys - Mega Collection (2016) [MP3|320 Kbps] <Europop, Synthpop, Euro-Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Started A Joke  3:19
-02. Men And Maggots  4:57
-03. Betrayed  5:19
-04. Go West (Castro Boy Club Mix)  7:38(   Читать дальше...   )Жанр: Europop, Synthpop, Euro-Disco, EurodanceПродолжительность: 02:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3842720A6A0D3BD826712311B8587485D10FAC37
 ```
 
 

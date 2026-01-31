@@ -1,3 +1,30 @@
+###  Публикация: 1139200   (661396) от 01.06.2017
+
+VA - Running Beats Vol.14 - Musik Zum Laufen (Inkl 5 KM & 10 KM Mix) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Mix - 5 KM Power (Lauf Mix) 31:51
+02.  DJ Mix - 10 KM Power (Lauf Mix) 1:01:01
+03.  DJ Polique feat. J. Lauryn - Fuego Gasolina (Single Version) 3:24
+04.  R.I.O. - Headlong 2:58(   Читать дальше...   )Жанр: HouseПродолжительность: 03:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91BE6150DDA16A5A76CD33F18C9F6DF76FAD19BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138690   (661400) от 01.06.2017
 
 VA - Sperrstunde Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -665,33 +692,6 @@ Deorbiting - Space House (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C58C4A1D1C235DDD33DD2BE3B08E70D269750BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138404   (664483) от 29.05.2017
-
-VA - Lounge Traveller Vol.1: High Class Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_664483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  351 Lake Shore Drive - All Around Me 5:57
-02.  Marc Hartman - Out Of Control 4:04
-03.  Greg Walker - Tailwind to the Sun 3:30
-04.  Michael E - Jhenna 4:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D97A3D7F63492D4A007CC138E189F3FAD36B170
 ```
 
 

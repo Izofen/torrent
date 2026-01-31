@@ -1,3 +1,30 @@
+###  Публикация: 1281445   (1006971) от 12.07.2021
+
+Lucrecia Dalt - Discography 19 Releases (2011-2021) Human Ear Music, Pruna Recordings [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Minimal, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nu (02:18)
+ 02. Cao (01:49)
+ 03. Gt (03:10)
+ 04. Four Voices (01:47)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental, Minimal, Ambient •Продолжительность: 08:58:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C131861BF60020F6A08A46B1446A3A3B43EED6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483221   (1007008) от 12.07.2021
 
 Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (2021) [FLAC|Lossless|WEB-DL|tracks] <Lounge>
@@ -659,33 +686,6 @@ VA - SUMMER HITS 2021 [FLAC|Lossless|WEB-DL|tracks] <Deep House, Future House, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9C19DABCB9D20651ED2DABFB4B6252692B1EB12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481762   (1008032) от 05.07.2021
-
-Methyl Lily - Methyl Lily (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hologram (04:50)
- 02. Magnetar (08:17)
- 03. Glass Horizon (03:02)
- 04. Not Even Light (05:37)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9FCF72BEA473A81F5317D370FB5DEACAD58C683
 ```
 
 

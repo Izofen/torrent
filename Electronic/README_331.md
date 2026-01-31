@@ -1,3 +1,30 @@
+###  Публикация: 1226738   (653873) от 22.05.2018
+
+VA - When The Sundown - Easy-Listening & Evening Tracks (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allaway & Eaves - Driftwood 05:07
+02. Simon Wolfe - The Dart (Original Mix) 03:30
+03. Lynda Lovett - Jamas Diremos 04:04
+04. Pavel Levchenko - Soft Lounge 02:56(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CEE27075312E49F1E58435B0A081C2DF80D941B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540415   (653916) от 29.03.2022
 
 ENiGMA Dubz - The Journey so Far (2015)  Part 1;2 [FLAC|Lossless|WEB-DL|tracks] <Dubstep, UK Garage, Drum & Bass>
@@ -665,33 +692,6 @@ VA - Summer Chill 2k17 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14BAC8D9AC60B9BC19ACB18F71A29985041BFD77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140603   (654982) от 07.06.2017
-
-VA - Deephouse Yearning (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Performative Mode – City Freaks 06:38
-02. Self Explanatory – That Stuff 06:34
-03. Chiffre 100 – Watching Through 06:34
-04. Najwars – No Longer Supported 06:18(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55568F19D59B44531BE496273F5F1CE1C4F57B79
 ```
 
 

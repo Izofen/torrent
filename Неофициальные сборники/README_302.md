@@ -1,3 +1,30 @@
+###  Публикация: 932860   (507973) от 30.08.2015
+
+VA - Автоледи: Популярный автосборник (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Атаманка - 16 Лет
+02. Deorro - Five Hours
+03. Koven - Miracle
+04. Ph Electro - Back Home(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD437149D62272B22E35DEBACDA5905A21DB574C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932679   (508161) от 30.08.2015
 
 Red Dog: Superior Firepower (2000-2015) [MP3|320 кб/с]<Score>
@@ -695,33 +722,6 @@ VA - Chill Acoustic Pop Playlist Eighteen Smooth and Chilled Tracks [In The Mood
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA2B123F94889C29CD81B47764624E27F265AFB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932276   (510191) от 28.08.2015
-
-VA - A Chill House Affair Vol. 5 (60 Fantastic Summer Tunes) (2015) [MP3|320 кб/с]<Chill House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Queen Quartett - Night at the Copacabana (3:24)
-02. Jerry Gonzales - Keep in Mind (Deeper & Deeper) (3:42)
-03. Alan Brooker - Muddy Waters - Deep House Mix (5:21)
-04. The Houselovers - Sooner Than Later - Deep & Deep Mix (5:20)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 04:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A3F263154849BEC5EBA9B5F8E47CE585A8DFA6
 ```
 
 

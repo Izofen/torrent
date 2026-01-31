@@ -1,3 +1,30 @@
+###  Публикация: 1133215   (697218) от 11.05.2017
+
+VA - Trance Сollection Vol.60 (2017) [MP3|320 Kbps] <Trance , Progressive Trance ,Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4 Strings & Denise Rivera - In The Middle Of A Dream (Original Mix) 5:13
+002. Above & Beyond, OceanLab - On a Good Day (ilan Bluestone Remix) 4:22
+003. Airborn, Bogdan Vix & KeyPlayer Feat. Danny Claire - What Is Loneliness (Original Mix) 6:22
+004. Akamana & Alaera - Frozen Sky (Original Mix) 9:02(   Читать дальше...   )Жанр: Trance , Progressive Trance ,Uplifting TranceПродолжительность: 10:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CC4F75EFA0A6E6D71C6D4CA3FEDC7FECC65CD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132960   (697229) от 11.05.2017
 
 VA - Весна. Высшая лига выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - EUROMANIA: Slow Hits vol. 1-3 (2016) [MP3|320 Kbps] <Eurodance, Euro-House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B921F24F2A96F096974F4D6E436709F49AA8ADE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220973   (698612) от 22.04.2018
-
-VA - The Official UK Top 40 Singles Chart 20.04.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris, Dua Lipa - One Kiss (03:35)
-02. Drake, Big Freedia, 5thward Weebie - Nice For What (03:32)
-03. Lil Dicky - Freaky Friday (feat. Chris Brown) (03:37)
-04. George Ezra - Paradise (03:43)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:20:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069FC8C7CF17088FDAA542839CCB7999BD27165A
 ```
 
 

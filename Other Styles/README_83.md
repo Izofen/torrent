@@ -1,3 +1,192 @@
+###  Публикация: 370570   (525281) от 02.08.2011
+
+VA - Еврейские народные хиты (2011) [MP3|256 kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525281.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hava Nagila
+002. Israel
+003. Lamce Ram Ciam
+004. Ba Aretz(   Читать дальше...   )Жанр: FolkПродолжительность: 06:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:309D99C633404F84F7137F448DEF7C6D8431340F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157274   (525466) от 11.08.2017
+
+Two Steps From Hell - Nero Anthology (2017) [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aesir (Ethnic Version) [04:49]
+02. Aesir (Orchestra) [04:50]
+03. Aesir (Instrumental) [04:51]
+04. Archangel (Instrumental) [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAACC363C457698011363A940A3CCDFD1CCA143D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157258   (525820) от 10.08.2017
+
+Blackmore's Night - To the Moon and Back-20 Years and Beyond (2017) [MP3|320 Kbps] <Folk Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525820.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shadow of the Moon
+2. Spirit of the Sea
+3. Renaissance Faire
+4. Play Minstrel Play(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C9CFEB082C5E613C3791FD9B5C521EFC49D1CCB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053009   (525966) от 17.09.2016
+
+Johann Johannsson - Orphee (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight From The City (06:31)
+02. A Song For Europa (02:34)
+03. The Drowned World (02:21)
+04. A Deal With Chaos (02:06)(   Читать дальше...   )Жанр: New Age, Modern ClassicalПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C97E5FBD8B811E74C8BC32310BAE53F6E05E4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053229   (526077) от 17.09.2016
+
+Jim Brickman - Freedom Rings: Solo Piano (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America the Beautiful [00:02:45]
+02. Battle Hymn of the Republic [00:02:22]
+03. When Johnny Comes Marching Home [00:01:59]
+04. My Country 'Tis of Thee [00:02:11](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954553CF6FF7A11247668C604B5D445B2AD92F47
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053374   (526079) от 17.09.2016
+
+David Hollandsworth - Discovery (2015) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discovery (03:20)
+02. Far as the Eye Can See (03:02)
+03. A Matter of Time (01:42)
+04. Blue Atmosphere (03:26)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA4AA53D568EAAECA6C3B6AE373A0CC6C71B822
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156770   (526403) от 09.08.2017
+
+VA - For Sentimental Reasons: Great Instrumentals (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Romantic Strings and Orchestra with Don Lusher, Trombone - (I Love You) For Sentimental Reasons (5:09)
+02. Richard Alden, His Piano and Orchestra - Skylark (3:16)
+03. Peter Knight and His Orchestra - Let's Fall In Love (2:48)
+04. Acker Bilk, His Clarinet and Orchestra - Stranger On The Shore (2:52)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CEF36D17E61E90A596B0322167A80882761716F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052938   (526692) от 16.09.2016
 
 Liam Bradbury - Pagan Earth (2016) [MP3|320 Kbps] <New Age>
@@ -510,195 +699,6 @@ Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34E0A9B37AE9E90062B30FD59FFEA66E4C444816
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312403   (530708) от 05.07.2019
-
-Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Responsorios (6:19)
-02. Graduale (6:38)
-03. Cosmos (4:51)
-04. Aleluia (4:18)(   Читать дальше...   )Жанр: New Age, Enigmatic, Eurodance, AmbientПродолжительность: 01:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312212   (530711) от 05.07.2019
-
-Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные дела 3 (Original Score from the Netflix Original Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boys and Girls (01:49)
-02. I Like Presents Too (01:27)
-03. Starcourt (03:05)
-04. Blank Makes You Crazy (01:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB194008692913F942311F34FE190B11CBDD3E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312712   (530719) от 05.07.2019
-
-Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wind Of Change (3:14)
-02. Careless Whisper (3:09)
-03. Honesty (3:46)
-04. Michelle (3:30)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48B6CE2CC7EC765AAE620258A0DC04FAD10F9F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312325   (530727) от 05.07.2019
-
-Michael Giacchino - Spider-Man: Far from Home / Человек-паук: Вдали от дома (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530727.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From Home Suite Home (08:28)
-02. It's Perfect (00:31)
-03. World's Worst Water Feature (07:31)
-04. Multiple Realities (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734B26B06E69E985AB9DFBAAF440BD02E04B3755
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051996   (530789) от 12.09.2016
-
-Kevin Kern - When I Remember (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Should Waltz [00:06:07]
-02. Once Upon a Time [00:04:35]
-03. Say You Love Me [00:04:25]
-04. Chance Encounter [00:04:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E109F94C1C484C9557005D80F5057B46679B64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312200   (530814) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got a Friend in Me (02:04)
-02. I Can't Let You Throw Yourself Away (02:06)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312205   (530816) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я твой хороший друг (02:05)
-02. Ты не вздумай (02:09)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
 ```
 
 

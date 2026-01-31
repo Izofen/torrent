@@ -1,3 +1,30 @@
+###  Публикация: 1388667   (786565) от 07.06.2020
+
+VA - Record Super Chart 639 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cream Soda & ХЛЕБ - Плачу на техно 2:40
+02. Topic & A7S - Breaking Me 2:47
+03. Little Big - Hypnodancer 3:08
+04. Тайпан feat. Agunda - Луна не знает пути 2:11(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41C86CC0AAF4A5ADEFAE8B089CD641563BC68F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388565   (786581) от 07.06.2020
 
 VA - Fusion Lounge Mix (2020) [MP3|320 Kbps] <Lounge, Relax, Ambient, Chillout>
@@ -665,33 +692,6 @@ VA - Breath Of The Pacific Ocean: Progressive Trance Set (2021) [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59ED422324B250A45A28BE0878646363C4BE6377
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512352   (787406) от 24.11.2021
-
-VA - Synthspace Electronic Music (2021) [MP3|320 Kbps] <Synthspace, Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787406.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vindata - Already Home
-002. Dany Dz - Retrospective
-003. Boom Bip - Aplomb
-004. Diego Alvarado - Running Against Time(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 09:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E69AEF0BA3B8776F6AFA9687577F9C6598C8F2
 ```
 
 

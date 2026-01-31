@@ -1,3 +1,30 @@
+###  Публикация: 1319423   (484798) от 11.08.2019
+
+Hawksley Workman - Median Age Wasteland (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birds in Train Stations (04:58)
+02. Lazy (04:35)
+03. Battlefords (05:16)
+04. Italy (03:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00: 51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594FA6F5FF4F95E84DCBD0E3C776729383C1AB9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404969   (487131) от 28.08.2020
 
 From Ashes To New - Panic (2020) [FLAC|Lossless|tracks] <Post Hardcore, Alternative Metal, Rap-Rock>
@@ -682,33 +709,6 @@ Deaf Havana - The Present is a Foreign Land (2022) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD32BE0F751C9853359AA7EBA08E576FBF465E94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563797   (502756) от 16.07.2022
-
-Rain City Drive - Rain City Drive (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502756.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Waiting on You
-2. Gardens of Misery
-3. Dreams
-4. Dying For(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AAADD045B3A8E171F3AFEB372BE2E59C22E114
 ```
 
 

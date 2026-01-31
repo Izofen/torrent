@@ -1,3 +1,36 @@
+###  Публикация: 517354   (647913) от 01.07.2012
+
+VA - Самые сливки: Летний спецвыпуск (2012) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ани Лорак - Обними Меня
+02 Маша Вебер - Всё Для Тебя
+03 Dj Riga & Mc Zali - Дяди И Тети
+04 Афродита - Освободи Свой Телефон
+05 Зэбосы - Загорелая Попка
+06 Наташа Королева - Голая
+07 Лана Ярич - А Ты Потанцуй
+08 Стая - Сердце (Cj Alexey Lavrentev Remix)
+09 Глюкоза - Выстрел В Спину
+10 Елена Терлеева - Боль(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C226B342664260A0FB83CC27989A28B0494CD34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517260   (647914) от 01.07.2012
 
 VA - Beach Chill Las Salinas. The Ibiza Chill Out Album (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
@@ -683,33 +716,6 @@ VA - Lounge Cocktails (2013) [MP3|320 кб/с]<Lounge, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4367CD86DA1A30CC08133332D32C7C909A1D5CBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031756   (649550) от 05.07.2016
-
-VA - Night Chilled Jazz (2016) [MP3|320 Kbps] <Chill Jazz, Downtempo>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_649550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz 2016 - Jazz Lounge
-02. Nandy Xavier - Joaninha
-03. Raquel Silva Joly - Cancao do Sal
-04. PNFA - Water Path(   Читать дальше...   )Жанр: Chill Jazz, DowntempoПродолжительность: 04:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BE0AA2C640E0275EFDB522730CBF4794A884886
 ```
 
 

@@ -1,3 +1,327 @@
+###  Публикация: 1206477   (782094) от 14.02.2018
+
+Операция Пластилин - Голодным и злым (2018) [MP3|320 Kbps] <Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Попроще и покороче
+02. Все мечты наши сбудутся этим летом
+03. Сорваться с поводка
+04. Джесси и Джейн(   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B8B562BFB6550772FCECA77FB9CFEE8BC7F93E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206233   (782114) от 14.02.2018
+
+No-One's Project - Warning (2016) [MP3|320 Kbps] <Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Unify Express
+2. Invasor Ballad (The Fallen Mask)
+3. You Are in Teatro
+4. Fly Under the Moon When Midnight Rises(   Читать дальше...   )Жанр: Rock, Modern RockПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FA21E16B9F6F7A225977908DBB61BEF4B0D398
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206398   (782121) от 14.02.2018
+
+McQueen Street - McQueen Street (1991) 1992, SBK Records [MP3|320 Kbps] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782121.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. When I'm In The Mood
+2. Woman In Love
+3. Time
+4. Money(   Читать дальше...   )Жанр: Hard Rock, Glam
+Страна: USAПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CDB6E106AF01883E746891E3494BF17673403FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206390   (782124) от 14.02.2018
+
+Krüger - Врага бей в рога (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Чёрный флаг (3:08)
+ 02. Великий Джордано (6:05)
+ 03. Russian Rock Brothers (4:59)
+ 04. Один в поле воин (2:45)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7485CEE9C21D3DC4DE79A8949EEDF2BB5B14A69E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206598   (782143) от 14.02.2018
+
+Hudson-Ford - Nickelodeon (1973) Reissue, 2015, Big Pink [MP3|320 Kbps] <Soft Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying Blues
+02. Angels
+03. I Wanted You
+04. Hello, I Thought You Were Dead(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EC4E4B682329DC9C374597229570B9EC415638
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390829   (782225) от 17.06.2020
+
+ЧайФ - 35 лет. Полёт нормальный (2020) 1CD+1UsbFlash [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «Чайф» в преддверии масштабного концертного тура выпустила юбилейный сборник. Уникальное подарочное издание можно приобрести только на концертах, посвященных 35-летию коллектива. Между тем, праздничный тур уже стартовал и не за горами московское выступление.
+
+Юбилейный сборник группы «Чайф» получил название «35 лет. Полет нормальный». Издание включает в себя (   Читать дальше...   )Жанр: RockПродолжительность: 02:27:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A163B5C6E699DD9F67A305D9C456D21D05C13F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390735   (782239) от 17.06.2020
+
+Janis Joplin - Janis (1962-1970) 3CD Boxset, 1993, Compilation [FLAC|Lossless|tracks + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дженис Лин Джоплин (англ. Janis Lyn Joplin; 19 января 1943, Порт-Артур, Техас, США — 4 октября 1970, Лос-Анджелес, Калифорния, США) — американская рок-певица, выступавшая сначала в составе Big Brother and the Holding Company, затем в Kozmic Blues Band и Full Tilt Boogie Band. Джоплин, выпустившая лишь четыре студийных альбома (один из которых — посмертный релиз), (   Читать дальше...   )01. Me And Bobby McGee (4:49)
+02. One Night Stand (3:11)
+03. Tell Mama (5:48)
+04. Try (Just A Little Bit Harder) (8:16)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEDE1024EBD388221D1435F5E487A2F9BF622AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390840   (782249) от 17.06.2020
+
+David Bowie - Hunky Dory (1971) Remastered, 1990, EMI [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changes (3:38)
+02. Oh! You Pretty Things (3:12)
+03. Eight Line Poem (2:56)
+04. Life On Mars? (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:112AC54ED5053597DA7662E50EC6473D88A1233C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390867   (782265) от 17.06.2020
+
+Quicksilver Messenger Service - Happy Trails (1969) Remastered, 1992, BGO Records [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_782265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Do You Love Suite, Who Do You Love (Part 1) (3:33)
+02. When You Love (5:15)
+03. Where You Love (6:07)
+04. How You Love (2:46)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Classic RockПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA0EF7BE8440966E68E307C7DC22B3331700121
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206413   (782521) от 13.02.2018
+
+Royal Hunt - Cast In Stone (2018) [MP3|320 Kbps] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fistful Of Misery
+02. The Last Soul Alive
+03. Sacrifice
+04. The Wishing Well(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:57:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF5EAB4628E9038B65AE050B116A54E828F12B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390666   (782689) от 16.06.2020
+
+Краснознамённая дивизия имени моей бабушки - Катакомба (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782689.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Прогулка
+2. Парные танцы
+3. Русский андеграунд
+4. Пространство между(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79BE5A3B148ACE23C9DC3591084DD41F0952897
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390691   (782696) от 16.06.2020
+
+Crosby, Stills & Nash - Crosby, Stills & Nash (1969) Limited Edition 2011 [FLAC|Lossless|tracks + .cue] <Classic Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suite: Judy Blue Eyes (7:25)
+02. Marrakesh Express (2:38)
+03. Guinnevere (4:39)
+04. You Don't Have To Cry (2:44)(   Читать дальше...   )Жанр: Classic Rock, Folk RockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C2B8850AF879664766B18C254C2304EBB5F087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1390687   (782728) от 16.06.2020
 
 Captain Beefheart & His Magic Band - Trout Mask Replica (1969) [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Experimental>
@@ -383,330 +707,6 @@ Disheveled Cuss - Disheveled Cuss (2020) [MP3|320 Kbps] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C87E85CCE5FFDF6CFDD9FD6A429A4601FFD98EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205862   (783172) от 11.02.2018
-
-Друга Ріка - Піраміда (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Секрет (04:41)
-02. Доки я не пішов (03:34)
-03. Ти є я (03:48)
-04. Оооо / Брудний і милий (05:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95B10D9CFA7EA0B9D447C1A7F4FF3748C841443
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205568   (783174) от 11.02.2018
-
-Therion - Beloved Antichrist (2018) Limited Edition [FLAC|Lossless|image + .cue] <Symphonic, Operatic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783174.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: Act I 
-
-1. Turn from Heaven
-2. Where Will You Go?(   Читать дальше...   )Жанр: Symphonic, Operatic MetalПродолжительность: 03:02:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D032FB4D2D02F52DCDE07405337A244F968431FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205566   (783175) от 11.02.2018
-
-Joe Satriani - What Happens Next (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Instrumental Guitar Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Energy (3:29)
- 02. Catbot (3:39)
- 03. Thunder High On The Mountain (4:47)
- 04. Cherry Blossoms (4:29)(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDCAA7CA65A3F3782A5E1183E48D0CA29F6E2CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205558   (783213) от 11.02.2018
-
-Вежливый Отказ - Вежливый Отказ 1985 - 1995 (1995) Антология [FLAC|Lossless|tracks + .cue] <Jazz Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Летаргический сон 3:45
-02. Несу я украдкой 2:53
-03. Эй! 4:00
-04. Голодная песня 5:41(   Читать дальше...   )Жанр: Jazz Rock, Folk RockПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DB34FF8F7224E6FB34CA523A26079CD8B406844
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205777   (783242) от 11.02.2018
-
-EXE (ЭКЗЕ, ЭКЗЭ, ЭКЗЕРСИС) - Авантюра (1992) [MP3|320 Kbps] <Progressive Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пробуждение
-02. Серенада
-03. Свидание
-04. Ностальгия(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC393F9335F61968EF7B32EDDEA65AEE652991B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390126   (783408) от 14.06.2020
-
-The Other - Haunted (2020) [MP3|320 Kbps] <Punk Rock, Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark of the Devil (03:58)
- 02. We're All Dead (03:15)
- 03. Turn It Louder (03:20)
- 04. Dead to You - Dead to Me (03:27)(   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1745741666FD3DA869EA697AEA03BE4BC8D452
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390314   (783421) от 14.06.2020
-
-Built to Spill - Built to Spill Plays The Songs of Daniel Johnston (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bloody Rainbow (02:24)
- 02. Tell Me Now (03:01)
- 03. Honey I Sure Miss You (03:30)
- 04. Good Morning You (01:33)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BA5D89E7E2BAA45A03585E779543A30A9A7A0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390213   (783423) от 14.06.2020
-
-Arena  Re - Visited Live! (2019) 2xCD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783423.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 : 01. A Crack in the Ice (07:25)
- 02. Pins and Needles (02:46)
- 03. Double Vision (04:25)
- 04. Elea (03:00)(   Читать дальше...   )Жанр: RockПродолжительность: 01:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44B27D3C054AA8A27E7C224032478FB5B754F28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205541   (783441) от 10.02.2018
-
-Toto - Greatest Hits: 40 Trips Around The Sun (2018) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone (Newly Recorded)
-02. Spanish Sea (Newly Recorded)
-03. I'll Supply the Love
-04. I'll Be Over You(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7638E227BBFEF8CFAC4F62BDE0D2BF41C06B8BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205617   (783495) от 10.02.2018
-
-VA - Greatest Ever Indie Disco: The Definitive Collection (2016) 3CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Left Hand Free - Alt-J (2:52)
-02. Henrietta (single version) - The Fratellis (3:30)
-03. Farewell To The Fairground - White Lies (4:16)
-04. All The Rage Back Home - Interpol (4:20)(   Читать дальше...   )Жанр: RockПродолжительность: 03:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E18524CFC30A8BA93CD5FC038ED4015B4AD7FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205527   (783496) от 10.02.2018
-
-The Wombats - Beautiful People Will Ruin Your Life (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783496.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cheetah Tongue (03:53)
-2. Lemon to a Knife Fight (03:26)
-3. Turn (03:27)
-4. Black Flamingo (03:21)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C85D8E683FC03B35080D827165F6E6756056803
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205375   (783504) от 10.02.2018
-
-Colosseum - Colosseum Live (1971) Remastered, 1998, Castle Communications [MP3|320 Kbps] <Heavy Jazz-Blues Rock, Prog-Art Rock, Acid Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783504.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rope Ladder To The Moon
-2. Walking In The Park
-3. Skelington
-4. I Can't Live Without You(   Читать дальше...   )Жанр: Heavy Jazz-Blues Rock, Prog-Art Rock, Acid RockПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B8D2F950FD0271EAB7990DCF21E282EFFFAB30
 ```
 
 

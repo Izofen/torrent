@@ -1,3 +1,333 @@
+###  Публикация: 1096337   (920930) от 23.01.2017
+
+Kreator - Live Antichrist (2017) Live [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enemy Of God
+02. Phobia
+03. Pleasure To Kill
+04. Mars Mantra(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCB52C85106D657DA49E4CAD5BDA79F4A445269
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096212   (920945) от 23.01.2017
+
+Aaron Gillespie - Out Of The Badlands (2016) [FLAC|Lossless|tracks] <Indie, Acoustic, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  A Boy Brushed Red... Living in Black and White  (04:52) 
+02|  I Can't Make You Love Me  (04:19) 
+03|  No I Don't  (04:04) 
+04|  Raspberry Layer Cake  (03:24) (   Читать дальше...   )Жанр: Indie, Acoustic, AlternativeПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAA43EAA361EC665A48BF5AABF86F28C67FFA80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988310   (920952) от 20.02.2016
+
+Children Collide - Theory Of Everything (2010) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Monks
+02. Jellylegs
+03. Asleep On My Feet
+04. My Eagle(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, SurfПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56FC75A06C15C3711C8F7C315FDB0B0C687DB009
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988558   (920958) от 20.02.2016
+
+Omnium Gatherum - Grey Heavens (2016) [MP3|320 кб/с] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pit
+02. Skyline
+03. Frontiers
+04. Majesty and Silence(   Читать дальше...   )Жанр: MDMПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3253E0356951D02637047BC5A006ECB89F2F484A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096362   (920990) от 23.01.2017
+
+Riff Action Family - So Lonely To Play Without You (2017) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ratman (03:07)
+02. Chess Match (04:13)
+03. Nothing Stops Me (03:12)
+04. Interstellar (06:31)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06F1C69C7E3D427DC52E416536C967405FF628B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096180   (920995) от 23.01.2017
+
+Plaag - 1 album, 1 EP (2011-2012) [MP3|210-256 Kbps] <Black Metal, Black'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once
+02. Stitched 'n Stapled
+03. Hear 'em Roll
+04. Plague(   Читать дальше...   )Жанр: Black Metal, Black'n'RollПродолжительность: 01:05:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E5AC1B4E4C73D5EC092F81A74DE747D970B43A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096357   (921049) от 23.01.2017
+
+Arktis - Arktis (1973) Reissue, 1998, Garden Of Delights [MP3|320 Kbps] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921049.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Student's Idyll
+2. Outcasted
+3. Jeff The Fool
+4. Rare Girl(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7870F3696D2B6C3E4822EB25D8EAE8CEEDA855
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988435   (921071) от 20.02.2016
+
+Karybdis - Samsara (2016) [MP3|320 кб/с] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rorschach
+02. Forsaken
+03. Constellations
+04. Ascendancy(   Читать дальше...   )Жанр: MDMПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E38A0333EADD57C4359A369A1B7C84A35CC55610
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987966   (921092) от 20.02.2016
+
+Fireleaf - Behind The Mask (2016) [MP3|320 кб/с] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bloody Tears
+02. Monsterman
+03. Faceless
+04. Forgiven(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99EDF37DA730151717F0F147363F4AAF06EB3303
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095995   (921117) от 23.01.2017
+
+Malefactor - Death Falls Silent (2002) [FLAC|Lossless|image + .cue] <Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Napalm (03:13)
+02. Bloodshed (02:20)
+03. Timer (03:12)
+04. Masticate (03:24)(   Читать дальше...   )Жанр: Death Metal, MetalcoreПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CBC241291EE04ED362A49FE87F8A2E0ED7177C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288072   (921828) от 29.01.2011
+
+NeoNate - В маске (2011) [MP3|320 kbps]<Melodic metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 В стекле холодных глаз
+02 Ты ушла
+03 Я сам очищу тебя
+04 Рана
+05 В маске
+06 Так холодно смотреть в глаза...
+07 Ты падаешь вместе со мной
+08 Это просто дождь...
+09 Один
+10 Я вижу слезы(   Читать дальше...)Жанр: Melodic metalcoreПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366629   (921865) от 12.03.2020
+
+Король и Шут - Акустический альбом (1998) Remastered, 2019, Шумный Рекордс [FLAC|Lossless|image + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921865.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кукла Колдуна
+2. Наблюдатель
+3. Бедняжка
+4. Прыгну со Скалы(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A863549816AA07B14ED332EF2058C7FE0B60E36E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366624   (921878) от 12.03.2020
 
 Король и Шут - Акустический альбом (1998) Remastered, 2019, Шумный Рекордс [MP3|320 Kbps] <Punk Rock>
@@ -372,330 +702,6 @@ Soulline - Welcome My Sun (2015) [FLAC|Lossless|image + .cue] <Melodic Death Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A66EFC9F59B91486222D91388CCDE389D752E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489959   (922547) от 18.08.2021
-
-Soulline - We Curse, We Trust (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. The Curse in Our Minds
-02. When We Freeze
-03. Hollow(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90E58D444C4E8CDBD790977ECAE73F699CBC5E29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987941   (922569) от 19.02.2016
-
-Joe Stump - 5 альбомов (1993 - 2009) [FLAC|Lossless|tracks] <Rock, Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasinae The Dragon  05:11
-02. Pistol Whipped  06:27
-03. The Dance of Kashani  07:49
-04. Fire and Brimstone  05:45(   Читать дальше...   )Жанр: Rock, Heavy Metal, Speed MetalПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4682F7AC230B35AA159F9AC7FFBFD75C4CF9FD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987954   (922576) от 19.02.2016
-
-Simple Plan - Taking one for the team (2016) [MP3|320 кб/с] <Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opinion Overload
-02. Boom!
-03. Kiss Me
-04. Farewell(   Читать дальше...   )Жанр: Pop-PunkПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13ECD8C2202A26F90B0B3B737138F651E199BDC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988315   (922582) от 19.02.2016
-
-Stray Cats - Sex, Drugs and Rock'n'Roll (The Best Hits) (2003) [MP3|320 кб/с] <Rockabilly, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stary Cat Strut
-02. Rumble In Brighton
-03. Ubangi Stomp
-04. Jade Idol(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6755C5B56CBD5D851EB0D55A6BA308663FBED920
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145068   (922586) от 13.02.2014
-
-Sam Brown - Stop! (1988) [FLAC|Lossless|image+cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sam Brown (Сэм Браун, настоящее имя — Саманта Браун, 7 октября 1964, Лондон, Великобритания) — английская певица, автор текстов песен. Она — дочь известного британского исполнителя рок-н-ролла Джо Брауна и певицы Вики Браун (Vicki Brown). Браун известна своей экспрессивной манерой исполнения и способностью легко смешивать различные музыкальные стили. Наиболее известна (   Читать дальше...   )01. Walking Back To Me (3:44)
-02. Your Love Is All (4:10)
-03. Stop (4:56)
-04. It Makes Me Wonder (4:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB7F2B8F6A1F8968FCBD8627DBF9DB261ADC3E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988056   (922664) от 19.02.2016
-
-Wolfmother - Victorious (2016) [MP3|320 кб/с] <Stoner Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Love That You Give
-02. Victorious
-03. Baroness
-04. Pretty Peggy(   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41194D30FAF76C15B81870E8FE8E9A368DD5C2B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988081   (922737) от 19.02.2016
-
-Собаки Качалова - Пацифик (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пацифик
-02. Дом – работа
-03. Без тебя так темно
-04. Девушки(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3FCA4F680505947B74C6AA24295E4C97E8BF0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095480   (922779) от 22.01.2017
-
-Betty Bonifassi - Lomax (2017) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rosie (02:50)
-02. Berta (02:57)
-03. No More My Lawrds (06:22)
-04. Grizzly Bear (03:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E47152770A3DDECD35EBCC6B5303643D8ACCF000
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988218   (922794) от 19.02.2016
-
-Children Collide - The Long Now (2008) [MP3|320 кб/с] <Alternative Rock, Indie Rock, Surf>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Across the Earth
-02. Social Currency
-03. Farewell Rocketship
-04. Skeleton Dance(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, SurfПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB3196E682198851C97B3A1233283BB0FDAF9BB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095639   (922816) от 22.01.2017
-
-Master Men - Through The Window (2015) [FLAC|Lossless|image + .cue] <Hard Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Rattlesnake  (06:26) 
-02|  Red  (03:55) 
-03|  Through the window  (04:32) 
-04|  Loser's Day  (04:50) (   Читать дальше...   )Жанр: Hard Rock, Art RockПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE25E7185A23F121E620839CCA4CD9F158387027
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096041   (922819) от 22.01.2017
-
-Rajfajh - 2 albums, 3 demos, 3 singles, 5 compilations, 2 EP, 1 Live (1995-2015) [MP3|112-320 Kbps] <Black Metal, Noise, Dark Ambient, Death Metal, Grindcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922819.jpg" />
-</div>
-
-
-###  Подробнее
-
-1995 - Спонтанность
-1996 - Всё Человеческое Чуждо (Demo)
-1996 - Настика (Demo)
-1998 - Техноген (Single)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 07:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E11B6D43F9717E0E008CF8DCA3182C80C5BF9B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095762   (922822) от 22.01.2017
-
-Liverpool Echo - Liverpool Echo (1973) Reissue, 2005, Rev-Ola [MP3|320 Kbps] <Beat, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Might As Well Surrender
-02. Girl Said To Me
-03. You Knwo It Feels Right
-04. No Not Again(   Читать дальше...   )Жанр: Beat, Pop RockПродолжительность: 00:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B7DEABB41B7C25287B131BEED28A08CD4BA540
 ```
 
 

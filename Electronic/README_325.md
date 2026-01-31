@@ -1,3 +1,30 @@
+###  Публикация: 1227853   (643143) от 28.05.2018
+
+Junior Bourcier - Mystic Rain (2018) [MP3|320 Kbps] <Piano, Easy Listening>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystic Rain
+02. Butterflies
+03. The Unknown
+04. Love at First Sight(   Читать дальше...   )Жанр: Piano, Easy ListeningПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F20B9EA84F5F091AC999C61B768A61CED789E28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292000   (643181) от 31.03.2019
 
 Merlin & Lydia Delay - Infinity (2019) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Chillgressive, Downtempo>
@@ -663,33 +690,6 @@ Argus - The Invisible Sun (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psychil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7E64E2D2731EC2A08DF9A9E6B625F4D516D9139
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292549   (645089) от 30.03.2019
-
-Chronos - Inner Darkness (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Psydub, Downtempo>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Darkness (07:35)
-02. I'm Not Pretty (10:24)
-03. NESK (Mother Healing Version) (08:48)
-04. Anatomy Of The Fear (08:42)(   Читать дальше...   )Жанр: Psychill, Psybient, Psydub, DowntempoПродолжительность: 01:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F0D1C08499F0F67BD5647F821F6E008B7D884F
 ```
 
 

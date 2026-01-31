@@ -1,3 +1,30 @@
+###  Публикация: 1098055   (910613) от 29.01.2017
+
+VA - Chilltrap Vol.8 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Chilltrap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flume - Say It Feat. Tove Lo (Illenium Remix) [04:28]
+ 02. Zara Larsson & Mnek - Never Forget You (Shoolz Remix) [03:47]
+ 03. Alan Walker - Faded (Dsert Remix) [02:31]
+ 04. Anevo Ft. Ameria - Electric Heart [03:21](   Читать дальше...   )Жанр: ChilltrapПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC2A01F52C83F1A2008C45C2C310A7120718E64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097973   (910635) от 29.01.2017
 
 VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (2017) [MP3|256 Kbps] <Pop>
@@ -669,33 +696,6 @@ VA - Best Dance Tracks N3 (2016) [MP3|192-320 кб/с] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF3E1D7CBA9ECC0E5C7DC07183F88EBBA669CD6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990522   (912164) от 25.02.2016
-
-VA - Welkom To The Dancefloor (2016) [MP3|320 кб/с] <Dance, Club, Pop, Electro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912164.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Derek Howell - Lickety Split (Original Mix)
-002. DJ Herby - Waht A Feels (Original mix)
-003. Rotan - Venus (Rotan Remix)
-004. Jim Noize - Amplify (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, Pop, ElectroПродолжительность: 08:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78697A79B9638736D288853D278F6D3BA3A092F1
 ```
 
 

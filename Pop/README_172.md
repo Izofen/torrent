@@ -1,3 +1,84 @@
+###  Публикация: 1568782   (457785) от 10.08.2022
+
+Blue System - Walking On A Rainbow (1987) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangster Love (Maxi Version) 4:24
+02. Sorry Little Sarah (Maxi Version) 5:12
+03. She's A Lady (Maxi Version) 4:59
+04. Voodoo Nights 3:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63108D8B8F2A3225882BA67894F104383ED82FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568799   (457791) от 10.08.2022
+
+VA - The Best Of Italo-Disco Vol. 9 (1987) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spagna – Call Me (6:05)
+02. Interface – Plastic Age (6:44)
+03. Eddy Huntington – Meet My Friend (6:08)
+04. Morgana – Ready For Love (7:30)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D072FE13E38C978C38589294D051736864FA8A89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568684   (457800) от 10.08.2022
+
+Bad Boys Blue - The Fifth (1989) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady In Black 3:46
+02. Someone To Love 3:05
+03. A Train To Nowhere 3:53
+04. I'm Not A Fool 3:49(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D694A21866E0D048ED927B7FF6822E472B30B7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568725   (457802) от 10.08.2022
 
 Fancy - Contact (1986) [OGG|485 Kbps] <Disco>
@@ -621,87 +702,6 @@ VA - Abbamania (1999) Compilation [MP3|320 Kbps] <Europop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:751AFFE83654BC4E5B7F10DEA2D0BFE8CBF27EA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059464   (461717) от 04.10.2016
-
-VA - Серебряный диск 2 (1995) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алёна Апина - Семечек стакан
-02. Любовь Успенская - Хрустальная стена
-03. Игорь Саруханов - Сима
-04. Наталья Ветлицкая - Раба любви(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA62E42CD27D59D22C6E6D4079E873AD88637838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059286   (461720) от 04.10.2016
-
-Supermax - Love Machine (1996) [FLAC|Lossless|image + .cue] <Electronic, Funk/Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Machine (4:32)
-02. Musicexpress (3:42)
-03. Be What You Are (2:56)
-04. Dance Dance Dance (3:45)(   Читать дальше...   )Жанр: Electronic, Funk/SoulПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD99B57541FF230462835E1D4BF81BF0CF537FF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059654   (461832) от 04.10.2016
-
-Venus Gang - Galactic Soul (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект известного французского музыканта, композитора и продюсера - Jean-Pierre Massiera.01. Cosmic Daddy (5:19)
-02. Space Inferno (3:41)
-03. Take Me Back To My Planet (3:43)
-04. Telstar (3:22)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699AE570D9EFC7F9E9F9BE4AACDA257A0A4BE276
 ```
 
 

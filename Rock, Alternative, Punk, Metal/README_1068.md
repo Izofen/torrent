@@ -1,3 +1,325 @@
+###  Публикация: 1197127   (817576) от 06.01.2018
+
+The Pretty Reckless - Going To Hell (2014) Victor, VICP 65213, Japan [MP3|320 Kbps] <Alternative Rock , Post-Grunge, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Follow Me Down 4:40
+02. Going to Hell 4:37
+03. Heaven Knows 3:45
+04. House on a Hill 4:39(   Читать дальше...   )Жанр: Alternative Rock , Post-Grunge, Female VocalПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F81DD9DE906F4295156B57A2633A55A6604F0D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197191   (817583) от 06.01.2018
+
+The Pretty Reckless - Just Tonight (2010) Single [MP3|320 Kbps] <Alternative Rock, Post-Grunge, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817583.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 01. Just Tonight 2:48
+02 02. Just Tonight (Acoustic Version) 3:04Жанр: Alternative Rock, Post-Grunge, Female VocalПродолжительность: 00:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED91E04CB12CDE77E9286FC21C2B910D7C1D853
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 625124   (817589) от 17.04.2016
+
+Caladan Brood - Echoes Of Battle (2013) [FLAC|Lossless|image+.cue]<Epic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Of Azure Fire
+02. Echoes Of Battle
+03. Wild Autumn Wind
+04. To Walk The Ashes Of Dead Empires(   Читать дальше...   )Жанр: Epic Black MetalПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97CDF4021739972104C68BE16AADE17E49FC156D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008133   (817599) от 17.04.2016
+
+Слот - КиСЛОТа ч.2: Слот VS Jonny Beast (2015) [MP3|320 кб/с] <Alternative rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Если (Johnny Beast desert storm mix)
+02. Одинокие люди (Johnny Beast club mix)
+03. Просточеловек (Johnny Beast save-the-world spirits mix)
+04. 2 войны (Johnny Beast club alarm mix)(   Читать дальше...   )Жанр: Alternative rock, ElectronicПродолжительность: 01:15:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E7EF5DB296E80D851D12CD226272AAB4BADB22E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503776   (817635) от 20.10.2021
+
+Coldplay - Music of the Spheres (2021) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music of the Spheres I
+02. Higher Power
+03. Humankind
+04. Alien Choir(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4E5565028BD5669FD2A06C1898227BBB451FB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197322   (817710) от 06.01.2018
+
+Wild Turkey - Turkey (1972) Reissue, 1995, Edsel Records [MP3|320 Kbps] <Classic Rock, Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817710.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Good Old Days
+2. Tomorrow's Friend
+3. Universal Man
+4. Eternal Mother / The Return(   Читать дальше...   )Жанр: Classic Rock, Prog-RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1C24AF73BA476415BB483478C4632902745AD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197136   (817716) от 06.01.2018
+
+Wild Turkey - Battle Hymn (1971) Reissue, 1991, Edsel Records [MP3|320 Kbps] <Classic Rock, Prog-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817716.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Butterfly
+2. To The Stars
+3. Twelve Streets Of Cobbled Black
+4. Dulwich Fox(   Читать дальше...   )Жанр: Classic Rock, Prog-RockПродолжительность: 00:39:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FDB7F7FF5B4E9A0AC37E862869947668FA0DE64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197240   (817724) от 06.01.2018
+
+Agent Cooper - Beginner's Mind (2005) [FLAC|Lossless|image + .cue] <Hard Rock,  Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East Indian Sun (5:35)
+02. Shallow Disease (4:01)
+03. ...In The Bottle (3:53)
+04. Taipei (3:52)(   Читать дальше...   )Жанр: Hard Rock,  Progressive RockПродолжительность: 00: 46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E091A67F129202124E97786C06DFACC99D50508F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008139   (817844) от 17.04.2016
+
+Larkin Poe - Kin (2014) [MP3|320 кб/с] <Indie Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jailbreak (03:49)
+02. Don't (03:04)
+03. Stubborn Love (03:38)
+04. Dandelion (03:31)(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF82B5A0D59793790B7CBC8919A5BCEFAE4C6B0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008130   (817845) от 17.04.2016
+
+Ace Frehley - Origins Vol. 1 (2016) [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Room
+02. Street Fighting Man
+03. Spanish Castle Magic (feat. John 5)
+04. Fire And Water (feat. Paul Stanley)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D1125872FBF24EA5D69DD24DADF6945A4AE371
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007658   (817849) от 17.04.2016
+
+Dark Oath - When Fire Engulfs The Earth (2016) [MP3|320 кб/с] <Melodic Death Metal, Epic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817849.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Land Of Ours
+2. The Tree Of Life
+3. Battle Sons
+4. Watchman Of Gods(   Читать дальше...   )Жанр: Melodic Death Metal, Epic MetalПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E669F8B500D5A12C6ABBF514E3B3FF744A9A55D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503632   (817882) от 20.10.2021
+
+Ronnie Atkins - 4 More Shots: The Acoustics (2021) EP [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Датский вокалист Ронни Аткинс из PRETTY MAIDS. "Весь мир был в изоляции, и будущие перспективы концертов были очень неопределенными и остаются такими по сей день. В принципе, это означало, что если я и собирался воплотить идею сольного альбома, то только сейчас, поскольку у меня не обязательно есть все время в мире. У меня были все эти идеи, записанные на мой (   Читать дальше...   )01. Carry Me Over
+02. When Dreams Are Not Enough (Acoustic)
+03. Picture Yourself (Acoustic)
+04. Real (Acoustic)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F93C8D587BBFBEA17F9364F56D77566049E43FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503730   (817890) от 20.10.2021
 
 Scarlet Aura - Falling Sky (2016) [FLAC|Lossless|image + .cue] <Melodic Power Metal, Female Vocal>
@@ -373,330 +695,6 @@ Albert Hammond - Original Album Classics (2016) 5CD Box Set [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86933CE553FDFBEDD0EF3D308D12F463A9F2D927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196842   (819059) от 05.01.2018
-
-Камбоджаз - Не забывай (2017) [MP3|320 Kbps] <Acoustic Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Береги её
-02. А говорили
-03. Аллилуйя
-04. Капитан и поле(   Читать дальше...   )Жанр: Acoustic Rock, Indie RockПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FABC3CCEC06F42C5A444FCE6E5DB3C9408D4F09D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196904   (819063) от 05.01.2018
-
-Hard Action - Hot Wired Beat (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819063.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Fall
-02. Nothing Ever Changed
-03. Hostile Street
-04. The Losing Side(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B5EF3440F64519053305C2714D2AE9852BE6EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196942   (819067) от 05.01.2018
-
-Doc Holliday - Doc Holliday Rides Again... (1981) Remastered, 2005, Rock Candy [MP3|320 Kbps] <Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Ride
-02. Good Boy Gone Bad
-03. Don't Go Talkin'
-04. Southern Man(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:414C92C032B753B9CB7E606CE105AB1D2E75BDDF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196953   (819070) от 05.01.2018
-
-The Octopus Project - Memory Mirror (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prism Riot (01:10)
-02. Brounce (02:14)
-03. Wrong Gong (03:10)
-04. Mendoza (03:21)(   Читать дальше...   )Жанр: Electronic, Indie RockПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AF1585838E934CA6995B9516F5A33491881941
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117149   (819092) от 22.03.2017
-
-Obituary - Obituary (2017) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brave
-02. Sentence Day
-03. A Lesson in Vengeance
-04. End It Now(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F242B63F88DF1EEABE076D27F74FBC0EEEAB14AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196914   (819191) от 05.01.2018
-
-Shining - X - Varg Utan Flock (2018) [MP3|320 Kbps] <Progressive Black Metal, Depressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Svart Ostoppbar Eld
-2. Gyllene Portarnas Bro
-3. Jag Är Din Fiende
-4. Han Som Lurar Inom(   Читать дальше...   )Жанр: Progressive Black Metal, Depressive Black MetalПродолжительность: 00:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE7626209A53D66CC1359C2648BE03E1FCC779B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503595   (819253) от 19.10.2021
-
-U.D.O. - Game Over (2021) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819253.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие хэви-металлисты U.D.O., ведомые экс-вокалистом ACCEPT Удо Диркшнайдером (Udo Dirkschneider), выпустят новый студийный альбом "Game Over" 22 октября на лейбле AFM. Диск будет включать 16 разнообразных песен - мощных, тяжелых и полных энергии треков в духе U.D.O., но не без сюрпризов, как обещают Удо Диркшнайдер и его команда. Название работы "Game (   Читать дальше...   )01. Fear Detector (04:21)
- 02. Holy Invaders (03:27)
- 03. Prophecy (04:42)
- 04. Empty Eyes (03:52)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8A1DBDDBE05BBE7D7E387D05C42E780CE27546
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117494   (819264) от 22.03.2017
-
-The Fire Escape - Psychotic Reaction (1967) Reissue, 2007, Fallout [MP3|320 Kbps] <Garage, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819264.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Psychotic Reaction
-2. Talk Talk
-3. Love Special Delivery
-4. The Trip(   Читать дальше...   )Жанр: Garage, Psychedelic RockПродолжительность: 00:24:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5537D9D330352FA5A239FD9C850D7FF578D1C81C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117218   (819266) от 22.03.2017
-
-Huis - Neither In Heaven (2016) [FLAC|Lossless|tracks + .cue] <Neo Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neither in Heaven (2:40)
-02. Synesthesia (13:09)
-03. Insane (5:48)
-04. Even Angels Sometimes Fall (5:29)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 01:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D581EB2C24D29C06EFB036BFF4129767C02AF46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117222   (819268) от 22.03.2017
-
-David Byrne - Grown Backwards (2004) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass, Concrete & Stone (4:13)
-02. The Man Who Loved Beer (2:40)
-03. Au Fond du Temple Saint (4:49)
-04. Empire (4:12)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:58:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1313C9477DDEB4EAD0A05BEB79413AD605D27F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200475   (819273) от 11.05.2020
-
-Domain - The Sixth Dimension (2003) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Gone Grazy (05:11)
-02. Your Favourite Curse (05:21)
-03. Kings Tears (05:12)
-04. One Perfect Moment (05:33)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CE0EC2B1E70F19F255934D27319BCB6E55D97E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503403   (819386) от 19.10.2021
-
-The Cranberries - Remembering Dolores (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Grow Old (02:36)
-02. Schizophrenic Playboy (03:39)
-03. The Glory (05:14)
-04. What You Were (03:42)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C6831823BCFE52D716B40072F36413B9EED805
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1839324   (1046474) от 28.11.2025
+
+VA - Trance: The Vocal Session 2026 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC & Fragma - Look At You Now (Extended Mix) [7:01]
+02. Richard Durand & Nicholas Gunn feat. Alina Renae - For You (Extended Mix) [6:46]
+03. Andy Jay Powell & DJ Fait - Love Is Heartbreak (Uplifting Mix Extended) [5:49]
+04. Ayla & York & NELLY TGM - Left On Our Own (Extended Mix) [6:19](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA822D6123DFB58B12904125BAF9A2482E01594
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839334   (1046475) от 28.11.2025
 
 VA - The Best Of Suanda Music 2025 (2025) [MP3|320 Kbps] <Trance>
@@ -668,33 +695,6 @@ VA - Deep House Night Drive, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DF4591254A358B30F739022F9D6D06A66A67EB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840706   (1047498) от 06.12.2025
-
-VA - The Orient Collective: Mystical Stories (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaisser Bouzriba - Deep In My Soul (5:59)
-02. Mikhail Catan & Tibetania - Omen (6:18)
-03. Masrit & Tibetania - Treacherus Dunes (6:29)
-04. Inessa & Tibetania - Kalahari (5:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 03:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE7613D97F5371BC1DCB437984C60BFACFB2C5D
 ```
 
 

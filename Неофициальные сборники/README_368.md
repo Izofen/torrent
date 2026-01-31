@@ -1,3 +1,30 @@
+###  Публикация: 1546550   (605939) от 24.04.2022
+
+VA - Vocal Trance: Spring Positive Mix (2022) [MP3|320 Kbps] <Trance, Club, Dance, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_605939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасные мелодии, отличная аранжировка, именитые гости, прогрессивные ритмы, дух беззаботности и позитивного настроения. Эти все составляющие присутствуют в сборнике "Vocal Trance: Spring Positive Mix" треки которого пришли к нам прямиком из кузницы европейской Trance музыки.001. Aurosonic - Onyx
+002. Caroline Harrison - There Was A Time
+003. Dj-Elven & D-Myo - Follow The Light
+004. Jay Hatfield - Time to Run Away(   Читать дальше...   )Жанр: Trance, Club, Dance, VocalПродолжительность: 08:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9757CB7BD7B2ECA23A2F3EA6A185069C44B8D204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038422   (606065) от 28.07.2016
 
 VA - Вечный хит (2016) [MP3|320 Kbps] <Pop, Rock>
@@ -673,33 +700,6 @@ VA - Vocal Trance Seduction Vol 4 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1850DC3ADB2326AB3F17978AB82F92222F3E37B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545564   (607460) от 23.04.2022
-
-VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хотите окунуться в ретро-атмосферу и на несколько десятков лет перенестись назад в прошлое? В этом вам прекрасно поможет подборка популярнейших песен 70-80х годов. Истерики фанаток и восторженные крики толпы. До отказа заполненные стадионы и концертные залы. Миллионы поклонников по всему миру. Беспрерывные гастроли и несмолкающие овации.001. Patsy Gallant - From New York To L.A.
-002. Soft Cell - Tainted Love
-003. Andrea True Connection - What's Your Name
-004. Siouxsie And The Banshees - The Staircase(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 10:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
 ```
 
 

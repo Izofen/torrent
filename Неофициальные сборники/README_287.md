@@ -1,3 +1,30 @@
+###  Публикация: 1405953   (479383) от 01.09.2020
+
+VA - Beatport Psy Trance: Electro Sound Pack #162 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_479383.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Enarxis - One Last Dance
+002. Flyaway - The Virus
+003. Hinap - Explorations
+004. Sonic System - Clarinha(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B45B97A35BFBC1D69CACF305FAD50F14CF55D087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056834   (479611) от 26.09.2016
 
 VA - 125 Melodic Trance Skyline (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Uplifting Trance, Energy, Progressive>
@@ -704,33 +731,6 @@ VA - EuroHit Top 40 Europa Plus (18.08.) (2017) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3590AA323890EEEFD5C7C95D931D4C8DB3F1E7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935722   (481721) от 18.09.2015
-
-VA - Vocal Dubstep - Dubstep Light#6 (2015) [MP3|320 кб/с]<Dubstep, UKG, Grime, Brostep, Chillstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond Feat. Zoe Johns - You Got To Go (Noise Killerz Remix)
-02. Adventure Club & Yuna - Gold (TBMA Remix)
-03. Aether - Stargazer
-04. Bebe Rexha - I Cant Stop Drinking About You(   Читать дальше...   )Жанр: Dubstep, UKG, Grime, Brostep, ChillstepПродолжительность: 02:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846CFAFE98D88F2710120EE639714CD838D44B0E
 ```
 
 

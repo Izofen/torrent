@@ -1,3 +1,30 @@
+###  Публикация: 1361387   (955814) от 19.02.2020
+
+VA - EDM Resources: Techno Dance Set (2020) [MP3|320 Kbps] <Techno, Dance, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955814.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Frank Maurel - The Stage (Original Mix)
+002. David Phillips - 6ygr
+003. Rhomb - Artefact
+004. Hype Bass - Freak(   Читать дальше...   )Жанр: Techno, Dance, Club, ElectroПродолжительность: 14:27:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22D1454DF961B484ECA0E857E82C4C080F44D81A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980195   (955933) от 29.01.2016
 
 The Eagles - Edgy and Heavy (2016) (3CD)[MP3|210-320 кб/с] <Rock, Folk-rock>
@@ -670,33 +697,6 @@ W.A.S.P. - All ballads (1982-2012) 2CD Bootleg [MP3|320 кб/с]<Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EA97CFAECF07A57B0976B24F042FD741D50B693
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979272   (959653) от 26.01.2016
-
-VA - Зимняя 100-ка Популярных Треков (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ева Польна - Мало
-02. Ёлка - Праздник К Нам Приходит!
-03. Kristina Si - Не Обижай Меня
-04. Milki - Лапочка(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE9014694044E490120935A9D6A18EA9522641D
 ```
 
 

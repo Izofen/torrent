@@ -1,669 +1,685 @@
-###  Публикация: 1293602   (635226) от 04.04.2019
+###  Публикация: 1229209   (629968) от 04.06.2018
 
-VueScan Pro 9.6.38 RePack (& Portable) by elchupacabra [Multi/Ru]
+The Hornettes - 2 Albums (1982, 1994) [MP3|320 Kbps] <Electronic, Europop, Disco, Schlager>
 
->>Архив торрентов
->>Архив Программ
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635226.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 700 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+The Hornettes - девичья группа из Германии - была основана в 1979 году, тогда с Gitta Walther, Dagmar Hellberg, Lucy Neale и Christina Harrison. "We Are On The Way-O" - редкий альбом, выпущенный на знаменитом "чингизхановском" лейбле Jupiter Records. К нескольким песням приложил руку сам владыка Ralph Siegel. Альбом "Welthits" в основном (   Читать дальше...   )01.  Waikiki Tamoure (4:00)
+02.  Motorbike Ride (2:45)
+03.  We Are On The Way-O (3:39)
+04.  Carry Me Home (3:45)(   Читать дальше...   )Жанр: Electronic, Europop, Disco, SchlagerПродолжительность: 01:25:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1430395890096DB3F583D9A19789C25C6D4AAADA
+magnet:?xt=urn:btih:F21556033E9FC862E85979A7738503506664D132
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246485   (635227) от 04.04.2019
+###  Публикация: 1228949   (629969) от 04.06.2018
 
-Мимино (1977) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мимино, что по-грузински означает "сокол" - позывные и прозвище героя фильма, летчика Валико Мизандари.
-Работая в родном горном селении, Мимино перевозит на вертолете почту, фрукты, овец. Он мечтает вернуться в большую авиацию. Но, осуществив свою мечту, герой осознаёт, насколько сильна его связь с землей, на которой он вырос.Производство: СССР, киностудия: "Мосфильм"Жанр: КомедияРежиссер: Георгий ДанелиАктеры: Вахтанг Кикабидзе, Фрунзик Мкртчян, Елена Проклова, Евгений Леонов, Руслан Микаберидзе, Закро Сахвадзе, Марина Дюжева, Арчил Гомиашвили, Валентина Титова, Владимир Басов, Николай Граббе, Савелий Крамаров, Леонид Куравлев, Вадим СпиридоновСубтитры: русские x2, французские, английскиеПродолжительность: 01:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:308BA858EC3ACA191B8C3A2F866F8D9C485F1E20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293428   (635228) от 04.04.2019
-
-Nazareth - Greatest Hits (1993) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Hurts
-02. Where Are You Now
-03. Moonlight Eyes
-04. Games(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48960495831F10159E11B130043A10C56B3C0A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293634   (635229) от 04.04.2019
-
-Ten Stories High - Story Goes (2019) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude
-02. Fade Away
-03. Ignorance
-04. Everything Must Change(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5619C415A67D32E5B4A51FEED775448AF92DB5BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293640   (635230) от 04.04.2019
-
-Векторный клипарт - Dark backgrounds with arrows - Vector Graphics [EPS]
+Векторный клипарт - Ramadan Kareem vector calligraphy design #1 [EPS]
 
 >>Материалы для мультимедиа и дизайна
 >>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635230.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Тёмные металлические фоны со стрелками.
-12 EPS + PreviewФормат: EPS
+Векторный клипарт для дизайна.
+Рамадан Карим
+5 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F3240F69640AA68E6881B1E9C6278E20AA3E942
+magnet:?xt=urn:btih:DD38905BE066ADCDC7847FA65E44AF1A784CF2ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293745   (635231) от 04.04.2019
+###  Публикация: 1229089   (629970) от 04.06.2018
 
-Обои - Desktop Wallpapers Full HD. Part (420) [JPG]
+Векторный клипарт - Ramadan Kareem vector calligraphy design #15 [EPS]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635231.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+Векторный клипарт для дизайна.
+Рамадан Карим
+5 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAD80333F1E715E0244BA678C5859C26FAF456DD
+magnet:?xt=urn:btih:BABCE3F0C73EAD20933B29593BA07E1DB3DC074D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293601   (635232) от 04.04.2019
+###  Публикация: 1228954   (629971) от 04.06.2018
 
-Movavi Slideshow Maker 5.3.0 RePack (& Portable) by TryRooM [Multi/Ru]
+Векторный клипарт - Ramadan Kareem vector calligraphy design #3 [EPS]
 
->>Архив торрентов
->>Архив Программ
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635232.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629971.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Movavi Slideshow Maker – это простая и удобная программа для создания слайд-шоу. Вы сможете самостоятельно превращать фотографии из вашей коллекции в красивое видео, причем для этого вам не потребуется каких-либо специальных навыков. Загрузите изображения в программу, соедините фото анимированными переходами, добавьте подходящий саундтрек, наложите титры и эффекты (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Векторный клипарт для дизайна.
+Рамадан Карим
+5 EPS + previewФормат: EPS
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1E2D3B889F081B0810F9BDFC7887D317A89F6F1
+magnet:?xt=urn:btih:F47412959D272F30ADDA3323E2C202862779D001
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293672   (635233) от 04.04.2019
+###  Публикация: 1229247   (629972) от 04.06.2018
 
-VA - Top 100 Зайцев.Нет Март 2019 [MP3|320 Kbps] <Pop, Dance, Other>
+Векторный клипарт - Floral Borders Elements Set 62 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629972.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Набор цветочных узоров
+3 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03A2744F0D718FC13CD5B79EA4CAB8C2C2256A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229038   (629973) от 04.06.2018
+
+Е. В. Тарле | Отечественная война 1812 года и разгром империи Наполеона (1941) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из всех войн Наполеона война 1812 года является наиболее откровенно империалистской войной, наиболее непосредственно продиктованной интересами крупной французской буржуазии.
+
+Для России борьба против нападения Наполеона была единственным средством сохранить свою экономическую и политическую самостоятельность, спастись не только от разорения, которое несла с собою (   Читать дальше...   )Жанр: История, политологияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8709AECA0AAAC02E3206248FD435B1FEF38F64C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229143   (629974) от 04.06.2018
+
+VA - Popular Megasonic (2018) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635233.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629974.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 5Sta Family - Снова вместе (3:38)
-002. Anivar - Украду (3:14)
-003. MiyaGi & Эндшпиль - I Got Love - МУЗЫКА НА МАШИНУ (4:36)
-004. ATL - Танцуйте (3:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:17:45
+001. Zedd, Maren Morris - The Middle
+002. Bruno Kauffmann - Make It Love
+003. Years & Years - Sanctify
+004. Vegedream - La rue(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:30:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B4DFC32B536DA7A539DC061F74C1992B6EE034E
+magnet:?xt=urn:btih:41CF282815821D73B8E50C811392E80C1B751B1C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293539   (635234) от 04.04.2019
+###  Публикация: 1294227   (629975) от 07.04.2019
 
-Ангел / El Angel (2018) BDRip [576p] iPad
+VA - Record Super Chart 581 (2019) [MP3|320 Kbps] <House, Club, Dance>
 
->>Аудио и Видео
->>Зарубежное видео для устройств Apple
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635234.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629975.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Карлитосу 17, у него ангельское лицо и дьявольские наклонности. В школе он знакомится с Рамоном, с которым они составляют блистательный и беспощадный дуэт. На пути изощренного воровства и лжи их совместные преступления становятся лучшим самовыражением.Производство: Аргентина, Испания / El Deseo, Instituto Nacional de Cine y Artes Audiovisuales (INCAA), Instituto de Credito Oficial (ICO)Жанр: Драма, криминал, биографияРежиссер: Луис ОртегаАктеры: Лоренцо Ферро, Чино Дарин, Даниэль Фанего, Мерседес Моран, Малена Вилла, Сесилия Рот, Sofía Inés Torner, Питер Ланзани, Marcelo Cancemi, Луис НьеккоПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:54:38
+01.  Calvin Harris & Rag'n'Bone Man - Giant
+02.  Denis First & Reznikov & Bright Sparks - Shameless
+03.  Gaulin  -  Moonlight
+04.  Filatov & Karas - Au Au(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:44:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DABA9310C57C92002AED1EF2CA509B520C4361F9
+magnet:?xt=urn:btih:3BA0C1DB993496983097602D8727615789A6E1D6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293693   (635235) от 04.04.2019
+###  Публикация: 1294373   (629976) от 07.04.2019
 
-VA - Golden DJ Hits Vol. 2 (2006) [MP3|320 Kbps] <Eurodance, Euro-House>
+VA - Let's Dance - Das Tanzalbum (2019) 2CD [MP3|320 Kbps] <Pop>
 
 >>Pop
->>Eurodance, Euro-House, Technopop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635235.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A-Teens - Gimme! Gimme! Gimme! (A Man After Midnight) (3:54)
-02. E-Type feat. Nana - Life (3:41)
-03. Dana International - Diva (2:59)
-04. Aqua - Around The World (3:26)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:07:14
+CD 01:
+01. Queen - I Want To Break Free (Foxtrott - Cha Cha)
+02. Rick James - Super Freak (Cha Cha)
+03. Santana Feat. Rob Thomas - Smooth (Radio Edit) (Cha Cha)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:28:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B39F64A1E888F41B7EAD110AEBC39EC63CF2EC7
+magnet:?xt=urn:btih:0BD340D008E915E0BE93E1D409DEC05AF91D6ADB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293733   (635236) от 04.04.2019
+###  Публикация: 1294270   (629977) от 07.04.2019
 
-Обои - Desktop Wallpapers Full HD. Part (419) [JPG]
+Первая передача на НТВ. Автомобильная передача (07.04.2019) SATRip
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635236.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+Нашествие гигантских кузнечиков и грузовик на задних «копытах»: «Первая передача» в мире автомутантов! А также — как виновники ДТП аннулируют свою страховку?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:28:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54D185283D70FD5C0A997331FD7A593601A3EACA
+magnet:?xt=urn:btih:78ADB3B619E0159AC562B61CD3205961A376589B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293608   (635237) от 04.04.2019
+###  Публикация: 1294451   (629978) от 07.04.2019
 
-Элис Робертс | Приручение. 10 биологических видов, изменивших мир (2019) [PDF]
+VHS Dreams - Lost World (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
 
->>Научная и техническая литература
->>Научно-популярная литература
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635237.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На протяжении сотен тысяч лет наши предки выживали благодаря диким растениям и животным. Они были охотниками-собирателями, превосходно знакомыми с дарами природы, принимающими мир таким, какой он есть. А потом случилась революция, навсегда изменившая отношения между человеком и другими видами: люди стали их приручать…
-Известный британский антрополог и популяризатор (   Читать дальше...   )Жанр: Научно-популярная литератураФормат: PDF
+01. A Song I Once Heard (5:47)
+02. Holon (The 4th Dimension) (7:38)
+03. A Midday Summer's Dream (6:06)
+04. Journey (5:01)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:49:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C16409FD182DBE2A12F88D7A37E4EEEC11A44BC2
+magnet:?xt=urn:btih:F00CF472855A5A79D721513E84C230425D101FBB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293727   (635238) от 04.04.2019
+###  Публикация: 1294449   (629979) от 07.04.2019
 
-Обои - Desktop Wallpapers Full HD. Part (418) [JPG]
+VHS Dreams - TRANS AM (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635238.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+01. Vice Point (3:43)
+02. Miami 2K15 (5:13)
+03. Highway Lovers (4:04)
+04. R.E.D.M (3:34)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:41:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC0FE19D0C6BE77FEE5EE51A3BE9B63461BC08DD
+magnet:?xt=urn:btih:5F17CE4FAA6A4909CE71B4BEAC3F118B49BF05E2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143363   (635239) от 18.06.2017
+###  Публикация: 1294365   (629980) от 07.04.2019
 
-Members Of The Glenn Miller Orchestra - A Tribute To Glenn Miller (1998) [MP3|320 Kbps] <Jazz, Swing, Oldies>
+VHS Dreams - Lost World (2018) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Song I Once Heard (5:47)
+02. Holon (The 4th Dimension) (7:38)
+03. A Midday Summer's Dream (6:06)
+04. Journey (5:01)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64B579553080B5AACAAF741E0B1F777C4C578024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294327   (629981) от 07.04.2019
+
+Nicki Parrott - From New York To Paris (2019) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Vocal Jazz>
 
 >>Jazz, Blues, Soul
->>Jazz
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635239.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Tuxedo Junction (3:50)
-2. American Patrol (3:33)
-3. Lover's Serenade (2:34)
-4. Londonderry Air (2:25)(   Читать дальше...   )Жанр: Jazz, Swing, OldiesПродолжительность: 00:32:00
+01. I Love Paris
+02. There's A Boat Leaving Soon For New York
+03. I Will Wait For You
+04. On Broadway(   Читать дальше...   )Жанр: Contemporary Jazz, Vocal JazzПродолжительность: 00:59:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F6BDDE6F0FA9D3480C770E26107C9FC6E084D47
+magnet:?xt=urn:btih:CFA66A2B866D7103DAB908B13B91D212A2C74AAC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143623   (635240) от 18.06.2017
+###  Публикация: 1294358   (629982) от 07.04.2019
 
-VA - Slow Smooth Jazz: Relaxation Soft Music (2017) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Jazz Lounge School — Slow Smooth Jazz
-02. Moody Jazz Collection — Piano Bar Chill Out
-03. Relaxing Piano Music Ensemble — Pleasure and Easy Listening
-04. Good Morning Jazz Academy — Take it Easy(   Читать дальше...   )Жанр: JazzПродолжительность: 01:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234901C27D8A04AD62515BEE4B73425A7699557D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143465   (635241) от 18.06.2017
-
-L.A.X. - L.A.X. (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman Ad Lib (6:12)
-02. I Don't Wanna Be Undercover (4:40)
-03. Don't Stop (7:03)
-04. Dancin' At The Disco (6:49)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B49731983EF175248C075D1FEA5A6F831A9EA9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143175   (635242) от 18.06.2017
-
-Lanskoy & Co. - Вопреки (2017) EP [MP3|320 Kbps] <Rock>
+Silver Bullet - Mooncult (2019) [MP3|320 Kbps] <Power Metal, Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635242.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ты нравишься мне
-02. Корабли ушли
-03. Вопреки
-04. Повезло(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:14
+1 - 1590 Edinburgh (Intro) (2:05)
+ 2 - She Holds the Greatest Promise (5:06)
+ 3 - Forever Lost (4:45)
+ 4 - Maiden, Mother and Crone (4:47)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:55:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E7536793C66FE936A7CB9475CCE6E2CA4D5BB45
+magnet:?xt=urn:btih:9E582FC9C7D283F4E180372257576F194C9FEB1E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143300   (635243) от 18.06.2017
+###  Публикация: 1294325   (629983) от 07.04.2019
 
-VCMG - EP2 / Single Blip (2012) [MP3|320 Kbps] <Electronic, Techno>
+Журнал | Наша история №2 (6) (апрель-май 2019) [PDF]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635243.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Single Blip (Original Mix) (5:47)
-02. Single Blip (Matthew Jonson Remix) (11:11)
-03. Single Blip (Terrence Fixmer Remix) (5:34)
-04. Single Blip (Byetone Remix) (6:26)(   Читать дальше...   )Жанр: Electronic, TechnoПродолжительность: 00:34:15
+Журнал посвящён истории России.Жанр: популярный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38A8C071A81397817AD4C6F7DC0DFA354EAF8391
+magnet:?xt=urn:btih:A75DC70970CBB264C85E3D46328FBC4E9699769B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142656   (635245) от 18.06.2017
+###  Публикация: 1294339   (629984) от 07.04.2019
 
-Hi_Tack Feat Kristy Thirsk - Silence (2008) [FLAC|Lossless|tracks] <Electronic, Trance>
+Shwamp - Inner Landscape (2019) Mindspring Music [FLAC|Lossless|WEB-DL|tracks] <Psychill, Downtempo, Dub, Ambient>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Lost (07:40)
+02. Dragonfruit (05:42)
+03. Who Are You (05:08)
+04. Floating Sunrise (06:43)(   Читать дальше...   )Жанр: Psychill, Downtempo, Dub, AmbientПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88298577E29410762E78ED4C753421FF2F341B30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294375   (629985) от 07.04.2019
+
+Jayda G - Significant Changes (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629985.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Unifying The Center (Abstract) (03:13)
+2. Renewal (Hyla Mix) (04:58)
+3. Stanley’s Get Down (No Parking On The DF) (05:22)
+4. Leave Room 2 Breathe (Feat. Alexa Dash) (07:00)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E93CD1FB8B545EA37E1A740F7DBAF716F05459E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294361   (629986) от 07.04.2019
+
+Журнал | История от "Русской семёрки" №4 (2019) [PDF]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635245.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Silence (Radio Mix) 3:05
-02 - Silence (Hi_Tack Remix Edit) 3:23
-03 - Silence (Original Mix)  8:50
-04 - Silence (Hi_Tack Remix) 7:58(   Читать дальше...   )Производство: Spinnin' Records – SPCDS10208Жанр: Electronic, TranceПродолжительность: 00:42:23
+Журнал «История от «Русской Семерки»» - уникальный журнал, охватывающий все аспекты истории мировой цивилизации.
+Исторический журнал нового поколения, позволяющий узнать о ключевых событиях российской и мировой истории в доступной, современной и развлекательной форме.
+Журналисты проекта по-новому раскрывают известные исторические события, исторические фигуры, открывают (   Читать дальше...   )Жанр: популярный исторический журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E816645368930AF1F22CC097B712D58A0B8D228
+magnet:?xt=urn:btih:27573E7CEA1894D28C24A5A48F4AE27FC3787476
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143550   (635246) от 18.06.2017
+###  Публикация: 1294309   (629987) от 07.04.2019
 
-Jeff Lynne And Friends - Every Little Thing (2010) Compilation [FLAC|Lossless|image + .cue] <Rock, Pop-Rock, Classic Rock>
+Журнал | Архивы ХХ века №1 (февраль 2019) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bauer Media Group — одна из самых успешных и передовых медиа-компаний в мире. Имея около 570 журналов, более 300 интернет-проектов и около 50 телевизионных и радиоканалов, она является значимым игроком в стремительно развивающейся и постоянно совершенствующейся индустрии. Стабильное развитие и успех компании под руководством издателя Ивонн Бауэр (Yvonne Bauer) являются (   Читать дальше...   )Жанр: популярный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6FF4549FF867CE62C8BC2E98BEB9ABAA5D6D5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294268   (629988) от 07.04.2019
+
+The Neal Morse Band - The Great Adventure (2019) 2CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635246.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Every little Thing (12'' remix)  (07:49) 
-02. Rockabilly Holiday  (03:50) 
-03. Heartbreak Radio  (03:01) 
-04. Sand in my eyes  (03:21) (   Читать дальше...   )Жанр: Rock, Pop-Rock, Classic RockПродолжительность: 00:56:39
+01. 	Overture
+02. 	The Dream Isn't Over
+03. 	Welcome To The World
+04. 	Momentary Change(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:43:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F23DD5B33A1D7DAC6075E412595D6FCC89646EB
+magnet:?xt=urn:btih:74CC32F87FB73BD1389F9B404F10498431F7FC9C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143613   (635247) от 18.06.2017
+###  Публикация: 1294424   (629989) от 07.04.2019
 
-Орел и решка. Рай и ад (2017.06.18) WEB-DL [H.264/720p-LQ] (сезон 13: Адская Аккра)
+Nat King Cole - Ultimate Nat King Cole (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Swing, Easy Listening>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635247.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После нелегкого испытания под названием «Кругосветка» ведущие Регина Тодоренко и Леся Никитюк снова вместе отправляются в путешествие. В 13-м сезоне проекта они посетят самые райские и самые адские уголки нашей планеты. Их ждут волшебные тропические курорты и самые опасные места на Земле.
-В первом выпуске шоу Орел и решка. Рай и ад Леся и Регина будут искать рай (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:43:48
+01. (Get Your Kicks On) Route 66 (3:01)
+02. Straighten Up And Fly Right (2:25)
+03. (I Love You) For Sentimental Reasons (2:53)
+04. Sweet Lorraine (3:09)(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 01:00:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C6E060E40D4BCC06D889E735E0CA65DFFEB276A
+magnet:?xt=urn:btih:861855759EC8A01F98524B622E60DE9F261FBAEB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143464   (635248) от 18.06.2017
+###  Публикация: 1294348   (629990) от 07.04.2019
 
-Vellum 2.0.1 [En]
+Thump'n Pig & Puff'n Billy - Downunda (1973) CD, Remastered, 2005, Aztec Music [MP3|320 Kbps] <Classic Rock, Blues Rock, Rock'n'Roll>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635248.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Vellum — приложение для создания электронных книг на OS X
-Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, имели совместимые с ними форматы и были также удобны для чтения на бумаге. Многие приложения (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 15 июня 2017Разработчик: 180gПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+01. Captain Straightman
+02. I've Cried over You
+03. You Look After Me, I Look After You
+04. Moving with Rock(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Rock'n'RollПродолжительность: 01:01:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C05F0CDA966CCE2415AB53883CFC27E7ABF88A07
+magnet:?xt=urn:btih:4800413C9477A4E20B539DD0B2F599D399314768
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143382   (635249) от 18.06.2017
+###  Публикация: 1294255   (629991) от 07.04.2019
 
-Взлёты и падения / The Vertigo Years: Europe, 1900-1914 (2013) HDTVRip [H.264/720p-LQ] (3 серии из 3)
+Sopor Aeternus & The Ensemble of Shadows - Death and Flamingos (2019) [FLAC|Lossless|tracks] <Rock, Deathrock>
 
->>Документалистика и Телепередачи
->>История
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635249.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Незадолго до Первой мировой, между 1900 и 1914 годами, происходили индустриализация и урбанизация, которые повлекли за собой изменение общества по всей Европе и в США. Несмотря на миф об этой эре как о «золотой», это было время постоянных изменений как научных, так и социальных. Благодаря огромному количеству архивных съёмок со всей Европы, мы увидим стремительное (   Читать дальше...   )Производство: Германия, DOR FILM, ZDF, ORF, AUTENTICЖанр: Документальный, познавательный, историяРежиссер: Роберт НоймюллерПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 х ~ 00:42:47
+01.Side A (0:27)
+02.Kinder Des Teufels (3:30)
+03.Spellbound (3:10)
+04.The Boy Must Die (5:08)(   Читать дальше...   )Жанр: Rock, DeathrockПродолжительность: 00:42:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D156D8AA9D4816C593413A6CFAE6D06A40A1963
+magnet:?xt=urn:btih:305FF890EADA9EEF1D7E55ACDC5C4AB84E4CB511
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143546   (635250) от 18.06.2017
+###  Публикация: 1294294   (629992) от 07.04.2019
 
-Disco Digitale - Computer Dreams (2006) [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
+Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring On The Teardrops [0:03:01.40]
+02. Love Is Easy [0:03:07.68]
+03. If This Is Love [0:05:20.25]
+04. In Another Tear From Now [0:03:27.02](   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:39.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E1A7BF68028AB8FED47D2F3B85FFC76DBD3315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294366   (629993) от 07.04.2019
+
+Reba McEntire - Stronger Than The Truth (2019) [MP3|320 Kbps] <Country>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635250.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Taken To The Stars
-02. Videogirl
-03. Digital Love
-04. Lightspeed(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:41:54
+01 - Swing All Night Long With You
+02 - Stronger Than The Truth
+03 - Storm In A Shot Glass
+04 - Tammy Wynette Kind Of Pain(   Читать дальше...   )Жанр: CountryПродолжительность: 00:47:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D708678DE1AAFE7962F2B7AD0B2514F2796EC1D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143673   (635251) от 18.06.2017
-
-Halogenix - All Blue (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Blue (feat. Cleveland Watkiss) (05:11)
- 02. Beyond The Bounds (05:21)
- 03. Shank (05:24)
- 04. Shores (05:37)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:26:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739360D1C5F5BAE32001DC2C9F0BE3D1DC2D795B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143548   (635252) от 18.06.2017
-
-Disco Digitale - In The 25th Century (2007) EP [FLAC|Lossless|image + .cue] < Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow Dancer
-02. Hotline
-03. In The 25th Century
-04. Living In A Fantasy (Single Version)(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67473EEA5403D1DA6F69AA0F99FC73D57308C90F
+magnet:?xt=urn:btih:3C8921E281E9A043AC767BB1D794F82D0B1A6699
 ```
 
 

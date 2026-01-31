@@ -1,3 +1,30 @@
+###  Публикация: 1383074   (813738) от 14.05.2020
+
+VA - Pop Jam Vol.03 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813738.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Banks feat. Francis - Look What You're Doing To Me
+002. Ehla - On Me Dit Ehla
+003. Inna - Fuego
+004. Grand Palladium - Into Limbo(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964CF629CB84780B72E636B9E17B9DE616D3ECE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383073   (813743) от 14.05.2020
 
 VA - Jah Riddim (2020) [MP3|320 Kbps] <Reggae, Soul>
@@ -670,33 +697,6 @@ VA - Classical in Jazz: 15 New Jazz Version of Classical Masterpieces (2016) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC9256C339D31E2A3450D4289098E26274B6629A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197435   (815813) от 07.01.2018
-
-VA - Record Super Chart #518 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-02.  EKTONIX  -  Vuono Matyn  2:30
-03.  Malaa  -  Notorious  3:58
-04.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:01:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A857CDB99E3F2D3A6D5D63BA9A494525D27E75
 ```
 
 

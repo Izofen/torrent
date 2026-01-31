@@ -1,3 +1,30 @@
+###  Публикация: 945282   (432952) от 10.10.2015
+
+Каспийский Груз - Белый (2015) [MP3|192-320 кб/с]<Rap, Hip-hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_432952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Табор уходит в небо
+02. Выдох, Выстрел
+03. Как у Буйнова
+04. На поражение(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D842B182D5CAA58EC8FD6AEF39B4430C73C7F7EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945546   (432963) от 10.10.2015
 
 Scorpions - Good Songs (2015) [MP3|320 кб/с]<Rock>
@@ -680,33 +707,6 @@ VA - Funky Collector Nostalgie (2022) [MP3|320 Kbps] <Dance, Rhythm & Blues, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5932E0CBB98673215B53D9F7613FC1715B5A026A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063135   (434017) от 16.10.2016
-
-VA - Дискотека 80-90 годов по-новому (Зарубежный выпуск - 40) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Boys - London Nights (DJ NIKOLAY-D Remix ) (08:29)
-02. Pulsedriver & Andrew Spencer - Touch Me (Limelight Remix) (05:06)
-03. Beata - Maria Magdalena (K.C. Nightline Club Mix) (04:18)
-04. Yvan & Dan Daniel - Enjoy The Silence (George Acosta Remix) (07:25)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905DFBDAE3882EDCA52423BC9D34D41269616096
 ```
 
 

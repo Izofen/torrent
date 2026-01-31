@@ -1,3 +1,27 @@
+###  Публикация: 1466725   (1018260) от 01.05.2021
+
+VA - FreshTraxxx Vol.3 (Mixed by Utah Saints) - 2008 [FLAC|Lossless|tracks] <Electro Breaks, Drum 'n' Base>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Electro Breaks, Drum 'n' BaseПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772A4F5283848D77557D63D43B81037046FD7428
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466720   (1018292) от 01.05.2021
 
 Greg Nairo - Alma (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -667,30 +691,6 @@ Mychael Danna & Tim Clément (Tim Clement) - The Best Of Danna & Clément (1999)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AFC0D74DE30277B85BE34DDC97B2C905124AF1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256828   (1019409) от 24.04.2021
-
-Geomatic - Discography 10 Releases (2001-2021) M-Tronic, Tympanik Audio, Strange Place Records [FLAC|Lossless|tracks+.cue, tracks] <Industrial, Ambient, Tribal, Rhythmic Noise, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyss (05:23)Тип издания: CD, WebЖанр: Industrial, Ambient, Tribal, Rhythmic Noise, Experimental •Продолжительность: 09:15:33 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF065CEC5ECD74065A0BE52DAC0BA465EF596A65
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1621444   (1030955) от 25.03.2023
+
+VA - 50 DJ Tracks 2023 Vol. 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicco & Music For Humans - Love Locks (Original Mix) [2:58]
+02. Andrew Spencer - Love Me (ANSP Extended Mix) [3:50]
+03. Alex Megane - Friday I'm In Love (Extended Mix) [3:14]
+04. Brooklyn Bounce - Bass, Beats & Melody (Giovi Extended Remix) [4:10](   Читать дальше...   )Жанр: House, Dance, Club, ElectronicПродолжительность: 03:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C094F88E1E85C734773F94E703F34B90485E7E0F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621141   (1030986) от 25.03.2023
 
 VA - VA Trance 2023 [MP3|320 Kbps] <Trance>
@@ -666,33 +693,6 @@ Tune Of The Week:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D324C0203F453A55F253ED5415494DB390A274EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342026   (1032080) от 12.02.2021
-
-Deep Blu' - Under The Ocean (2006) [FLAC|Lossless|tracks + .cue] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simex - Under The Ocean (Taho Remix)
-02. Baier,Box - Duck Dub (Taho Remix)
-03. Brian Kage - Luna Twilight
-04. Brian Kage - The Days Of Us Two (Taho Remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6372B030BAC6D2F779D18D45313ADAD0851F80
 ```
 
 

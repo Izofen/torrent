@@ -1,3 +1,30 @@
+###  Публикация: 1205114   (783795) от 09.02.2018
+
+VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oscar Bandersen  -  Running (feat. Bruce) (Original Mix)  3:35
+02.  Aussteiger  -  Zusammenkunft (Original Mix)  5:52
+03.  Willie Graff  -  Second Sun (Original Mix)  7:05
+04.  Troels Hammer  -  The Human Tree (feat. Mariana Sadovska) (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204895   (783796) от 09.02.2018
 
 VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
@@ -667,33 +694,6 @@ VA - Love Hits Vol.3 (2018) [FLAC|Lossless|tracks] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2E4A1C981A59DD5CA8337455662D553F2926A4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204759   (784396) от 07.02.2018
-
-ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Gone (08:11)
-02. Ascent & Argus - Glaciers of Oblivion (08:36)
-03. Followed by Light (08:32)
-04. Wind Song (07:55)(   Читать дальше...   )Жанр: Balearic, Downtempo, AmbienПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92DCA40C3A3036F61E1F56DBA83FF806CCE9130F
 ```
 
 

@@ -1,3 +1,327 @@
+###  Публикация: 1297795   (603083) от 24.04.2019
+
+Queen - A Kind Of Magic (1986) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Vision (05:10)
+02. A Kind Of Magic (04:24)
+03. One Year Of Love (04:27)
+04. Pain Is So Close To Pleasure (04:22)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46144CF212382A794F9FDA64CB468AE67C8BD8A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296619   (603084) от 24.04.2019
+
+Frank Zappa - Dancin' Fool (2019) (Live) [MP3|320 Kbps] <Avantgarde, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chunga’s Revenge (Live)
+02. Keep It Greasey (Live)
+03. Outside Now (Live)
+04. City Of Tiny Lites (Live)(   Читать дальше...   )Жанр: Avantgarde, Psychedelic RockПродолжительность: 01:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACBD5F36D8CFCFECDC9339DA841FE3CA5D9D01F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297737   (603100) от 24.04.2019
+
+Prefab Sprout - Jordan: The Comeback (2013 Blu-spec CD 2 edition) (1990) 2013, Sony Music (Epic) [FLAC|Lossless|tracks + .cue] <Alternative, Indie Rock, Sophisti-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking for Atlantis 04:03
+02. Wild Horses 03:44
+03. Machine Gun Ibiza 03:43
+04. We Let the Stars Go 03:39(   Читать дальше...   )Жанр: Alternative, Indie Rock, Sophisti-PopПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4645C82DDCB034BAF1397016F9B521DC042F2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297800   (603109) от 24.04.2019
+
+Anthem - Nucleus (2019) 2CD [WV|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603109.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Immortal Bind
+02. Black Empire
+03. Overload(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E47068C77E0562EB562E6DDB1985CD8783FFBC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297743   (603113) от 24.04.2019
+
+Karen O - Crush Songs (2014) Limited Edition [FLAC|Lossless|tracks + .cue] <Lo-Fi, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ooo (01:29)
+02. Rapt (01:47)
+03. Visits (01:33)
+04. Beast (02:56)(   Читать дальше...   )Жанр: Lo-Fi, AcousticПродолжительность: 00:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80629C4FAE37C7AAC72BDD948DA2C16CEE15B01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231888   (603158) от 21.06.2018
+
+The Ventures - The Ventures Best Hit Collection 30 (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Instrumental Rock, Surf Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Don't Run (2:09)
+02. Memphis (2:31)
+03. Rebel Rouser (2:44)
+04. Apache (3:02)(   Читать дальше...   )Жанр: Instrumental Rock | Surf RockПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638C9DB41AAAFAB423D352CE52EF0931B6276C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231858   (603234) от 21.06.2018
+
+Lizzy Borden - My Midnight Things (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. My Midnight Things (4:21)
+ 2. Obsessed with You (4:35)
+ 3. Long May They Haunt Us (4:34)
+ 4. The Scar Across My Heart (4:32)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4445F67F59A746A229FBD54AB390E43C6DFE40E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547124   (603346) от 27.04.2022
+
+Hammerschmitt - Dr. Evil (2019) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Evil
+02. Restart Your Fire
+03. Say My Name
+04. Fly(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC376BC25B593CE7AC2AEAE258B0278B867FFE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547175   (603420) от 27.04.2022
+
+Ringo & His New All-Starr Band - King Biscuit Flower Hour Presents (2002) [FLAC|Lossless|image + .cue] <Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Photograph[4:22]
+02. Act Naturally[2:33]
+03. Logical Song (Performed by Roger Hodgson)[3:56]
+04. No One Is To Blame (Performed by Howard Jones)[6:12](   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 01:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C592CE72ADAB7A20FA633840B6D0A0C570DD032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547190   (603425) от 27.04.2022
+
+Barons Court - A Descent Into Madness (2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Skymning [00:01:35]
+02 - Deus Deceptor [00:04:13]
+03 - Devil [00:03:56]
+04 - She Is There [00:07:36](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D364E50166463D5281F258110B182AE699276A0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547182   (603431) от 27.04.2022
+
+Crystal Viper - The Last Axeman (2022) Compilation [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603431.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Last Axeman (2022 Version)
+2. In The Haunted Chapel
+3. Ulitsa Roz (Aria Cover)
+4. It's Electric (Diamond Head Cover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09060CB0E69178FF7068F67E06F4787E983899A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547319   (603461) от 27.04.2022
+
+Desires Dawn - Один (2022) [MP3|320 Kbps] <Progressive Metalcore, Djent, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Найти [00:00:47]
+02 - Один [00:03:19]
+03 - Баланс души [00:03:57]
+04 - Другой [00:04:04](   Читать дальше...   )Жанр: Progressive Metalcore, Djent, Alternative MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9818F4B66AB39F7D33F810717438D8C9E0A221A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547201   (603462) от 27.04.2022
 
 Эйфори.Я - Кофе (2022) [MP3|320 Kbps] <Alt. Rock, Post Grunge>
@@ -370,330 +694,6 @@ Queen - The Works (1984) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:403A7F574545DD58E19736A7755DE22A43C04945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297648   (603578) от 23.04.2019
-
-Queen - Hot Space (1982) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Staying Power (04:12)
-02. Dancer (03:50)
-03. Back Chat (04:35)
-04. Body Language (04:31)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D94DAE95F6F9F70C8051D96FD374C81BBD2C66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297479   (603585) от 23.04.2019
-
-American Bombshell - Tattooed N' Bruised (2019) [MP3|320 Kbps] <Hard Rock , Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Money on the Liquor (3:32)
- 02 - Faster (3:33)
- 03 - Run Away (3:25)
- 04 - Only Rock N Roll (3:23)(   Читать дальше...   )Жанр: Hard Rock , Rock'n'RollПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21CDBC1B24BBE63EFE12FD936FF4BCCFA848C83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297532   (603588) от 23.04.2019
-
-The Hillbilly Moon Explosion - The Sparky Sessions (2019) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Love (feat. Mark Phillips) (02:43)
-02. Queen of Hearts (feat. Mark Phillips) (03:15)
-03. Stumble Through the Darkness (feat. Mark Phillips) (03:28)
-04. Obsession (feat. Mark Phillips) (02:50)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E058EFABF556112BB1F3C697B17A0234DB8A58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297635   (603600) от 23.04.2019
-
-ОБЕ-РЕК - Сердце (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сердце (4:48)
- 02. Мы поём (4:23)
- 03. Другу (4:52)
- 04. Доброго пути (3:45)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:89:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0672068BA313B1F8CBE3BE0BC8109DFC20F3D64A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297587   (603603) от 23.04.2019
-
-Trollfest - Norwegian Fairytales (2019) [FLAC|Lossless|tracks + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fjøsnissens Fjaseri (03:19)
-02. Kjettaren Mot Strømmen (03:51)
-03. Espen Bin Askeladden (04:05)
-04. Trine Reinlender (01:21)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0E06192F03B7D872A813DE7F9AA1A54837432DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231776   (603689) от 20.06.2018
-
-The White Stripes - Elephant (2003) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Punk, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Nation Army (3:52)
- 02. Black Math (3:04)
- 03. There's No Home for You Here (3:44)
- 04. I Just Don't Know What to Do With Myself (2:46)(   Читать дальше...   )Жанр: Rock & Roll, Punk, Indie RockПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EEA8E64F9106118A27D013672C981FBEF03B39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231779   (603697) от 20.06.2018
-
-The White Stripes - Icky Thump (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock, Garage Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icky Thump (4:15)
- 02. You Don't Know What Love Is (You Just Do as You're Told) (3:54)
- 03. 300 M.P.H. Torrential Outpour Blues (5:29)
- 04. Conquest (2:48)(   Читать дальше...   )Жанр: Blues Rock, Garage Rock, Indie RockПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4176810F10A77CFB894CAFC3D5B75B8C97F1F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231886   (603706) от 20.06.2018
-
-Broken Teeth - Blood On The Radio (2004) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Gonna Blow  (2:59)
- 02. Pull the Plug  (3:45)
- 03. Stick it in  (3:48)
- 04. Chaingang  (5:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ECAE7720DE98919F4972878C41D157690C087C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231869   (603711) от 20.06.2018
-
-Suotana - Land Of The Ending Time (2018) [MP3|320 Kbps] <Melodic Black Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603711.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alku
-2. Troutrace
-3. Sorrowl
-4. Into The Ice(   Читать дальше...   )Жанр: Melodic Black Metal, Melodic Death MetalПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632AB7B330D4EF0D0C211E4DC43FC9A9CF3057AE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231775   (603760) от 20.06.2018
-
-For The Fallen Dreams - Six (2018) Rise Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone (4:17)
- 02. The Undertow (3:51)
- 03. Unstoppable (4:05)
- 04. Forever (3:32)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DFD2352771657E5620CB9F31DA17789AD7D664
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546884   (603848) от 26.04.2022
-
-The White Buffalo - On The Widow's Walk (2022) Deluxe [FLAC 2.0|44.1/24|WEB-DL|tracks] <Country Rock, Blues Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Problem Solution (4:47)
-02. The Drifter (3:52)
-03. No History (4:01)
-04. Sycamore (3:53)(   Читать дальше...   )Жанр: Country Rock, Blues Rock, Folk RockПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057830D031FAF176FE7D3265A473D9257EE7552F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148489   (603910) от 06.07.2017
-
-Klabautermann - Innsia Ut (2017) [MP3|320 Kbps] <Norway Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hjertets Disiplin (03:48)
-02. 6 Strenga 1 Liv (04:19)
-03. Den Fortapte Sonn (03:37)
-04. Alltid Aleine (04:53)(   Читать дальше...   )Жанр: Norway RockПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94AAB6608C5AD164A8C05E0686B72D049A40EC0
 ```
 
 

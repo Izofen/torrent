@@ -1,3 +1,30 @@
+###  Публикация: 1403756   (688563) от 21.08.2020
+
+Foals - Collected Reworks Vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Techno, Indie Rock, New Wave>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inhaler (Tom Vek's Wheezemix) (5:22)
+ 02. What Went Down (Haxan Cloak Remix) (5:37)
+ 03. Exits (Vessel Remix) (3:31)
+ 04. Hummer (Surkin Remix) (4:20)(   Читать дальше...   )Жанр: Electro House, Techno, Indie Rock, New WaveПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC58CA1A83875A34011A83DD80041B397C444284
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403693   (688567) от 21.08.2020
 
 Foals - Collected Reworks Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Disco, Funky, Indie Rock>
@@ -666,33 +693,6 @@ VA - Deluxe Top 10 April Music 2018 [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D0434108479200E573CFF7AC4945961EDA9F0C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221619   (691469) от 26.04.2018
-
-VA - Solitudine / Faces / Atlantide / Oak Tree (2018) EP [MP3|320 Kbps] <Electronic, Melodic House & Techno, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691469.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Meastral - Solitudine (Original Mix) (08:37)
-2. Paradoks & Melody Stranger - Faces (Original Mix) (05:56)
-3. EarthLife - Atlantide (Original Mix) (06:14)
-4. Aguizi & Fahim - Oak Tree (Original Mix) (08:31)Жанр: Electronic, Melodic House & Techno, Progressive HouseПродолжительность: 00:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC11B98A17E8ADB29E888A7DF3D04D71B040CCF
 ```
 
 

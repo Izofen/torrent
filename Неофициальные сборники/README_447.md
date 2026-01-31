@@ -1,3 +1,30 @@
+###  Публикация: 1025563   (710186) от 12.06.2016
+
+VA - Tropical House Crystal Weather (2016) [MP3|249-320 кб/с] <Funky, Future House, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roland Clark - Soul Meditation (Main Mix) [06:14]
+02. Javi Del Valle - All Good Things (Dub Mix) [06:50]
+03. Overloque - The Fugitive (Original Mix) [07:43]
+04. Roger Sanchez - Morning Prayer (Bontan Remix) [06:23](   Читать дальше...   )Жанр: Funky, Future House, House, DanceПродолжительность: 06:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD8A1DC502C148AA870A14D185ED73BA08A2016
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025546   (710192) от 12.06.2016
 
 VA - Future House 2016 (Deluxe Edition) (2016) [MP3|320 кб/с] <Funky, Future House, House, Dance>
@@ -670,33 +697,6 @@ VA - Pacific Magic Sound Music For Relaxation (2016) [MP3|320 кб/с] <Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:754779D8B9C25D88AC88E967F2F6FC39F4583455
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130790   (712179) от 03.05.2017
-
-VA - Top 100 Зайцев.Нет - Апрель (2017) [MP3|192-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712179.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Estradarada - Вите Надо Выйти  4:18
-002.  Егор Крид & Molly - Если ты меня не любишь  3:27
-003.  Rag'N'Bone Man - Human  3:19
-004.  Burito - По волнам  3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA0E4B18C9A238CA2F0F3782190A3AB332D4DF1E
 ```
 
 

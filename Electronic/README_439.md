@@ -1,3 +1,30 @@
+###  Публикация: 1113595   (836820) от 12.03.2017
+
+VA - WMC Miami Pool Beats 2017 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acoustic Novels – Everybody’s Got To Learn Sometime
+02. Soul Chap – Letting Go
+03. Akjela – Steh Auf
+04. Race Corner – Floating Tank(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:31:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2234B4CA285BC6DC4EB360F881287A4051EE11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379680   (837701) от 30.04.2020
 
 Juta Takahashi - Collection 7 Releases (2007-2019) Lunisolar Records [FLAC|Lossless|tracks+.cue, tracks] <Ambient>
@@ -664,33 +691,6 @@ VA - NOW Dance Classics (2020) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C2187A78D21D0067ACD639E7B930D72BC96F2DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846391   (841057) от 04.04.2016
-
-Under This - 1 Compilation, 18 Singles (2008 - 2016) [MP3|320 кб/с]<Breaks>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time To Rock (Original Mix) (5:15)
-02. Funqualize (Original Mix) (6:46)
-03. Stay Away (Original Mix) (5:55)
-04. Yesterday (Original Mix) (5:18)(   Читать дальше...   )Жанр: BreaksПродолжительность: 00:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:851B91327BDE2204443FDC4845E373B2F1423A8C
 ```
 
 

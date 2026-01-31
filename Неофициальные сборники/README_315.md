@@ -1,3 +1,30 @@
+###  Публикация: 1558649   (529983) от 21.06.2022
+
+VA - Download Now (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529983.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Easy On Me (5:31)
+002. Ed Sheeran - Overpass Graffiti (4:46)
+003. Coldplay - My Universe (4:39)
+004. Michael Patrick Kelly - Blurry Eyes (4:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3540E0246A761BB83F57F16EDFD91E7FEF17AB0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532760   (530383) от 11.08.2012
 
 VA-Sky.Fm - Dreamscapes (2010) [MP3|256 кб/с]<Chillout, Lounge, Downtempo>
@@ -679,33 +706,6 @@ VA - Guitar Collection 7 (2016) [MP3|320 Kbps] <Blues Rock, Acoustic, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7742D6454D9B55DC97966A91ABA15AFD72569113
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051402   (532575) от 11.09.2016
-
-VA - Conversations With Myself (2016) [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532575.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Bowie - Diamond Dogs
-002. Iron Savior - Rebellious
-003. Katatonia - Passer
-004. Lacuna Coil - Live to Tell(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 07:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5EAF0AEB6934596DB7552ED936E5E2ABEE041D7
 ```
 
 

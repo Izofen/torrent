@@ -1,647 +1,682 @@
-###  Публикация: 1446282   (1033047) от 08.02.2021
+###  Публикация: 1449181   (1030249) от 20.02.2021
 
-Харлан Кобен | Майрон Болитар (Книга 4). Подкрутка (2019) [MP3, Сергей Кирсанов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много лет назад известный гольфист Джек Колдрен проиграл Открытый чемпионат США – и теперь мечтает взять реванш за былое поражение. Но в разгар соревнований, когда победа уже близка, неожиданно похищают его сына. Полиция предполагает, что преступники рассчитывают не только получить выкуп, но и устроить публичный скандал. Однако известный спортивный агент и талантливый (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864C9D3AC876C29D56164BED0340F7B02B4798F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446376   (1033048) от 08.02.2021
-
-TurboMosaic Pro 3.6.2 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033048.jpg" />
-</div>
-
-
-###  Подробнее
-
-TurboMosaic — утилита, позволяющая легко и быстро строить превосходные фото мозаики из выбранных Вами изображений. Удивите друзей плакатом или постером, созданными своими руками из Ваших фотографийТип издания: macOS SoftwareРелиз состоялся: 04.02.2021Разработчик: SilkenMermaid TechnologiesПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7684AA0607FB35AE5ED2863BF9958BD8FA148943
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445883   (1033049) от 08.02.2021
-
-VA - Dream Pop (2012) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raphael Lake - Turn It Up (3:20)
-02. Jason Tarver, Lucy Underhill & Mark Williams - Just Drive (2:57)
-03. Lee Richardson, Richard Macklin & Tom Ford - Said and Done (3:23)
-04. Raphael Lake - Forever Young (3:28)(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94356F6157F59D771F6FEFE0B61A03F6FFD0D635
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446330   (1033050) от 08.02.2021
-
-The Norseman Company - The Coming Of The Chord (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Rock & Roll>
+Vanishing Point - 6 Studio Albums (1997-2020) 7xCD [FLAC|Lossless|image + .cue] <Progressive Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033050.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Here Comes Rock and Roll [4:19]
- 2. Master of the Dark [2:55]
- 3. When the Hammer Falls [3:43]
- 4. Since You`ve Been Gone [4:10](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Rock & RollПродолжительность: 00:40:27
+Австралийские мелодик-прогрессив-металлисты VANISHING POINT были основаны в 1995 году в составе гитариста Томми Вукура, барабанщика Джека Лукича и басиста Джо Дель Мастро из более ранней группы Eye. Вокалист Сильвио Массаро и клавишник Пеп Саммартино присоединились к группе в середине 1990-х годов, и группа изменила свое название на Vanishing Point. Вскоре после (   Читать дальше...   )1997 - In Thought
+2000 - Tangled In Dream
+2005 - Embrace The Silence
+2007 - The Fourth Season(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 06:59:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E1D2F2C555134B9BCED7F30818CDEED6DD8A4B6
+magnet:?xt=urn:btih:6D5A51792E57DC8DDC7AEF45DE92EEF20B8054FC
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446083   (1033051) от 08.02.2021
+###  Публикация: 1448919   (1030250) от 20.02.2021
 
-Sacha Korn - Nokout (2009) [FLAC|Lossless|image + .cue] <Alternative Rock>
+Embrace Of Souls - The Number Of Destiny (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033051.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lass Mich Gehn
-02. Nackt Und Kalt
-03. Wer Wir Waren
-04. Du & Ich(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:54
+01. On The Way From The Past
+02. New Hope
+03. From The Sky
+04. In The Castle(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:07:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EC569C7BDBE08E7A9D511541924124946FF7C12
+magnet:?xt=urn:btih:C405276362F20DE9A16957FF32AE1E46BBF9D6E4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446236   (1033052) от 08.02.2021
+###  Публикация: 1449112   (1030251) от 20.02.2021
 
-Kevin Galway - Canadiana Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Rita Reys And The Pim Jacobs Trio - At the Golden Circle Club, Stockholm (1963) 2001, Universal [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033052.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crawling King Snake (4:10)
-02. Gallows Pole (4:56)
-03. House of the Rising Sun Blues (5:04)
-04. I Ain't Been That Good (4:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:59
+01. Get Out of Town [2:17]
+02. Stella by Starlight [2:33]
+03. I Love You [2:56]
+04. You Go to My Head [4:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:32:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:102B3477E1B8F22EA8FCDE7BF25698045855034A
+magnet:?xt=urn:btih:518D6BFD890FC60678C61C1FBE7A21BF731E0491
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446176   (1033053) от 08.02.2021
+###  Публикация: 1448929   (1030252) от 20.02.2021
 
-Tim Schaufert - Over This (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+Angel Martyr - Nothing Louder Than Silence (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033053.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Over This (feat. Yosie) (03:53)Жанр: AmbientПродолжительность: 00:03:53
+01. Black Rose On A Frozen Grave
+02. The Legion Of The Black Angels
+03. Forgotten Metal
+04. Black Ttwin Rising(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:01:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEE678DB06BA67395D30AF76D8C3F5D0A1F36F38
+magnet:?xt=urn:btih:7227FCB8D6A57A757355F62C04103BC43578BD30
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446341   (1033054) от 08.02.2021
+###  Публикация: 1449074   (1030253) от 20.02.2021
 
-Энид Блайтон | Тайна затерянной горы (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное приключение привело пятёрку верных друзей – Джека, Майка, Пегги, Нору и Поля – в далёкую Африку. Здесь всё было ужасно интересно, особенно захватывали рассказы местных жителей о таинственной горе, в недрах которой обитало племя, поклоняющееся солнцу. Да это просто фантастика! Но ребята поняли, что это жестокая реальность, когда попали к ним в плен…Жанр: Повести и рассказы, Приключения для детейПеревод: Евгения ГончароваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F669C8340AEAB70D34959637767933EA5093BBDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446410   (1033055) от 08.02.2021
-
-Movist 2.5.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Movist является простым в использовании и мощным проигрывателем видео, который поддерживает множество полезных функций для просмотра фильмов включая: H.264 декодирование видео, цифровой аудио выход (S / PDIF), высокое качество субтитров, полноэкранный режим, удобный и красивый пользовательский интерфейс.
-Из полезных функций можно также отметить удобный полноэкранный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2021Разработчик: MovistПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DA2D0E538DE7390EAF0FDE64348B97B96E3662
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446304   (1033056) от 08.02.2021
-
-Battery Health 3 v1.0.26 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
-Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F70D177F18299EF9E49C831C725B36F944DFC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446385   (1033057) от 08.02.2021
-
-Mariana Bo - Live @ Campus, Sunburn Festival, India (2021-01-18) [MP3|320 Kbps] <Hardstyle, Big Room>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mariana Bo & 22Bullets - Queen Of The Desert
-02. Yves V & Mariana Bo - Durga
-03. Protocol 143 - Arise
-04. Mariana Bo - Mantra(   Читать дальше...   )Жанр: Hardstyle, Big RoomПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6439E8B653DE0832CE1C6B8296AB01BF7242A174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446353   (1033058) от 08.02.2021
-
-Gunmen - The Sound / Messed Up (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Jungle>
+Maduk - Go Home (2019) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
 >>Electronic
 >>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033058.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Messed Up (04:32)
-02. The Sound (04:17)Жанр: Drum & Bass, JungleПродолжительность: 00:08:49
+01. Go Home (03:45)Жанр: Drum & BassПродолжительность: 00:03:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4D717B4E108BA29D1030B94802C2B544DC15CA7
+magnet:?xt=urn:btih:A627529CBAFCDD6637AF0CB88E57329B3E5FB285
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446179   (1033059) от 08.02.2021
+###  Публикация: 1448992   (1030254) от 20.02.2021
 
-Tim Schaufert - Under You (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+At The Gates - To Drink From The Night Itself (2018) 2xCD [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030254.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - To Drink From The Night Itself:
+01. Der Widerstand
+02. To Drink From The Night Itself
+03. A Stare Bound In Stone(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF96D919A97A20DB664E9F184CFBEDE2E8E09974
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448962   (1030255) от 20.02.2021
+
+Vаnishing Роint - Dеаd Еlуsium (2020) [FLAC|Lossless|image + .cue] <Melodic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Elysium
+02. Count Your Days
+03. To The Wolves
+04. Salvus(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB6BE438F9E934049A10C413CC89C47FEB19B9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449232   (1030256) от 20.02.2021
+
+Coronary - Sinbad (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinbad
+02. Firewings
+03. The Hammer
+04. Bullet Train(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84AF38C3FD7EB7B1EC8B1CCE967005F81E67D64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449177   (1030257) от 20.02.2021
+
+VA - Yossi Amoyal Presents Fluere II (2020) Sushitech Records [FLAC|Lossless|tracks|Vinyl] <Techno, Minimal>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033059.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Under You (03:17)Жанр: AmbientПродолжительность: 00:03:17
+01. Jin Choi - High Quality Schal _Baby Ford Remix (09:09)
+ 02. Sten - Circles (06:10)
+ 03. Mark Broom - Gira (05:42)
+ 04. Edward - Sender (07:53)Жанр: Techno, MinimalПродолжительность: 00:28:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBCE530A57B4A51DDB21986734C4B7C27B69579F
+magnet:?xt=urn:btih:33DF84EF6D6B7E7825A8B6C4D9932F0AD21BCCA8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446174   (1033060) от 08.02.2021
+###  Публикация: 1449118   (1030258) от 20.02.2021
 
-Tim Schaufert - Once Moved Too Slow (feat. Yosie) (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+Memro - Colony (2013) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033060.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Once Moved Too Slow (feat. Yosie) (03:34)Жанр: AmbientПродолжительность: 00:03:34
+01. Colony (04:53)
+02. Corrosion (05:51)
+03. Prophecy (04:56)
+04. Droplets Vip (05:33)Жанр: Drum & BassПродолжительность: 00:21:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD1EDCCC289E9C41F7C87B353D2D8D77BF312B35
+magnet:?xt=urn:btih:6FBEBBFF35C407DFCC86B94EC57E3D558318E669
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446281   (1033061) от 08.02.2021
+###  Публикация: 1448937   (1030259) от 20.02.2021
 
-TunePat Amazon Video Downloader 1.0.3 [Multi/Ru]
+Crystallion - Heads Or Tails (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033061.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хотите скачать видео с Amazon на Mac для автономного воспроизведения? Просто используйте TunePat Amazon Video Downloader для Mac. Это мощный инструмент для загрузки видео с ресурса Amazon Prime Video, который может загружать любые фильмы и телешоу с Prime Video на ваши компьютеры Mac в формате MP4. С помощью этого интеллектуального инструмента вы можете легко загрузить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2021Разработчик: TunePat Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский и др.
+01. Heads Or Tails
+02. Knights And Heroes
+03. Living On A Lie
+04. Save Me(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E57F69AAF44D81AAF6F0E10524D4F46A66FEA1A
+magnet:?xt=urn:btih:488EFE4525DF8912BF5B0098CE2DA992D32E1827
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446233   (1033062) от 08.02.2021
+###  Публикация: 1449174   (1030260) от 20.02.2021
 
-Kenny James Miller Band - Tear in My Eye (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+VA - Yossi Amoyal Presents Fluere IV (2020) Sushitech Records [FLAC|Lossless|tracks|Vinyl] <IDM, Electro>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A1 People - Do It _Metamatics Remix (05:23)
+ 02. Kosmogonik - Circuitry (06:56)
+ 03. Silicon Scally - Relay (07:59)
+ 04. Matt Chester - November Pathways (05:50)(   Читать дальше...   )Жанр: IDM, ElectroПродолжительность: 00:28:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF430AB01E4CD668469BD0680872B7B27D931311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622378   (1030261) от 28.03.2023
+
+Илья Бушмин | Дорога Смерти (2021) [MP3, Николай Касперский]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трасса М-4 «Дон» в Подмосковье. 110 км асфальта. Огромные лабиринты подмосковных автострад. Бетонные джунгли. И в каждых джунглях найдется свой хищник… Банда убийц вершит ночной террор. Автоманьяки с трассы «Дон» оставляют после себя лишь трупы. Страх нависает над Москвой. Полиция, ФСБ, стритрейсеры – банду ищут всем миром. Но остановить злодеев может только один (   Читать дальше...   )Жанр: Боевик, Детектив, ТриллерПродолжительность: 19:02:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7785055BB1A30D9FBA16936F1D2278120F1F764E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622315   (1030262) от 28.03.2023
+
+Ledfoot & Ronni Le Tekro - Limited Edition Lava Lamp (2023) [FLAC|Lossless|WEB-DL|tracks] <gothic blues, psychedelic rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033062.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pinkham Jelly (4:11)
-02. Meet Your Maker (5:25)
-03. Tear in My Eye (4:40)
-04. Cup of Joe (5:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:46
+01. Little Rosie [00:03:55]
+02. Crying [00:03:18]
+03. The Ego in the Coffin [00:03:50]
+04. You Should Know How Hard It Is [00:05:21](   Читать дальше...   )Жанр: gothic blues, psychedelic rockПродолжительность: 00:39:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BDEC55CE1CC9AA2B94AB0914ADFCA15E8724A79
+magnet:?xt=urn:btih:CDFD595746A0BC45201ED1DD90D938B1DE87CD71
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446362   (1033063) от 08.02.2021
+###  Публикация: 1621885   (1030263) от 28.03.2023
 
-iToolab FixGo 1.3.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033063.jpg" />
-</div>
-
-
-###  Подробнее
-
-При помощи приложения iToolab FixGo устраняйте проблемы с iPhone дома как профессионал.
-• Предотвратите потерю данных на вашем iPhone или iPad, когда ваше устройство не работает должным образом
-• Устраните 200+ проблем системы iOS самостоятельно, например, iPhone застрял на логотипе Apple, пустой экран или зацикливание режима восстановления
-• Легко устраняйте (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.12.2020Разработчик: iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C4B145AB07B59A8304373CB0693E1DAD3A48FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446202   (1033064) от 08.02.2021
-
-Timeless: Alarm Clock 1.92 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timeless - самый лучший, самый великолепный будильник и приложение для напоминаний. Благодаря красивому и простому в использовании интерфейсу, с Timeless Вы получите удовольствие в использовании с утра до ночи.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCF4A6470C42EB3D97C2A8ECF5D8421A478DD735
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446074   (1033065) от 08.02.2021
-
-Tim Schaufert - Footprints (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+Owl City - Coco Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033065.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Footprints (03:12)Жанр: AmbientПродолжительность: 00:03:12
+01. Adam, Check Please [00:05:38]
+02. Under the Circus Lights [00:05:04]
+03. Kelly Time [00:05:29]
+04. Field Notes [00:05:38](   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 00:55:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:989F0E78693EC2E54C8A5D3E230972E52654F499
+magnet:?xt=urn:btih:50B6B2FC96DC86E3E697378281041FD74B0E954A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446309   (1033066) от 08.02.2021
+###  Публикация: 1622477   (1030264) от 28.03.2023
 
-Notability 4.4.2 [Multi/Ru]
+YT Downloader 7.23.2 RePack (& Portable) by Dodakaedr [Ru/En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033066.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Популярнейшее приложение для создания заметок на iPhone и iPad теперь на Mac. Notability – мощное средство для ведения заметок, комментированию документов, созданию набросков, записи лекций и много другого. Вы можете делать записи от руки, набирать на клавиатуре, делать аудиозаписи и фотографии. Благодаря iCloud ваши заметки всегда доступны на iPhone, iPad и Mac. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.12.2020Разработчик: Ginger Labs, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B797A56EE323FB12846626B0720746E60D0241EE
+magnet:?xt=urn:btih:550D0B1E2452AF0C0A8FD622E4778FA50EC592E0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446173   (1033067) от 08.02.2021
+###  Публикация: 1622427   (1030265) от 28.03.2023
 
-Tim Schaufert - am i the only one (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+Skype 8.96.0.207 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:371030BA76AD90B722BC46A5B00D799E009F602A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622204   (1030266) от 28.03.2023
+
+Владимир Першанин | Я прошел две войны! (2023) [MP3, Дмитрий Иванов]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга от признанного мастера жанра!
+
+Основанное на реальных событиях повествование о судьбе молодого командира Красной армии Василия Гладкова. Впервые попав на фронт в декабре 1939 года, Василий с небольшим перерывом продолжал сражаться с врагами нашей Родины до самой Победы.
+Сначала кровавая Зимняя война, где Гладков со своим взводом, утопая в снегу, прорывал (   Читать дальше...   )Жанр: Военная проза, книги о войнеПродолжительность: 10:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864D59C97BF6BDCECE72D42CCCE8E385A9837756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622381   (1030267) от 28.03.2023
+
+Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Отчуждение
+2022 - Плач покинутых детей
+2023 - ЙойкЖанр: Trip Hop, FolkПродолжительность: 3 CD, 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6E2616D33623B4E6163F871D20DE7C08E77069
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622402   (1030268) от 28.03.2023
+
+VA - Lounge & Coffee, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo, Balearic>
 
 >>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033067.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. am i the only one (feat. Seven) (02:36)Жанр: AmbientПродолжительность: 00:02:36
+01. Soulavenue,Tamy - Cidade Sol (3:40)
+02. Can Blue - Katja's Dream (4:11)
+03. Karen Gibson Roc - Beautiful Flower (4:34)
+04. Jane Maximova,Dmirty Raschepkin - Morning Bird (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, BalearicПродолжительность: 02:16:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76A64B4790DE61CF56111FEA1656DF75C635125D
+magnet:?xt=urn:btih:6631048DA2F769F553A4152A203CDABE6FF0D7C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605437   (1033068) от 15.03.2023
+###  Публикация: 1622301   (1030269) от 28.03.2023
 
-Одни из нас / The Last of Us (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-9 из 9) NewComers, Jaskier, Dubbing-Pro, HDRezka, Lostfilm
+VA - Raz Nitzan - 30 Vocal Trance Hits (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 
->>След.
->>
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033068.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие сериала развивается спустя двадцать лет после уничтожения современной цивилизации из-за пандемии. Контрабандист Джоэл нанимается вывезти Элли — 14-летнюю девочку — из карантинной зоны. То, что начинается как непыльная работёнка, вскоре превращается в жестокое и душераздирающее путешествие, в течение которого Джоэлу и Элли придется научиться доверять друг (   Читать дальше...   )Производство: США, Канада / Naughty Dog, Sony Pictures Television, The Mighty Mint, Word GamesЖанр: ужасы, фантастика, боевик, драмаРежиссер: Джереми Уэбб, Али Аббаси, Нил Дракманн, Питер ХорАктеры: Педро Паскаль, Белла Рэмси, Гэбриел Луна, Ник Офферман, Мерл Дэндридж, Джеффри Пирс, Анна Торв, Мюррэй Бартлетт, Марли Грэйс Бекер, Брендан ФлетчерПеревод: Многоголосый профессиональный (NewComers, Jaskier, Dubbing-Pro, HDRezka Studio, Lostfilm)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (SDH)Продолжительность: ~01:20:00 серия
+01. Raz Nitzan & Maria Nayler - Nothing Breaks Like A Heart (Radio Edit) [4:20]
+02. Raz Nitzan & Fenna Day - Room For Doubt (Original Mix) [3:34]
+03. Susana & Raz Nitzan - Fall Into Trust (Original Mix) [3:48]
+04. Raz Nitzan & Denise Rivera - The Last To Know (Original Mix) [2:52](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 05:10:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0ACAA3C4F569E636F03E4318E4B01EFC1A2155A9
+magnet:?xt=urn:btih:677CDDACD82347EA97526C9FCF85C8CEB4A037EF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 306419   (1033069) от 15.03.2023
+###  Публикация: 1622432   (1030270) от 28.03.2023
 
-Трое из Простоквашино / Каникулы в Простоквашино / Зима в Простоквашино / Бобик в гостях у Барбоса / Приключения Васи Куролесова (1978-1984) BDRip [H.264/1080p]
+LoudMother - Falling Apart (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Hard Rock>
 
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033069.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В состав сборника на DVD входят 3 мультфильма про приключение Дяди Фёдора и его лучших друзей - Кота Мотроскина и Пса Шарика. А так же 2 мультфильма: Бобик в гостях у Барбоса и Приключения Васи КуролесоваПроизводство: СССР, СоюзмультфильмЖанр: детский, рисованная анимация, сказкаРежиссер: Владимир ПоповАктеры: Мария Виноградова, Олег Табаков, Лев Дуров, Борис Новиков и др.Субтитры: ОтсутствуютПродолжительность: 01:25:06
+01. Fallin' Apart [00:04:05]
+02. Telephone [00:04:45]
+03. The Cattle [00:04:43]
+04. Funkerstrut [00:04:02](   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:45:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AB587105C161520494023B5909BDF6994085A64
+magnet:?xt=urn:btih:2A74113DBB7A77DFF55046751C13AB44ED69F315
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615922   (1033070) от 15.03.2023
+###  Публикация: 1622234   (1030271) от 28.03.2023
 
-Аутсайдер (2022) WEBRip [H.264/1080p] (сезон 1, серии 1-24 из 24)
+Крейг Джонсон | Уолт Лонгмайр (Книга 1). Холодное блюдо (2023) [MP3, Андрей Финагин]
 
->>Отечественные сериалы
->>
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033070.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полтора года назад подполковника Яна Озёрского обвинили в убийстве некой Людмилы и арестовали. Но благодаря грамотной работе адвоката, позиции самого Яна и некоторым мелким несостыковкам в обстоятельствах дела, суд оправдал его. Озёрский хочет вернуться на службу не только для того, чтобы отомстить Эффендиеву, который, как уверен Ян, организовал его «посадку», но (   Читать дальше...   )Производство: Россия | "ВайТ Медиа"Жанр: боевик, детективРежиссер: Владимир НахабцевАктеры: Сергей Жарков, Евгений Сидихин, Юрий Батурин, Наталья Свешникова, Николай Шрайбер, Василий Щипицын, Артём Яковлев, Алексей Удальцов, Андрей Аверков, Антон БагметПродолжительность: ~00:47:00 серия
+Говорят, что месть – это блюдо, которое подают холодным, но мало что может унять ярость человека, вышедшего на тропу войны
+
+Уолт Лонгмайр уже двадцать пять лет служит шерифом в одном из округов штата Вайоминг. Его мечты на мирную жизнь в отставке разбиваются, когда неподалеку от индейской резервации находят труп. Убитого зовут Коди Притчард, и два года назад он и (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыПродолжительность: 11:14:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5142354C3FD88E42D83559F431D4B01FDE9A958E
+magnet:?xt=urn:btih:BA119BB5699F8DD2239E7F78F6812D5E751B8F13
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619022   (1033071) от 15.03.2023
+###  Публикация: 1622290   (1030272) от 28.03.2023
 
-Wondershare Recoverit Premium 11.0.0.13 [x64] [Multi/Ru]
+Сестричка, действуй 2 / Sister Act 2: Back in the Habit (1993) BDRip [H.264/720p]
 
->>След.
->>Резервирование и восстановление данных
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033071.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Wondershare Recoverit доверяют миллиарды пользователей. Программа поможет полностью восстановить удаленные и потерянные файлы, видео, фотографии, аудио, электронные письма в любой ситуации!
-Это лучшее профессиональное программное обеспечение для восстановления данных очень надежно и на 100% безопасно. С этим современным инструментом для восстановления данных вы сможете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Прогульщики и лоботрясы ни в какую не хотят учиться, и бедные учителя не находят себе места от их шуток и приколов. Их молитвы услышаны - неугомонная Долорес соглашается внедриться к ним под маской обычного учителя музыки. Бывшая подруга мафиози вспомнила о своих былых похождениях, и под рясой монахини в класс входит крутая «сестричка». Религиозные догмы снова дрогнули... (   Читать дальше...   )Производство: США, Touchstone PicturesЖанр: комедия, музыкаРежиссер: Билл ДьюкАктеры: Вупи Голдберг, Кэти Наджими, Барнард Хьюз, Уэнди МакКена, Мэри Уикс, Джеймс Коберн, Майкл Джитер, Шерил Ли Ральф, Роберт Пасторелли, Томас Готтшалк, Мэгги СмитПеревод: профессиональный многоголосый, профессиональный двухголосый, авторскийЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:47:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92F04B8F995437F0F985F0EF6A1728191B47269E
+magnet:?xt=urn:btih:903E474793ADFC65266D5F3D75217A43A24EDFA7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610545   (1033072) от 15.03.2023
+###  Публикация: 1622474   (1030273) от 28.03.2023
 
-Раневская (2021) WEBRip [H.264/1080p] (сезон 1, серии 1-8 из 8)
+4K Video Downloader 4.24.1.5352 RePack (& Portable) by Dodakaedr [Ru/En]
 
->>Отечественные сериалы
->>
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033072.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несмотря на запрет родителей, 20-летняя Фаина Фельдман едет покорять театральную Москву. Столица встречает ее враждебно, но Фаину это мало волнует, тем более, что в ее жизни появляются настоящие друзья и наставники, которые учат, помогают, покровительствуют. Каждый маломальский успех сменяет серьезная жизненная драма. Революция, потом война… и всякий раз — нешуточная (   Читать дальше...   )Производство: Россия / Star MediaЖанр: биография, драмаРежиссер: Дмитрий ПетруньАктеры: Мариэтта Цигаль-Полищук, Ирина Гринёва, Полина Кутепова, Константин Лавроненко, Александр Домогаров, Эмилия Спивак, Даниил Спиваковский, Ольга Науменко, Мириам Сехон, Семён Стругачев,Продолжительность: ~00:45:00 серия
+4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
+Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FEE49555AF5A5EA5DE4B4E84A49EDCBBFA0D1B64
+magnet:?xt=urn:btih:1891C424A726FB12185965C874F6AAE4D78FC8DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621943   (1030274) от 28.03.2023
+
+Lemar - Page In My Heart (2023) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop, R&B, Soul>
+
+>>Pop
+>>Pop (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Page In My Heart
+02. Glorious!
+03. Future Love
+04. Dust(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A29DDC2B33B5FA44057CE8A2CEBC181909D543B
 ```
 
 

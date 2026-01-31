@@ -1,3 +1,36 @@
+###  Публикация: 553406   (438485) от 30.09.2012
+
+VA - TOP 100 Зайцев.нет (04.09.2012) [MP3|128 - 320 кб/с]<Pop, Chanson, Rock, Dance, Club, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alexey Romeo & Smoky Mo aka Mozi - На своей волне (Radio mix) (3:42)
+2. Skrillex feat. Sirah - Bangarang (3:35)
+3. Loreen - Euphoria (3:01)
+4. Семен Слепаков - Чисто гипотетически (5:10)
+5. Подиум - Танцуй пока молодая девочка Рая (3:30)
+6. Oceana - Endless Summer (hymn Euro) (3:15)
+7. Clara Lago - La cama (OST Три метра над уровнем неба 2: Я тебя хочу) (2:53)
+8. Fly Project - Musica (Radio Edit) (3:39)
+9. 5sta Family - Вместе Мы (Prod by T.Y.) (3:40)
+10. Нюша - Воспоминание (3:39)(   Читать дальше...   )Жанр: Pop, Chanson, Rock, Dance, Club, RapПродолжительность: 08:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6146FBF6C7C33060DFA09F66B63458305938C6FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 553841   (438499) от 30.09.2012
 
 VA - Сборник медленных хитов Vol.13 (2012) [MP3|96-320 кб/с]<Rock, Pop>
@@ -719,33 +752,6 @@ VA - Recognition Of The Heart (2015) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A8AD17E1D81D2AACD617DB96FE011EEA02E5633
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409762   (440591) от 19.09.2020
-
-VA - TOP Non-Stop - House Music Before 2000 (2020) [MP3|192-320 Kbps] <Deep House, Funky House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ron Trent - Altered States (Light City mix, 1992) (3:44)
-02. Ron Trent - Poetry (15:00)
-03. Fortran 5 - Look to the Future (Start the Dance mix, 1992) (7:19)
-04. Brian Transeau - The Moment of Truth (The Blue Note dub, 1993) (5:49)(   Читать дальше...   )Жанр: Deep House, Funky House, Progressive HouseПродолжительность: 10:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D82905A36AB3026931148BA3DF53AF408AF8952
 ```
 
 

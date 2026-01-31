@@ -1,3 +1,30 @@
+###  Публикация: 1033501   (638158) от 11.07.2016
+
+VA - Peaceful Sounds for Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Waugh - Inner Peace
+02. Michael Keck - Restful Chimes Breeze
+03. Bobby Cole - The Sound of a Chinese Waterfall
+04. Jim Chappell - Seahorses(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F00A885A1E2E2D02DD96131864F6B8A07DFE372
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907627   (638205) от 12.06.2015
 
 VA - Singapore Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -698,39 +725,6 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #89 (2012) [MP3|320 кб/с]<Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54021713CC8DDD8A28CD96C955D8DE040B231CEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518967   (639601) от 05.07.2012
-
-VA - Trance Maniacs Party - Trancefer Wave #104 (2012) [MP3|320 кб/с]<Trance, uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639601.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hydrogenio - 777 (Ben Gold Remix)
-002. Marcus Maison & Will Dragen - Another Dimension (Original)
-003. Lunar Motion - Aozora (Original Mix)
-004. MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
-005. Koele Vaten - Boom (Michael Paterson & Warner Powers Remix)
-006. Michael Jay Parker - Canberra
-007. Juventa - City On Clouds (Original Mix)
-008. Maguire - Face Yesterday (Original Mix)
-009. John Askew - Fade To Black (Sean Tyas Remix)
-010. Mat Zo - Frequency Flyer (Original Mix)(   Читать дальше...   )Жанр: Trance, uplifting TranceПродолжительность: 03:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430FBC4F08312CFC1BD085588A2F333875F4E26B
 ```
 
 

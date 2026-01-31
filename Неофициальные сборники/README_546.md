@@ -1,3 +1,30 @@
+###  Публикация: 1007458   (821685) от 15.04.2016
+
+VA - Dance Alliance: Original Playmix (2016) [MP3|320 кб/с] <Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sue Mclaren feat. Sue Mclaren & Paul Van Dyk - Together Again
+02. Dream Dance Alliance - Spring Love
+03. Armin Van Buuren feat. Kensington - Heading Up High
+04. Dash Berlin vs. Clement Bcx - I Take Care(   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 03:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4130EA2F67BE9702019A5F29D8D25C5BDB5BE4CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007419   (821691) от 15.04.2016
 
 VA - Chill House Diamonds Vol.3 (2016) [MP3|320 кб/с] <Deep House, Chill House>
@@ -668,33 +695,6 @@ VA - Gold At Dusk: Music For Meditation (2021) [MP3|320 Kbps] <Meditation, Ambie
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D56A955B10447DE7EDA303DB5556FDDA4B337987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502827   (823044) от 17.10.2021
-
-VA - Oblivion: Metal & Hard Rock Compilation (2021) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823044.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Primal Age - Intro & Wise Old Man
-002. Concilium - From The Chalice
-003. Zero Trust - Birch
-004. Natural Born Machine - Moonchild(   Читать дальше...   )Жанр: Metal, Hardcore, Hard RockПродолжительность: 08:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14755B760254B1E320BA7AAA346FB74DB62C4D4A
 ```
 
 

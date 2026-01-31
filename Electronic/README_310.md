@@ -1,3 +1,30 @@
+###  Публикация: 1546146   (609507) от 22.04.2022
+
+IC3PEAK - Kiss Of Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Darkwave, Witch House>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kiss Of Death [00:02:23]
+02. VAMPIR (feat. Oli Sykes of Bring Me The Horizon) [00:02:22]
+03. Last Day / Новый День [00:03:06]
+04. Bad Night [00:02:21](   Читать дальше...   )Жанр: Alternative, Coldwave, Darkwave, Minimal Synth, Witch HouseПродолжительность: 00:30:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF765348653BB3572BB5C22F421361E0BBD2EA81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545596   (609511) от 22.04.2022
 
 Death Loves Veronica - Corruption for the Insidious (2022) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Gothic, Industrial>
@@ -677,33 +704,6 @@ Jens Buchert - Aurora Electronica (2019) Elbroar [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496F21C10AE6206B588AD3610876D5A38B22AD62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296538   (611842) от 17.04.2019
-
-VA - Solo Vol.I (Mixed by Simon Patterson) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astrix & Freedom Fighters - Burning Stones (Original Mix)
-02. Greg Downey & Sunscreem - Perfect Motion (Short Mix)
-03. Denis Sender & DJ T.H. & Cari - I Found You (Maywave Dub Mix)
-04. Peter Steele & Simon Bostock Ft. Kate Miles - My Place (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF5E62F88C1484A3B7DE7AA7437CD33FE17F9A04
 ```
 
 

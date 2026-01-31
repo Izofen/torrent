@@ -1,3 +1,27 @@
+###  Публикация: 186139   (883540) от 24.03.2010
+
+VA - Золотые песни 90-х (2009) [MP3|256 кб/c]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:20:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103847   (883550) от 13.02.2017
 
 VA - Зимние лучшие блатные песни. Выпуск 7 (2017) [MP3|256 Kbps] <Шансон>
@@ -673,33 +697,6 @@ VA - Trance Energy  Sounds (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harm
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BFE9AE6D58DB99889FF7D5482CAD245FB1F16FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103573   (885908) от 12.02.2017
-
-VA - Empire Records - Chill Out 11 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ralf Velasquez - Heart of Glass
-02. Juls - Let You Go (Kenny Laakkinen Nudisco Remix)
-03. Pischinger & Dermota - Can't Breathe (Radio Edit)
-04. R3hab & Felix Snow Ft. Madi - Care(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7879D230FC3DDF06A39BCF6E7834FD3A1AFB52B8
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1397692   (737545) от 22.07.2020
+
+VA - DUB Tropical House: World Electro Sound (2020) [MP3|320 Kbps] <Dub House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_737545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clang83 - Bootstrap
+02. Clubzound - Get On Up (Remastered Mix)
+03. Justin Point - Predilection
+04. Moshic - Element 115(   Читать дальше...   )Жанр: Dub HouseПродолжительность: 08:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA741F46B7EC7745939A85A9193DA199EA786F67
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397682   (737549) от 22.07.2020
 
 VA - Beatport Chill House: Electro Sound Pack #129 (2020) [MP3|320 Kbps] <Chill House, Deep House>
@@ -670,33 +697,6 @@ VA - The Heart Of The City (2019) [MP3|320 Kbps] <Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1A7F4310542C20E33DDDA3BAFE7B7E13C46DFE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283363   (739788) от 17.02.2019
-
-VA - German Top 50 Official Dance Charts 15.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz - Speechless (feat. Erika Sirola)
-02. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
-03. Calvin Harris - Giant
-04. Hugel - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C0EC5D879A8CF891452A554D425CB0C7330269
 ```
 
 

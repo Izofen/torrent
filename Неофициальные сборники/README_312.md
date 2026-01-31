@@ -1,3 +1,30 @@
+###  Публикация: 1313314   (524455) от 08.07.2019
+
+VA - Hedkandi Summer (2019) [MP3|320 Kbps] <Dance, Pop, Electro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524455.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alvaro Soler - La Cintura
+002. C-Bool - Wonderland
+003. Marshmello & Anne-Marie - Friends
+004. Jack And The Other - The Drift(   Читать дальше...   )Жанр: Dance, Pop, ElectroПродолжительность: 09:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B22C6B99D99943DF800A2C6AB1943F75A16DC82
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240516   (524460) от 12.08.2018
 
 VA - Зарубежные Хиты-Июль (2018) [MP3|320 Kbps] <Pop, Alternative,Rap/Hip Hop, Blues>
@@ -686,39 +713,6 @@ VA - 200th Release Anniversary (2016) [MP3|320 Kbps] <Minimal, Deep, Funky, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:329C3755473F1E71B9733DD1FB9189A96B47870F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 369711   (526310) от 31.07.2011
-
-VA - Мегахиты Русского Радио. Ассорти Энергичных Хитов (2011) [MP3|256 kbps]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вика Куприна - Сильная, Как Ветер
-02. Потап И Настя Каменских - Если Вдруг
-03. Dj Slon - Дельфины (Radio Dance Remix)
-04. Dj Vengerov Feat Maksim - Весна ( Club Mix )
-05. Паола - Острова
-06. Ярослав Кардэлло, Dj Nicks, Dino - Она Летает
-07. Dj Cosmo & Е. Поликарпова & А. Арабов Feat. Stilet - Прости Меня
-08. Ирина Билык - Девочка
-09. Алекс Гришин - Лети За Мной
-10. Саша Ветер - Луна(   Читать дальше...   )2011Жанр: DanceПродолжительность: 06.14.03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7853A0FC33A40F5764BF3968F8880DDB21079B
 ```
 
 

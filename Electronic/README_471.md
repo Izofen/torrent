@@ -1,3 +1,30 @@
+###  Публикация: 1096748   (917785) от 25.01.2017
+
+VA - Vocal House on Ice Lech 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack & Jones - Lift Me Up (Outro) [00:01:23]
+02. Mr. Leading - One More Time [00:03:21]
+03. Massimo Vanoni - I See You (Fingerman's Disco Odyssey edit) [00:09:20]
+04. Re-Tide - Try This [00:06:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531287E590A6AD80108C469537947E4AEACCF8D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096947   (917790) от 25.01.2017
 
 VA - 10 Years Of Trimurti Festival (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -667,33 +694,6 @@ VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E76F1BE9D1F7FFED9BAC7C321DE3978742F4767D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988608   (920950) от 20.02.2016
-
-VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Phunk - Swept Away (Ibiza Workout Remix) 04:50
-02. We:Us - For The Night (Tropical House Fitness Edit) 04:20
-03. American Groove Junkies - Reach You (Sexy & Fit Mix) 03:34
-04. Summer Beats - Hold On (Dancefloor Fitness Mix) 04:06(   Читать дальше...   )Жанр: Club, Progressive, Future HouseПродолжительность: 02:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A3D70BDE58A7D47174480C97B51C62AEA2C025
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1544947   (618388) от 17.04.2022
+
+Swedish House Mafia - Paradise Again (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Euro House, Bassline>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (feat. Mapei) (04:41)
+02. Heaven Takes You Home (feat. Connie Constance) (03:34)
+03. Jacob's Note (feat. Jacob Muhlrad) (01:04)
+04. Moth to a Flame (feat. The Weeknd) (03:54)(   Читать дальше...   )Жанр: EDM, Electro House, Euro House, BasslineПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A66DA5DE1B5926F236DF38E9D081834A025CB92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544936   (618391) от 17.04.2022
 
 VA - Chillout Spring Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -669,33 +696,6 @@ VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145483   (621412) от 25.06.2017
-
-Talamasca - A Brief History of Goa-Trance (2017) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_621412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talamasca – A Brief History Of Goa-Trance Astral Projection (07:53)
-02. Talamasca – A Brief History Of Goa-Trance Electric Universe (07:47)
-03. Talamasca – A Brief History Of Goa-Trance Etnica (08:34)
-04. Talamasca – A Brief History Of Goa-Trance Hallucinogen (08:14)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:12:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A598A9759022A05B66EA413B303CCB73000CEA3
 ```
 
 

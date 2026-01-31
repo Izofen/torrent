@@ -1,3 +1,30 @@
+###  Публикация: 1197636   (813925) от 08.01.2018
+
+VA - Illuminations II (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental, Drone>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron Martin – Fallen Ground (01:43)
+02. Bruno Sanfilippo – Muse (04:47)
+03. Loscil – Azimuth (03:40)
+04. Jacaszek – Qualia (04:04)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Experimental, DroneПродолжительность: 02:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3426574383BC9F1AC28E64F3D14FA93CB5874C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197196   (813926) от 08.01.2018
 
 VA - Total Trance Selections Vol.08 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -671,33 +698,6 @@ VA - Just Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EECA2F942A7EBAAC073EAF5B4457F403758B941
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382748   (817381) от 12.05.2020
-
-VA - Joyful Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Grooves - Secrets (Original Mix) (04:21)
-02. Mission Brown - Same Old Temptations (Original Mix) (04:33)
-03. Ingo Herrmann - A New Day Is Dawning (Original Mix) (03:37)
-04. Luis Hermandez - A Tu Lado (Original Mix) (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1277179523A522BEEDB24CEF8C2234C1BB5239
 ```
 
 

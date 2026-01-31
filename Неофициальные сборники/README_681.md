@@ -1,3 +1,30 @@
+###  Публикация: 1442071   (1036946) от 24.01.2021
+
+VA - Beatport Techno: Electro Sound Pack #223 (2021) [MP3|320 Kbps] <Techno, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Техно с "глубоким" звуком - элементами реверберации, эмбиента и минимала в 223-м сборнике от Beatport. В Вашем распоряжении 120 треков современного техно минимала высокого качества круглосуточно!001. Ensor - Natural Disorder
+002. Pwcca - Die Fliege
+003. Pablo Rios - The Big Bang Teory
+004. Squeeze Dj - Fearless(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 12:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30F62BE2B98CE75DA44F6B3A7219D1F70F0A734
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442075   (1036956) от 24.01.2021
 
 VA - Beatport Progressive Trance: Sound pack #224 (2021) [MP3|320 Kbps] <Progressive Trance>
@@ -668,33 +695,6 @@ VA - Beatport Techno Minimal: Sound Pack #178-1 (2021) [MP3|320 Kbps] <Techno, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:594174B0DC108ACF33B68E2538865F730C58CA6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440907   (1038055) от 20.01.2021
-
-VA - Beatport Uplifting Trance: Sound Pack #182-1 (2021) [MP3|320 Kbps] <Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случается так, что слушаешь трек за треком и буквально не в силах остановиться. Вот это и есть по-настоящему отличная музыка, что можно слушать нескончаемо. Именно такая музыка и собрана в 182-м релизе от Beatport, который объединил в свой состав такие направления электронной музыки как Vocal и Uplifting Trance.001. Pink Bomb - Indica
-002. Slusnik Luna - Valssi
-003. Craig Connelly - California
-004. Manuel Rocca - Invierno(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD03D642A5D05C0BAC2FE816A9D5BA022799061
 ```
 
 

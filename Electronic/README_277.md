@@ -1,3 +1,30 @@
+###  Публикация: 1238763   (544660) от 01.08.2018
+
+Poison Arrow - If You Don't Love Me (2018) Pleasure District [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Don't Love Me (I'll Cut Your Face) (07:36)
+02. Casa Show (06:00)
+03. If You Don't Love Me - (Konrad Black's Scarredface Mix) (07:13)
+04. If You Don't Love Me (I'll Cut Your Face) - Razor Dub (07:33)Жанр: Electro, IDM, Techno, MinimalПродолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D902AD14CFCAAAE420D77AC092C030F9574399F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049324   (544856) от 04.09.2016
 
 VA - Smooth Jazz With Sex (2014) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -668,33 +695,6 @@ Melodic Mode - Somewhere (2019) Limited Edition [FLAC|Lossless|tracks + .cue] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF2691E2D04C2EAC4C02BF466D90B68B5C5C3925
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310335   (547017) от 24.06.2019
-
-Steve Allen & Solis & Sean Truby & XiJaro & Pitch + More - Uplift 050 (Six Hour Vocal Special) 2019-06-21[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Steve Allen
-1.Trance Classics & Esmee Bor Stotijn - Turn It Around (Steve Allen Remix)
-2.Trance Classics & Esmee Bor Stotijn - Sky Falls Down (Steve Allen & Skyborne Remix)
-3.Maria Nayler - Angry Skies (James Dymond Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEC75739D770159F35C19AF1E851A38D4166B65
 ```
 
 

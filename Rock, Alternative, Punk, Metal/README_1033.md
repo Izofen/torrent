@@ -1,3 +1,327 @@
+###  Публикация: 324914   (790749) от 17.11.2021
+
+Obsidian Shell - Angelic Asylum (2010) [MP3|192-320 kbps]<Symphonic Power/Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 My Arrival 1:07
+02 Orphanage 4:19
+03 Fear 5:00
+04 Dream 4:17(   Читать дальше...   )Жанр: Symphonic Power/Gothic MetalПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA5F880C3C553C805060F4546305D911DCEC39D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510600   (790805) от 17.11.2021
+
+Robert Palmer - Don't Explain (1990) [FLAC|Lossless|tracks + .cue]<Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Mother Should Have Warned You
+02. Light - Years
+03. You Can't Get Enough Of A Good Thing
+04. Dreams To Remember(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441A6C522CC182687B4F2E0AD2372CD8FF403449
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510555   (790815) от 17.11.2021
+
+Macumbazilla - ...at a Crossroads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colossus (04:03)
+02. Leave My Beer Alone (03:55)
+03. Hellhounds (04:20)
+04. Ladies from Mars (04:12)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEDDD077764E11C04BE616DA528491841DF1473
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510552   (790816) от 17.11.2021
+
+Tower - Shock to the System (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blood Moon
+02. Prince Of Darkness
+03. Metatron
+04. Running Out of Time(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F248A9CAF24CDF435FFF846161628D31683AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 413498   (790836) от 10.01.2019
+
+Daughtry - 6 альбомов (2006 - 2018) [FLAC|Lossless|tracks+.cue]<Alternative, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daughtry (Дотри) — рок-группа из Северной Каролины, основана и финалистом шоу American Idol Крисом Дотри с 2006 года. Их одноимённый альбом "Daughtry", выпущенный в 2006 году, попал в Billboard 200, было продано более 5 миллионов копий. Альбом стал самым быстро продаваемым рок альбомом в истории Soundscan. Так же было продано 7.1 миллиона синглов. Первый (   Читать дальше...   )Список альбомов:
+2006 - Daughtry
+2009 - Leave This Town
+2011 - Break the SpellЖанр: Alternative, Modern RockПродолжительность: 05:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EEF725117B4C9B0CFFAE24E46EA0254406388C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201600   (790940) от 27.01.2018
+
+Coal (Надя Гордиенко) - Post Scriptum (2011) [MP3|320 Kbps] <Rock, Art Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Спокойной ночи
+02. Мария
+03. Звезда
+04. Танго(   Читать дальше...   )Жанр: Rock, Art Rock, Folk Rock, Jazz RockПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395996608ABD64509B52433063F8BD664033961C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202065   (790978) от 27.01.2018
+
+Orphaned Land - Unsung Prophets & Dead Messiahs (2018) [MP3|320 Kbps] <Folk Metal, Progressive Metal, Oriental>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790978.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+1. The Cave
+2. We Do Not Resist
+3. In Propaganda(   Читать дальше...   )Жанр: Folk Metal, Progressive Metal, OrientalПродолжительность: 01:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871519FD72F168A46CDB2003111F32B12DD2A188
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201947   (790982) от 27.01.2018
+
+Dream Wife - Dream Wife (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop, Dream Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Make Out
+02. Somebody
+03. Fire
+04. Hey Heartbreaker(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Dream PopПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B699BDBAC3CD4EDC5FC2A2754AFE4D2A6EECFA26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275212   (790992) от 10.01.2019
+
+Powerwolf - Metallum Nostrum (2019) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Of Evil
+02. Conquistadores
+03. Edge Of Thorns
+04. Power And Glory(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB99F3F33F5188073F95F993202C504FB2AA1489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202069   (791020) от 27.01.2018
+
+Tribulation - Down Below (2018) [MP3|320 Kbps] <Progressive Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791020.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Lament
+2. Nightbound
+3. Lady Death
+4. Subterranea(   Читать дальше...   )Жанр: Progressive Death Metal, Gothic MetalПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C35C2E3AB134F538C426017C36CFB4E3D2A4C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201955   (791025) от 27.01.2018
+
+No Age - Snares Like a Haircut (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Noise Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cruise Control 03:31
+02. Stuck In The Changer 03:14
+03. Drippy 02:38
+04. Send Me 03:55(   Читать дальше...   )Жанр: Indie, Noise RockПродолжительность: 00:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03BC28453CF3AA8DCC84E4480975C7D32907CF07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275225   (791076) от 10.01.2019
+
+Йорш - #Нетпутиназад (2019) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пролог
+02. Реалити-шоу
+03. Против тебя
+04. Боже, царя хорони(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A45B04359F0A80A5348DAE3707C57D08EF508C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275286   (791084) от 10.01.2019
 
 All That Remains - The Fall of Ideals (2006) [FLAC|Lossless|tracks + .cue] <Metalcore>
@@ -371,330 +695,6 @@ The Ghost Inside - The Ghost Inside (2020) [MP3|320 Kbps] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6F06E2634353C6CC13F0681650D334C8E3A1739
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 737417   (791377) от 16.11.2021
-
-Paragon - Revenge (2005) [FLAC|Lossless|.iso.wv]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Intro / Impaler (04:57)
-02.Assassins (04:16)
-03.Traitor (05:13)
-04.Masters Of The Seas (09:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41BB091A429895838332DD58CF7A79068FDADC86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510260   (791411) от 16.11.2021
-
-Iron Maiden - Maiden Japan (2021) EP, Remaster [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Free  (2021 Remaster)
-02. Remember Tomorrow  (2021 Remaster)
-03. Wrathchild  (2021 Remaster)
-04. Killers  (2021 Remaster)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0399DDB4D96ADCA3EE63FAFC00FEB05562737BBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 652103   (791426) от 16.11.2021
-
-Savage Circus - Dreamland Manor (2005) [FLAC|Lossless]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Evil Eyes [06:58]
-02.  Between the Devil and the Seas [05:24]
-03.  Waltz of the Demon [06:56]
-04.  Tomorrowland [06:26](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099499D4CB033A548994DA093596179976CCBF70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510245   (791456) от 16.11.2021
-
-Rod Stewart - The Tears Of Hercules (2021) [FLAC 2.0|44/24|tracks|WEB-DL] <Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Time (3:58)
-02. Gabriella (3:33)
-03. All My Days (3:37)
-04. Some Kind Of Wonderful (3:03)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C94B84AD6E74B026D66C380F5E76D38D9BBFF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510323   (791466) от 16.11.2021
-
-Rod Stewart - The Tears Of Hercules (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791466.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. One More Time
-2. Gabriella
-3. All My Days
-4. Some Kind Of Wonderful(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C018ECFA7F3A68D8ACB08173010BC7A5D69D23FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510273   (791470) от 16.11.2021
-
-Architects (UK) - For Those That Wish To Exist (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Alternative Rock, Metalcore, Post Hardcore, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Dream Of Armageddon! [00:01:38]
-02. Black Lungs [00:03:51]
-03. Giving Blood [00:03:32]
-04. Discourse Is Dead [00:03:46](   Читать дальше...   )Жанр: Alternative Rock, Metalcore, Post Hardcore, Arena RockПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5F2514D78A2CA538CC396EB4099CADEF41179E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201839   (791510) от 26.01.2018
-
-Extreme - Extreme II : Pornograffitti (A Funked Up Fairytale) (1990) Remastered, 2008, A&M Records [MP3|320 Kbps] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791510.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Decadence Dance
-2. Li'l Jack Horny
-3. When I'm President
-4. Get The Funk Out(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A23D89F64594C757DC32E7641E971C723036D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201896   (791514) от 26.01.2018
-
-Найк Борзов - Кислотный бог (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791514.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кислотный бог
-2. Кислотный бог (Geonis Remix)
-3. Кислотный бог (Владимир Комаров Hudson Arps Version)
-4. Кислотный бог (Oligarkh Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB4EA68C2072B626DAFC10A731EB30000E179E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510322   (791519) от 16.11.2021
-
-Рабфак 2.0 - Лайк репост (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ни шагу с плаца
-2. На серьёзных щах
-3. Чей Крым
-4. Силовик(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F4555CA613E330960EAA34F960B3817F8DFD94
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510462   (791524) от 16.11.2021
-
-Clouds - Despartire (2021) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Doom, Melodic Doom, Funeral Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deepen This Wound (10:19)
-02. This Heart, A Coffin (10:13)
-03. Your Name In My Flesh (feat. Mick Moss) (7:46)
-04. In Both Our Worlds The Pain Is Real (feat. Aaron Stainthorpe) (8:39)(   Читать дальше...   )Производство: 1813776 Records DKЖанр: Atmospheric Doom, Melodic Doom, Funeral DoomПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B0FAD16A0803EE7C8CC8872A1EB00F833129BFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510398   (791526) от 16.11.2021
-
-Vandenberg - The Complete ATCO Recordings (1982-2004) 4xCD, Box Set, Compilation, Reissue, 2021, HNE Recordings Ltd [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Голландский гитарист и автор песен Adrian Vandenberg объединив усилия с вокалистом Bert Heerink, басистом Dick Kemper и барабанщиком Jos Zoomer, сформировал группу Teaser в 1977 году. Демо запись молодых музыкантов отправленная на Atlantic Records привела к заключению контракта с этим лейблом. Группа - теперь названная в честь их гитариста и автора песен - выпустила (   Читать дальше...   )CD - 1 - Vandenberg:
-1. Your Love Is In Vain (4:15)
-2. Back On My Feet (3:56)
-3. Wait (5:10)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B16470111DDCB83359F017E01AD1D7F67E2B7A4D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201917   (791558) от 26.01.2018
-
-Igor & The Red Elvises - She Works For KGB (2017) [MP3|320 Kbps] <Rockabilly, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Works For KGB
-02. I Want My Honda Back
-03. Get Drunk And Funk
-04. Tea With Isabella(   Читать дальше...   )Жанр: Rockabilly, Rock'n'RollПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E18011E55B4CA5E1490D89ECE1F6644750C376
 ```
 
 

@@ -1,3 +1,27 @@
+###  Публикация: 860245   (935583) от 19.01.2015
+
+VA - 500 Greatest Albums Of All Time (1950-2003) [MP3|128-320кб/с] <Pop, Rock, Punk, Ska, Metal, Soul, Blues, Folk, Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935583.jpg" />
+</div>
+
+
+###  Подробнее
+
+500 величайших альбомов всех времён по версии легендарного музыкального журнала "Роллинг Стоун". В составлении списка принимали участие 273 человека, среди которых были известные музыканты, критики, продюсеры и другие влиятельные в музыкальной индустрии люди - каждый из них предложил журналу 50 своих любимых альбомов.Жанр: Pop, Rock, Punk, Ska, Metal, Soul, Blues, Folk, Jazz и др.Продолжительность: 431:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7700C3C137A25249CD4E517F36D56A203DD6BE7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363366   (935664) от 03.03.2020
 
 VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
@@ -672,33 +696,6 @@ VA - The Dance Riot (2020) [MP3|320 Kbps] <Dance, Disco, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81DA368960C3E9A036C6BB5E6CBDCCA7B7B6C8A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364184   (937956) от 02.03.2020
-
-VA - Black Night Empire: New Trance Music (2020) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937956.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Wright - Hostile Terrain (Extended Mix)
-002. Kiyoi & Eky - Twenty Four Seven
-003. Airum & Natune - Beleive In Yourself (Original Mix)
-004. Muckypuh - Picks N Dussies (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 13:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3AB51B7421D067A2829A5F32C57EA3D6C3178C
 ```
 
 

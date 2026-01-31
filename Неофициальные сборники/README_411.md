@@ -1,3 +1,30 @@
+###  Публикация: 1537883   (663132) от 20.03.2022
+
+Ernesto Cortazar - Compilation part 3 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories of the Fall
+02. Delirio
+03. Mournful Seaside
+04. Cid(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 06:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFC6B744A68612502B720020CDAD95556CD50FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138578   (663165) от 30.05.2017
 
 VA - SpaceSynth & ItaloDisco Hits Vol.26 (2017) [MP3|320 Kbps] <Italo Disco, Spacesynth>
@@ -662,33 +689,6 @@ VA - Остаться Молодым: Сборник Русского Рока (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11BF7F9DB7F867EABBB7C12714B8561CD153948E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137903   (665136) от 28.05.2017
-
-VA - Дискотека Hit FM. Любимая музыка. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Денис Филимонов - Чужой Мой Близкий Человек 3:30
-002. Fargo - Лев Толстой 3:30
-003. Icetowne - Территория 5:23
-004. Иракли - Два Океана 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10E2964509DBF870613306860F3DAC6CB3DA94E9
 ```
 
 

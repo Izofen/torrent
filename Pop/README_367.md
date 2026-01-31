@@ -1,3 +1,84 @@
+###  Публикация: 1602631   (1046023) от 06.01.2023
+
+Bee Gees - Mr. NATURAL (1974) SHM-CD, Japanese Edition, Reissue, 2022, Capitol Records [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charade 4:12
+02. Throw a Penny 4:52
+03. Down the Road 3:20
+04. Voices 4:50(   Читать дальше...   )Жанр: Pop Rock, BalladПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672006782EB1CDD42F31A1D64802FB0E3E7C3C41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602659   (1046044) от 06.01.2023
+
+Duran Duran - Astronaut (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.(Reach Up For The) Sunrise 03:26
+02.Want You More 03:37
+03.What Happens Tomorrow 04:05
+04.Astronaut 03:24(   Читать дальше...   )Жанр: Electronic, Rock, Pop RockПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:782D4E0C7D8C59CC33F56F35F3964780A4431635
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602448   (1046105) от 05.01.2023
+
+Mariah Carey - #1's (1999) [OGG Vorbis|480 Kbps] <Hip Hop, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetheart
+02. When You Believe (from The Prince Of Egypt)
+03. Whenever You Call
+04. My All(   Читать дальше...   )Жанр: Hip Hop, Pop, VocalПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5670DCD03D68D0C29E5391F5A960C4E44BED7C34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602313   (1046113) от 05.01.2023
 
 Stevie Wonder - Fulfillingness' First Finale (1974) Reissue, Remastered, 2011, Motown [OGG Vorbis|480 Kbps] <Funk / Soul, Soul>
@@ -614,87 +695,6 @@ Greater Vision - Perfect Candidate (2000) [FLAC|Lossless|tracks + .cue] <Gospel,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8181CBB7CB20656256FF6854F550E0EE511D4B9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844499   (1050112) от 26.12.2025
-
-Bee Gees - Greatest (1979) 2 x CD, Compilation, Reissue, 1987, Polydor [FLAC|Lossless|image + .cue] <Pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050112.jpg" />
-</div>
-
-
-###  Подробнее
-
-Greatest - это сборник лучших хитов группы Bee Gees. Альбом был выпущен лейблом RSO Records в октябре 1979 года и представляет собой ретроспективу творчества группы за период с 1975 по 1979 год. Это была идеальная квинтэссенция звучания, которое вывело Bee Gees на вершину поп-музыкального мира. В то время это вызвало некоторое невысказанное недовольство у старых (   Читать дальше...   )CD1:
-01. Jive Talkin' (3:45)
-02. Night Fever (3:32)
-03. Tragedy (5:03)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:22:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BC42DFBE78D6A2EC5D441A38DE68F8C07E7117
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844762   (1050179) от 28.12.2025
-
-VA - Venti Compilation 11 (2025) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Disco, Hi NRG, Electro, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ken Laszlo - This Life (I Venti Remix)
-02. Atrium - Dream With Me
-03. David Dima - Time Machine
-04. Gotcha! - This Is Your Time (Original)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRG, Electro, Synth-popПродолжительность: 02:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FB5E252F23754371ECDC2AB443B55CA0FB5F11
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844528   (1050319) от 27.12.2025
-
-Андрей Защитник - Таро (Deluxe album) (2026) [MP3|320 Kbps] <Indie-Folk, Indie-Pop, Synthwawe>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Таро
-02 Руна Любви
-03 Тёмный обряд
-04 Защитный заговор(   Читать дальше...   )Жанр: Indie-Folk, Indie-Pop, SynthwaweПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA4F38F50953A960034FCAB4F09B42ED120CA4D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1481872   (1007989) от 05.07.2021
+
+VA - Music News vol.113 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007989.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Леся Ярославская - Полюбила Другого (02:54)
+ 002. Ahzee - Royalty (03:10)
+ 003. Akim - Селяви (02:57)
+ 004. Akritis - Я Скучаю По Тебе (03:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED2D856A06FC57A2C7CB0EB9FB7756B5883FAEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481734   (1007999) от 05.07.2021
 
 VA - Record Super Chart 03.07.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - Rock Drive 13 (2021) от DON Music [MP3|320 Kbps] <Hard Rock, Blues Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A28CAF2F3E6574F68EFA7C5139F2E80F14304046
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479617   (1009534) от 24.06.2021
-
-VA - 30(6) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arsenium & Ханна & Tymma - Coco-Inna (remix) (2:38)
-02. Las Olas - You Are My Heart You Are My Soul (Remix) (3:06)
-03. Bhaskar Moguai - Shadows (2:34)
-04. GAYAZOV$ BROTHER$ - Больше мне не наливать (3:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3998DBF090D71B133E26656DF1EAA655FEB5B3B6
 ```
 
 

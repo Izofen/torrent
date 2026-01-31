@@ -1,3 +1,30 @@
+###  Публикация: 1036561   (1028705) от 28.02.2021
+
+Aligning Minds (Daniel A. Merrill, A Path Untold) - Collection 4 Releases (2011-2015) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Psychill, Dubstep, Glitch>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consciousness Aqueduct (05:48)
+ 02. Empyrealms (07:15)
+ 03. Inwardly Majestic (06:54)
+ 04. Sansing's Glimpse (06:17)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Psychill, Breaks, Dubstep, Ambient, Glitch •Продолжительность: 04:30:51 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D941C953773677976F57FB4C88B050123E2A0AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450665   (1028904) от 27.02.2021
 
 Profondo Delle Tenebre - Exoterica (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Darkwave>
@@ -663,31 +690,6 @@ V.A. - The Best Chillout Ever (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559F690DF4EACD4B62BDD6E43F67CB7942167013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623041   (1029411) от 01.04.2023
-
-VA - Armin van Buuren - A State Of Trance 1114 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1029411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. Wrabel - Feel Again
-02. Armin van Buuren ft. Matluck - Letting GoЖанр: Trance, Progressive, ElectronicПродолжительность: 02:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF9EFA240DD758CF993312FC1FE8D57D2F55FAB
 ```
 
 

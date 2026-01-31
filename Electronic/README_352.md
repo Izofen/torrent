@@ -1,3 +1,30 @@
+###  Публикация: 1132912   (697118) от 11.05.2017
+
+VA - Late Night Vibes Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_697118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ray Castello - Cappuccino  5:04
+02.  Continental Rhythms - Konte (Jazz O Phonic Mix)  3:26
+03.  David Scott feat. Amanda Love - Softly Name  3:42
+04.  Deep City - Maybe Rice (Deep Fashion Mix)  3:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8986D3A1DFF10DAC1DD9C0EA60699F5B179D3DEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132888   (697216) от 11.05.2017
 
 VA - Deep Chill Out Waves Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -667,33 +694,6 @@ VA - Power Workout Vol.2 (2018) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:435EED9DB96949657A63A6D3BD802F98951BE774
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220985   (698807) от 22.04.2018
-
-VA - Artworx Vol.1. (Mixed by Nicholson) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Yorrin – Nebula (Original Mix)
-02. Melvin Sheppard – Telekinetic (Original Mix)
-03. Nicholson – Perfect Storm (Original Mix)
-04. Nicholson feat. Niki Mak – To The Flame (Charlotte’s Theme) (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2F315F7FF4E9BC4683FFA06AF88781E74DD6F6
 ```
 
 

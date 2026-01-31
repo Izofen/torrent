@@ -1,3 +1,30 @@
+###  Публикация: 1356643   (975613) от 02.02.2020
+
+VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Ale B - Raid the Radio (6:24)
+2.Rossetti Matteo - Space Age (4:52)
+3.Andy Well - Neblina Del Verano (5:02)
+4.Supernocs - Chorando (4:03)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB3040807069F95EBD072FD4AAC276A6805AA05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974512   (975682) от 12.01.2016
 
 VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep House>
@@ -672,33 +699,6 @@ Supreme Beings of Leisure - 3 albums (2000-2008) [MP3|318-320 кб/с] <Trip-Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97DDC9880F45150E4549A31A54B9AF53CF57849C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972360   (979211) от 09.01.2016
-
-Jaffa - 2 albums (2000, 2011) [MP3|320 кб/с] <Electronic, Ambient, Jazz>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_979211.jpg" />
-</div>
-
-
-###  Подробнее
-
-За спиной Дэвида Кейкона, он же Jaffa, пятнадцать лет школы классической игры на фортепиано. Большой поклонник органа и коллекционер старинных синтезаторов, в своей музыке он использует такие инструменты, как Fender Rhodes, Moog MultiMoog, Roland Alpha-Juno 2, Waldorf Pulse, Hammond B3, Hohner Clavinet и Wurlitzer EP.
-Дебютный альбом Jaffa не укладывается в рамки (   Читать дальше...   )Список альбомов:
-2000 - Elevator
-2011 - EchoesЖанр: Electronic, Ambient, JazzПродолжительность: 01:41:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD4C922288B69F51B5F26BFDE85A8FC9C079262
 ```
 
 

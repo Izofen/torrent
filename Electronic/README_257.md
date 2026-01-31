@@ -1,3 +1,30 @@
+###  Публикация: 1056190   (484007) от 24.09.2016
+
+VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_484007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light In Color - Take Cover 05:27
+02. David K (Ger) - In Love : In Love (Robin Schulz Remix) 06:49
+03. Acido Domingo - Lagerfeuer 05:08
+04. David K (Ger) - Open Eyes 06:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E8A5F6D8C7B548586B3D3338AE92CA48E06546
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938171   (484052) от 17.09.2015
 
 Jedidiah - Inner Spirit (2015) [MP3|320 кб/с]<Psychill, Downtempo, Ambient>
@@ -672,33 +699,6 @@ VA - Timeless Moment, Vol. 01 (Mixed and Compiled by Morttagua) (2018) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4070FCC980FC8B428BA414746CE89B4E4D1601E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566172   (486388) от 27.07.2022
-
-VA - Oriental Beauty: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prana Tones - Eastern Voices (Original Mix) (3:44)
-02. J. R. Haim - Wanderlust (4:47)
-03. Michael E - The Fourth Element (Original Mix) (5:49)
-04. Marga Sol - Je T'aime (Original Mix) (5:17)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED80184AAE4BFDB3AC4170FE1C3CEAC885B7A5D9
 ```
 
 

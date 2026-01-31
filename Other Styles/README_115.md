@@ -1,3 +1,189 @@
+###  Публикация: 1027678   (694052) от 20.06.2016
+
+Brad Fiedel - The Terminator / Терминатор (Original MGM Motion Picture Soundtrack) (1984) (Remastered 2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title (02:40)
+02. Terminator Arrival / Reese Chased / Sarah On Motorbike (07:09)
+03. Terminator Gets Guns / Search For Sarah (01:13)
+04. Reese Dreams Of Future War (01:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F8C30A5FAEE09CDAB6B54ACD973506B981C43D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741387   (694165) от 20.06.2016
+
+Beatmakers - 4 альбома (2008 - 2014) [MP3|224 - 320 кб/с]<Guitar, Beat, Rautalanka>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Guitar, Beat, RautalankaПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF414FCD78CF4246A59D487924AB18710EE8BEFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534111   (694253) от 02.03.2022
+
+Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kbps] <New Age, Ambient, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision (6:12)
+02. New Feelings (7:14)
+03. Silent Motions (9:16)
+04. Classic Approach (6:17)(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 01:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64F9FF2629F3FFFE68A67BC5FEAA8A22DD26F42F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027627   (694553) от 20.06.2016
+
+Majestica - In the Midst of Stars (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Midst of Stars [00:04:30]
+02. Carousel [00:04:00]
+03. In Bloom [00:05:31]
+04. Close of Day [00:05:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EA06B98590BE3DE3F900B0F22C0554AEB65205
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027580   (694554) от 20.06.2016
+
+Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ufology [00:05:18]
+02. Saucers over Stonehenge [00:06:47]
+03. Suspended Animation [00:05:53]
+04. Roswell (feat- Annaspaceia) [00:04:12](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F78AD9FE89CF8687A3B40E64C37AC0535D03141A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027583   (694558) от 20.06.2016
+
+Jupiter Panic - Distant Tomorrow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Tomorrow Part 1 [00:03:39]
+02. Distant Tomorrow Part 2 [00:03:31]
+03. Descension [00:05:49]
+04. Anti-Gravity [00:03:49](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A654E08D41DCAF8927B984947A82DE84B059997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027834   (694697) от 20.06.2016
+
+Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ufology
+02. Saucers over Stonehenge
+03. Suspended Animation
+04. Roswell (feat- Annaspaceia)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027666   (694708) от 20.06.2016
 
 Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
@@ -512,201 +698,6 @@ John Ottman & David Buckley - The Nice Guys / Славные парни (Origina
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7C3E580776AB4719E290A3672AA33D9CA439196
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027189   (698462) от 18.06.2016
-
-John Ottman & David Buckley - The Nice Guys / Славные парни (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From "The Nice Guys" (02:01)
-02. Kids Today (03:23)
-03. Disco Party Fight (04:00)
-04. To the Car Show / Amelia? (01:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E90FB61B9FBCA93A4FBA5C3BE58FD75CE5989D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132063   (698497) от 10.05.2017
-
-VA - Horizon Zero Dawn (Original Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Flight - The Spreading Eclipse - Part 4 - Secrets Of The Earth (05:36)
-02. The Flight - The Demon Remade - Part 4 - Secrets Of The Earth (01:26)
-03. Joris de Man - Force Multiplication - Part 4 - Secrets Of The Earth (04:00)
-04. The Flight - Buried Shadow - Part 4 - Secrets Of The Earth (00:57)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 04:00:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38AAE636F5B7BBBAA34B1F2ED98E6B155A539BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132775   (698684) от 10.05.2017
-
-VA - Dishonored 2 (Original Game Soundtrack) (2016) [MP3|200-275 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Licht - Dishonored 2 Main Theme (02:37)
-02. Daniel Licht - Aristocrats of Karnaca (Ambient) (01:07)
-03. Daniel Licht - Aristocrats of Karnaca (Suspense) (02:47)
-04. Daniel Licht - The Dreadful Wale (01:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00A03643092FF3BCEC7CDA3E2BECEA266F349A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131961   (698780) от 10.05.2017
-
-VA - Los 50 Grandes Éxitos del Tango Instrumentales (2014) [MP3|192 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florindo Sassone - Tierrita
-02. Los Astros del Tango - Derecho Viejo
-03. Mariano Mores - El Firulete
-04. Augusto P. Berto - De Pura Yerba(   Читать дальше...   )Жанр: TangoПродолжительность: 02:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE35695490F476D9982B0D9A94395B08D95B7A21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131802   (698789) от 10.05.2017
-
-Алан Менкен & VA - Beauty And The Beast / Красавица и Чудовище (Оригинальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алан Менкен - Увертюра (03:06)
-02. Алан Менкен - Пролог 1 (00:43)
-03. Екатерина Лёхина - Ария (01:03)
-04. Алан Менкен - Пролог 2 (02:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0C63465A6D99F4D6883678415A5E251E513A35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132869   (698797) от 10.05.2017
-
-VA - Greatest Ever! Brazil (2012) [MP3|320 Kbps] <World Music, New Age, Brazil>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_698797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clara Moreno, OrlandrVo - Tamanco No Samba
-02. Nina Miranda, Zeep, Chris Franck - Keep an Eye On Love
-03. Banda Black Rio, Marcio Local - Quern Vem Li
-04. Marcos Valle - Parabens(   Читать дальше...   )Жанр: World Music, New Age, BrazilПродолжительность: 03:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADE4791EBD4F8A36961602DBABD665B766A0482
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 332369   (699539) от 04.05.2011
-
-Karunesh - Beyond Time Compilation 1 (2010) [MP3|320 kbps]<New Age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sweet Dreams
-02 - Atlantis
-03 - Love Song
-04 - The Inner Temple
-05 - Japanese Spring
-06 - Sky's Beyond
-07 - The End of a Day
-08 - The Commune
-09 - Back Home
-10 - Indian Summer(   Читать дальше...   )Жанр: New Age, Relax, MeditativeПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E92AA3597C7B0956E89D4A4893789769B3282C
 ```
 
 

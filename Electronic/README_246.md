@@ -1,3 +1,30 @@
+###  Публикация: 1569310   (453512) от 12.08.2022
+
+Erasure - Day-Glo (Based on a True Story) (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Based on a True Story
+02. Bop Beat
+03. Pin-Prick
+04. The Conman(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5199116020AF81BD239DC67EB887469990299E84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569181   (453669) от 12.08.2022
 
 A-Ha - Minor Earth, Major Sky (2000) [OGG|485 Kbps] <Synth-pop, Pop Rock, Soft Rock, Ballad>
@@ -666,33 +693,6 @@ Ben Haydie - Molecules (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9025D63E032FAF3AE41D2DCF22D902BD09F68E4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569023   (455801) от 11.08.2022
-
-VA - The Sound Of Progressive Trance Vol.14 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Soun - Sakura (Extended Mix)
-02. Donald Wilborn - Greenland (Festival Mix)
-03. Albakar & CanitaR - Mind Distort (Original Mix)
-04. Acues - Dancing At Midnight (Evebe Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594959D95FA45CEAD44D46560020A4F719C9D399
 ```
 
 

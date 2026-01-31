@@ -1,3 +1,30 @@
+###  Публикация: 1042845   (575963) от 14.08.2016
+
+VA - Sport Music Fitness Personal Trainer - 200 Songs (2016) [MP3|320 Kbps] <House, Electro House, Progressive, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575963.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Kold  -  Sidechain  4:49
+002. California Sun  -  Touch the Sky (Extended Mix)  5:18
+003. Alain Chavez  -  Private Area  5:42
+004. Calabria  -  Evolver (Club Mix)  6:19(   Читать дальше...   )Жанр: House, Electro House, Progressive, Dance, ClubПродолжительность: 19:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01102AC3CF5B373E4A399769552D55324C4794CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233936   (576026) от 02.07.2018
 
 VA - The Best Of Critical Overload 001 (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
@@ -666,33 +693,6 @@ Asger Kudahl - Sketches For Revolution (2018) Resonans [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D92E91F35FB5514AF7188F6B10ADE7DC477777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042553   (578388) от 13.08.2016
-
-VA - Schneeweiss VI (Presented By Oliver Koletzki) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cubicolor - Falling (feat Tim Digby-Bell)
-02. Frank Wiedemann - Moorthon II
-03. Stimming - Trains Of Hope
-04. Julian Wassermann & Oliver Deuerling - Schwabing(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 03:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF33CDEF31A9E7AEB1BE75AB6ECD769B9C7C8600
 ```
 
 

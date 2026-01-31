@@ -1,3 +1,30 @@
+###  Публикация: 1022775   (727777) от 03.06.2016
+
+VA - Pregnancy Music: 2 hours relaxing music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toni Verde - Abstract - Piano Version
+02. Hans Overgraard - Suggestion
+03. Hans Overgraard - Impression
+04. Dominik Andersen - Seductive(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88306B8F081A99AABECCF33287CE2AE9AEB65007
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022871   (727779) от 03.06.2016
 
 VA - Ibiza 2016 (Deluxe Version) (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
@@ -668,33 +695,6 @@ VA - Sensual Steps: Relax Compilation (2016) [MP3|320 кб/с] <Downtempo, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD9A059C1787C17CF9D49F0C64E46FDA668D86D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021990   (729382) от 01.06.2016
-
-VA - Top 100 Зайцев Нет Май 2016 (2016) [MP3|192-320 кб/с] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729382.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Потап и Настя – Умамы
-2. Светлана Лобода – К Чёрту Любовь!
-3. Alekseev – Пьяное Солнце
-4. Sia – Unstoppable(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 05:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF377EE91A16E01DA38DD5516A0AB61DFF3A3614
 ```
 
 

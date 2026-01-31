@@ -1,3 +1,329 @@
+###  Публикация: 1502845   (824957) от 16.10.2021
+
+Gus G. - Quantum Leap (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четвертый сольный инструментальный альбом греческого гитариста-виртуоза Gus G. (FIREWIND, ex-OZZY OSBOURNE) "Quantum Leap" вышел 8 октября 2021 года на лейбле AFM.
+"Quantum Leap" родился во время всемирной пандемии, которая не дала последнему альбому FIREWIND одного с группой названия в полной мере реализовать свой коммерческий потенциал. Когда (   Читать дальше...   )CD - 1:
+01. Into The Unknown
+02. Exosphere
+03. Quantum Leap(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D704C7A603F6B5C4B618D83CB87B134EA388D899
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502626   (824960) от 16.10.2021
+
+UK - Ultimate Collector's Edition (2016) 14xCD, Compilation,  Box Set, Limited Edition, Remastered, Globe Music [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ultimate Collectors'  Окончательное коллекционное издание  представляет собой сборник бокс - сет от группы Великобритании , выпущенный 4 ноября 2016 г. В комплект входят 14 компакт дисков, 4 Blu-лучей и 66-страничную книгу подробным описанием истории группы. На компакт-дисках представлены: ремастированные версии двух студийных альбомов группы ( UK и Danger Money ), (   Читать дальше...   )1978 - UK
+1978 - UK Extras
+1978 - Live In Boston
+1978 - Live In Philadelphia(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 11:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A93722AEB52188A8B3F1621C9566ABCEB0CBC38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115837   (824967) от 19.03.2017
+
+Scarlet Rain - Eleventh Hour (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_824967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall (4:38)
+02. Beyond The Sky (5:56)
+03. Nameless (5:30)
+04. Adamante (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CC6FE0D58DCE8CCB704181628CD85457F4CA2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502810   (825023) от 16.10.2021
+
+Максим Леонидов - Седьмое небо (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825023.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В твоём городе осень
+2. В зоне доступа твоих губ
+3. Убить дракона
+4. Кот(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168557F07B12BBE51D36A360004A48D798489C22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502709   (825034) от 16.10.2021
+
+Lords Of Black - Alchemy Of Souls - Part II (2021) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испанские мелодик-прогрессив-металлисты LORDS OF BLACK выпустили новый альбом “Alchemy Of Souls, Part II” 15 октября 2021 года на лейбле Frontiers.
+Альбом последовал за чрезвычайно хорошо принятым “Alchemy Of Souls, Part I” (2020). На нем нашли продолжение многие темы, начатые на предыдущем диске. Во время паузы, вызванной глобальной пандемией, LORDS OF BLACK работали (   Читать дальше...   )01. Prelude (Alchimia Confessio 1458 A.D.)
+02. Maker Of Nothingness
+03. What's Become Of Us
+04. Bound To You(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1DE9DD0384921A29FFC738ABD91E99EF09803C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502582   (825139) от 16.10.2021
+
+The Agonist - Days Before The World Wept (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remnants In Time
+02. Immaculate Deception
+03. Resurrection
+04. Feast On The Living(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3031366DC49758A27D1EC4297B49B57593173344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502680   (825150) от 16.10.2021
+
+Manora - Brave The Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System Shutdown
+02. The Traveler
+03. Break Your Fall
+04. Wired To Obey(   Читать дальше...   )Жанр: Symphonic, Power MetalПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250816FFDDA42EA89AC15185B0E6BDC7CC2E0CA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502668   (825153) от 16.10.2021
+
+Necromantia - To The Depths We Descend (2021) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daemonocentric
+02. And The Shadows Wept...
+03. Give The Devil His Due
+04. Inferno(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:324B01A406BC71A73336A83425144B5E9A4AB024
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006709   (825154) от 13.04.2016
+
+3 Doors Down - Us And The Night (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Broken (2:46)
+02. In The Dark (3:43)
+03. Still Alive (2:41)
+04. Believe It (3:21)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Pop-Rock, Hard Rock, Post-GrungeПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCB82FF0856C132E2519763F81A34EB0B26060A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006736   (825155) от 13.04.2016
+
+Royal Republic - Weekend Man (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Garage Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Come (There You Go) (3:28)
+02. Walk! (2:55)
+03. When I See You Dance With Another (2:51)
+04. People Say That I'm Over The Top (2:59)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Hard Rock, Garage Rock, Pop PunkПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F97A1CA9C6316A1300B7A54435ADD111EEE93B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006937   (825160) от 13.04.2016
+
+Yngwie Malmsteen - Angels Of Love (2009) [FLAC|Lossless|image + .cue] <Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever One (4:50)
+02. Like An Angel (6:05)
+03. Crying (6:02)
+04. Brothers (6:01)(   Читать дальше...   )Жанр: Rock, Symphonic RockПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C5930E104FE7846594E4137ED1DBA562D53C39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006746   (825197) от 13.04.2016
+
+Brazzaville - The Oceans Of Ganymede (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Oceans Of Ganymede (2:19)
+02. Happy Man (3:19)
+03. Aurelia (3:19)
+04. Girl (feat. Renars) (3:41)(   Читать дальше...   )Жанр: Indie, Pop Rock, Easy Listening, BalladПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05438580D0C5B063497D5CF32B5DB358C0D9694E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502686   (825263) от 16.10.2021
 
 The Grandmaster - Skywards (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -377,327 +703,6 @@ Nicolette Larson - In The Nick Of Time (1979) Warner Bros. Records, HS 3370, US 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEFF1BAEE365D351091A2A0DA6B5C749A6F4349B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248311   (826033) от 07.05.2020
-
-Voyager - 7 Albums (2003 - 2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Voyager - это целая музыкальная вселенная, это путешествие по волнам музыки, сквозь время, стили и аккорды. Жесткая, цепляющая, мелодичная музыка, стоящая на грани самых разных стилей и в то же время непохожая ни на один из них. Песни о человеке, о революции в его душе и о познании окружающего мира.Список альбомов:
-2003 - Element V
-2007 - Univers
-2009 - I Am The Revolution(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 05:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832B17A132A8A7725303467ADEA24F563490C530
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196224   (826042) от 01.01.2018
-
-Lindi Ortega (Линди Ортега) - Untitles (2008) EP [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye My Love 3:37
-02. Lonely Day 3:29
-03. Dying Of Another Broken Heart 2:57
-04. So Far Gone 3:19(   Читать дальше...   )Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09562A16602BFD2C3E084B7BC6F0564C43018C0F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196290   (826043) от 01.01.2018
-
-Nicolette Larson - Live At The Roxy (1979) Remastered, 2006, Rhino Handmade [MP3|320 Kbps] <Pop Rock, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clear Light 4:57
-02. Give A Little 4:16
-03. Come Early Mornin' 3:07
-04. French Waltz 5:20(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FDCB17DEC9F451741CFD601C3A5C534ED8FD0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196301   (826045) от 01.01.2018
-
-Lindi Ortega (Линди Ортега) - The Drifter (2009) EP [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dying of Another Broken Heart 2:56
-02. All My Friends 2:36
-03. Black Fly 3:52
-04. Drifter 4:14Жанр: Country Rock, Folk Rock, Alternative RockПродолжительность: 00:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF856CE8FAD8D697389C9F3D2EAB0BE0A6A266C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381553   (826235) от 07.05.2020
-
-Gurvitz (Curtis): Projects - 11 albums, 16 CD (1967-2017) [FLAC|Lossless|image + .cue | tracks + .cue] <Rock, Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826235.jpg" />
-</div>
-
-
-###  Подробнее
-
-Братья Пол и Эдриан Гурвиц (Paul & Adrian Gurvitz) известны, как движущая сила прежде всего таких групп, как GUN/ Three Man Army/ Baker Gurvitz Army. Братья Пол и Эдриан Гeрвиц начали заниматься музыкой очень рано, причём разделение на басиста и гитариста, соответственно, у них вышло вполне естественно. Начав карьеру с лондонской команды "Londoners (The (   Читать дальше...   )--------------------------
-
-01. Paradise Ballroom (9:13)
-02. Human (6:07)(   Читать дальше...   )Жанр: Rock, Classic Rock, Blues Rock, Psychedelic Rock |Продолжительность: 12:12:49 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA46DB15E2ED85AFEF52D7912C08857270F8AF90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381589   (826241) от 07.05.2020
-
-Jimmy Urine and Serj Tankian - Fuktronic (2020) [MP3|320 Kbps] <Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chase
-02. Parole
-03. Shot
-04. Frenchy(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2347FAAD6F2A5FA1DB17ACF929A1E30539F925F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381591   (826243) от 07.05.2020
-
-Our Last Night - Let Light Overcome The Darkness (2020) [MP3|320 Kbps] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826243.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hysteria
-2. The Leap
-3. The Beaten Path
-4. Losing Sleep(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 01:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC9F70AF765A9E4B9D55833D858E16542FE14BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381590   (826246) от 07.05.2020
-
-Hardbone - No Frills (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bang Goes The Money
-02. Off The Beaten Track
-03. Too Hot
-04. A Man In His Prime(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84E98B2E3BF152CE3EB41DBDB18F67F667AA2FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115333   (826264) от 18.03.2017
-
-Genesis - We Can't Dance (1991) [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock, Synth-pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Son of Mine (6:39)
-02. Jesus He Knows Me (4:16)
-03. Driving the Last Spike (10:08)
-04. I Can't Dance (4:01)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Synth-popПродолжительность: 01:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C5A872B33C7936C4423422BB2E62D63CB08AC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115331   (826266) от 18.03.2017
-
-Genesis - Genesis (1983) Remaster, 1987, Vertigo [FLAC|Lossless|image + .cue] <Pop Rock, Synth-pop, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama (6:47)
-02. That's All (4:24)
-03. Home By The Sea (5:07)
-04. Second Home By The Sea (6:08)(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, Prog RockПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C7B7F292A9E3ACB51990A15831343E719320759
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115346   (826345) от 18.03.2017
-
-Genesis - Three Sides Live (1982) Box Set 2CD [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Three Sides Live (с англ. - «Три стороны живьём») - третий концертный альбом британской прогрок-группы Genesis, выпущенный 1 июня 1982 года.Жанр: Prog RockПродолжительность: 01:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DBFBE666D18D52CA39E01CAA7216590A17152AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 881221   (826363) от 24.03.2015
-
-Dr. Living Dead! - Crush The Sublime Gods (2015) [FLAC|Lossless]<Crossover Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Final Broadcast (1:51)
-02. Crush The Sublime Gods (4:42)
-03. TEAMxDEADx (2:44)
-04. Eternal Darkness Of The Fucked Up Mind (3:25)(   Читать дальше...   )Жанр: Crossover Thrash MetalПродолжительность: 00:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8798E83B7E5F5350B1BFBB0B708055097BB31B75
 ```
 
 

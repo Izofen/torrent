@@ -1,3 +1,30 @@
+###  Публикация: 1403723   (688561) от 21.08.2020
+
+The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someday's Gone
+02. Beekeeper's Daughter
+03. Fast And Slow
+04. Heartbeat Slowing Down(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D35195CC3FC94A92DC1E3E46212EE8E48C0A59E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134027   (689360) от 15.05.2017
 
 Dreamcar - Dreamcar (2017) [FLAC|Lossless|tracks] <Alternative Rock, New Wave>
@@ -668,33 +695,6 @@ Pond - The Weather (2017) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Psychedelic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EAD3E3A839DBA322AC16EC26BFB9DC65E8CE21C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132022   (701273) от 09.05.2017
-
-Alex Napping - Mise En Place (2017) [FLAC|Lossless|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tender 05:22
-02. You've Got Me 04:53
-03. Fault 05:05
-04. Get Used To It 04:08(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D8B4BBC03F900E61BAA002C61E2D5CA0C54227
 ```
 
 

@@ -1,3 +1,57 @@
+###  Публикация: 981622   (951292) от 01.02.2016
+
+VA – Heavy Rock Masterpieces: The Ultimate Anthology (2004) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Sabbath - Paranoid
+02. Thin Lizzy - Whiskey In The Jar
+03. Uriah Heep - Gypsy
+04. Deep Purple - Child In Time(   Читать дальше...   )Жанр: Rock, Hard RockПеревод: ОтсутствуетПродолжительность: 01:59:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158E8BA08FA23FADAEC074C87271C77BA9D32E8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981479   (951414) от 01.02.2016
+
+Ricky Martin – The Ricky Martin Video Collection (1999) 2003 Sony BMG Music Entertainment, DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Program Start
+02. Livin' La Vida Loca
+03. She's All I Ever Had
+04. La Bomba(   Читать дальше...   )Жанр: Latin, PopПеревод: ОтсутствуетПродолжительность: 01:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEB45CAF74A9E181E94E27EB02FE0E3A7457B85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 279973   (951601) от 09.01.2011
 
 VH-1 Russia - Сборник Видеоклипов (2007) DVD5 vh1
@@ -618,60 +672,6 @@ magnet:?xt=urn:btih:71AC84BAB4AC4508DF06CDBCCCCC816FAEB063BF
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C9AA73C6366F172002848C49FC5822A5F29D2BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359809   (955512) от 19.02.2020
-
-Зверобой - 19 Music Videos (2016-2020) WEB-DLRip [H.264/360p/720p/1080p-LQ] <Альтернативный Рок>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955512.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 2016 Зверобой - Мой Ленинград
-002 2016 Зверобой - Чистое Небо
-003 2017 Зверобой - Головково
-004 2017 Зверобой - Едут-едут БТРы(   Читать дальше...   )Жанр: Альтернативный РокПродолжительность: 01:18:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00573EFE1C07A060A7DEDE07DAE64490B6743A29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623202   (955554) от 26.02.2013
-
-"O2label" / Label O2 and...(vol.2.) (2013) HDTV [H.264]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Nsd - Gattaka - Planet X
-02. Sergey Nsd - Gorgon Despair
-03. Tenth Cloud - Cloud In A Pocket
-04. Tenth Cloud - Tears Of Clouds(   Читать дальше...   )Жанр: Музыка, New Age, Downtempo, Ambient, Electronic, Chillout, SpaceПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B55963E1C7E06C4EF06C7EAFCD762D62712EC00
 ```
 
 

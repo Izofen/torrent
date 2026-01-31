@@ -1,3 +1,33 @@
+###  Публикация: 1123429   (792338) от 07.04.2017
+
+VA - Hits of My Soul Vol. 25 (2017) [MP3|320 кб/с]<Trailer Music>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Hi-Finesse - Rampage (01:09)
+02. Ninja Tracks - Foot In The Grave (02:13)
+03. Brand X Music - Solitude (No Solo Vox) (03:09)
+04. The Hit House - Ruth (Drums) (02:22)(   Читать дальше...   )Жанр: Epic Orchestral, Epic Hybrid, Classical Crossover, Trailer MusicПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76F84F120573BB6DAEC2720A4CC6F80BE7A836D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123222   (792369) от 07.04.2017
 
 VA - The Best World Ballads - 32 (2017) [MP3|192-320 Kbps] <Pop, Rock, Blues, Rap, R'n'B>
@@ -669,33 +699,6 @@ VA - Вспомним 90-2000 включая XXI - от Виталия 72 - 6 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2426DD3682D281C754777E9091F27A09F0B2BE38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386614   (793414) от 30.05.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 29.05.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz feat. Alida - In Your Eyes 3:28
-02. Trevor Daniel - Falling 2:39
-03. Topic & A7S - Breaking Me 2:47
-04. Doja Cat - Say So 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB12D23E88C34F313C363BF44DAFEBE7F3CBEAB9
 ```
 
 

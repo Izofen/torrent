@@ -1,3 +1,84 @@
+###  Публикация: 1475158   (1012429) от 06.06.2021
+
+Anabel Englund - Messing With Magic (2021) Deluxe Edition [FLAC|LOSSLES-Web-DL] <Dance, Synth-pop, Dance-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Hot (MK x Nightlapse Remix) [00:03:45]
+02. Float [00:03:32]
+03. Picture Us [00:02:37]
+04. Spell My Name [00:02:53](   Читать дальше...   )Жанр: Dance, Synth-pop, Dance-popПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77650AEC1A9704894B59DA37BE41D635F3E6ECC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475251   (1012439) от 06.06.2021
+
+Najwa - AMA (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Muñequita Linda
+02. Solamente Una Vez (con Israel Fernández)
+03. Esta tarde vi llover (feat. Rusowsky)
+04. Perfidia(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4C3270352C53C5915A5925354C38E39C42FBEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474886   (1012694) от 04.06.2021
+
+Little Big - COVERS (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Everybody (Little Big Are Back)
+2. Blitzkrieg Bop
+3. Barbie Girl
+4. Koldunya(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5291EDB78FFF255BAED487615DDDC1E70CB65C2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474932   (1012727) от 04.06.2021
 
 VA - At My Worst - Chilled Pop (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listening>
@@ -610,87 +691,6 @@ TQ - Out Of The Shadows - The Album (2014) [FLAC|Lossless|tracks + .cue] <Italo-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:949A2F08EC2410944D2BDD314CE19D609D3081F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472560   (1014373) от 25.05.2021
-
-Stainless Steal - Can-Can (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can-Can (14:21)
-02. More Than Meets The Eye (6:04)
-03. Messing With You (Is Like Messing With The Devil) (5:28)
-04. It All Comes Down To Love (6:43)Жанр: Electronic, DiscoПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03407911272FA472A4267BD32E764371B16248F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472203   (1014503) от 24.05.2021
-
-Марина Сафонова - Ставка на ZERO (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 ZERO
-02 Не по правилам
-03 Стекло на губах
-04 Ищу Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73F9CF60E20AAC1CC6AEEB6EE161FD4ACBBDB538
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472106   (1014527) от 24.05.2021
-
-VA - American Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Mars - Count On Me (3:17)
-02. Jason Mraz - Have It All - Acoustic (3:45)
-03. Christina Perri - A Thousand Years (4:45)
-04. Seasick Steve - Walkin Man (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC16A188607A1D2C232783262D4E7AEE134EDBAF
 ```
 
 

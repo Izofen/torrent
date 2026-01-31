@@ -1,3 +1,30 @@
+###  Публикация: 1103645   (767839) от 15.04.2017
+
+Sylver - Turn The Tide (2000) Maxi Single [FLAC|Lossless|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn The Tide (Radio Edit) (04:05)
+02. Turn The Tide (CJ-Stone Radio Edit) (03:29)
+03. Turn The Tide (The Original Mix) (08:00)
+04. Turn The Tide (Airscape Remix) (07:24)(   Читать дальше...   )Жанр: Electronic, TranceПродолжительность: 00:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6354255CFC0F443142BC6F2FE6AB17765815B671
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278994   (767840) от 27.01.2019
 
 Stars As Eyes - Loud New Shit (2003) [FLAC|Lossless|tracks + .cue] <Leftfield, Abstract, IDM>
@@ -668,33 +695,6 @@ VA - Tales From Another World Vol.1 - South America (2019) [MP3|320 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADA4DA44C3D0069E6D3447D5DE682BF13C834CB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125249   (768759) от 14.04.2017
-
-VA - Pure Bliss Vocals: Spring (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ana Criado & Alan Morris - Border Line (Radio Edit)  3:15
-02.  Allen Watts & Katty Heath - Break Without The Pain (Radio Edit)  3:23
-03.  Audrey Gallagher & Kaimo K - Lullaby (Radio Edit)  4:02
-04.  Adip Kiyoi & Susie Ledge - Another Chance (Above & Beyond Club Edit)  3:44(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9F78812259C59ED58CB1CE630CDB0E79CD75F8
 ```
 
 

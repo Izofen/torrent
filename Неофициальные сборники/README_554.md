@@ -1,3 +1,30 @@
+###  Публикация: 1004970   (834158) от 08.04.2016
+
+VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834158.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mungo Jerry - In the Summertime
+002. Monte Montgomery - Little Wing
+003. Mighty Mo Rodgers - Black Paris Blues
+004. Mike & The Mechanics - Mea Culpa(   Читать дальше...   )Жанр: Blues RockПродолжительность: 12:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD977424A9F05CDC6455BCA8EA33107B63DB5ACD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005323   (834163) от 08.04.2016
 
 VA - Русский суперсборник поп музыки (2016) [MP3|256 кб/с] <Pop>
@@ -668,33 +695,6 @@ VA - Top 100: Deluxe Disco Party (2021) [MP3|320 Kbps] <Disco, Dance, Remasterin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C921131B5D32A77FB81098100C10E5D51E0D1CBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501150   (835045) от 10.10.2021
-
-VA - Soul Sugar (2021) [MP3|320 Kbps] <Funk, Soul, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835045.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Steoples - Alas Alice
-002. Timewarp Inc - Breakbit
-003. Eunice Haze - String Around My Heart
-004. Niles Philips feat. Tonkin - Nose Dive(   Читать дальше...   )Жанр: Funk, Soul, JazzПродолжительность: 08:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C80D55621E26DF5F41878CC3A22C60BB95EA93
 ```
 
 

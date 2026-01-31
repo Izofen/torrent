@@ -1,3 +1,84 @@
+###  Публикация: 1358155   (969701) от 07.02.2020
+
+VA - 100 Greatest Summer Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bob Marley & The Wailers - One Love / People Get Ready
+002. Madonna - Holiday
+003. Pharrell Williams - Happy
+004. DJ Jazzy Jeff & The Fresh Prince - Summertime(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBDFB13BC6B0D8CC636D48EBD3A3944394D9C4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976428   (969782) от 17.01.2016
+
+Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Lossless|image + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh, The Divorces! [04:15]
+ 02. Long White Dress [03:53]
+ 03. Hormones [03:07]
+ 04. Kentish Town [03:29](   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97834C4BF5FD8E09DD2D8FA2D99CAAB906480457
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358038   (970460) от 06.02.2020
+
+Modern Talking - The 1st Album (1985) [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_970460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.   You’re My Heart, You’re My Soul   [5:36]
+02.   You Can Win If You Want   [3:53]
+03.   There’s Too Much Blue in Missing You   [4:45]
+04.   Diamonds Never Made a Lady   [4:09](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07268526F9F6F87516A493383690B93BA0B594C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975992   (970760) от 16.01.2016
 
 VA - Disco Fever (2001) [FLAC|Lossless|tracks + .cue] <Disco>
@@ -626,87 +707,6 @@ Julio Iglesias - Crazy (1994) [FLAC|Lossless|tracks + .cue] <Soft Rock, Chanson,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A035800CB88232DDBAA1B603AF6462CC6DB2F22D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975115   (973213) от 14.01.2016
-
-Julio Iglesias - La Carretera (1995) [FLAC|Lossless|tracks + .cue] <Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Carretera (4:42)
-02. Cosas De La Vida (3:55)
-03. Baila Morena (3:50)
-04. Derroche (3:37)(   Читать дальше...   )Жанр: BalladПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D909E52CBEF9BEA951870F33B5B1288D99D2AC96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975069   (973297) от 14.01.2016
-
-Ronan Keating - Destination (2002) SACD [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I love it when we do (3:40)
-02. Love won't work (3:40)
-03. If tomorrow never comes (3:39)
-04. Come be my baby (3:50)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDA543A1BCF030E7D6ABE515B62821046CA92E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974852   (973357) от 14.01.2016
-
-Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpop, Electropop, Ska Revival>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detonator
-02. I Spy
-03. The Devil's Radio
-04. Nostalgia(   Читать дальше...   )Жанр: Britpop, Electropop, Ska RevivalПродолжительность: 00:34:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
 ```
 
 

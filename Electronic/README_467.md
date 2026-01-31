@@ -1,3 +1,30 @@
+###  Публикация: 1368036   (907214) от 21.03.2020
+
+Sofi Tukker - Treehouse (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Indie Pop, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuck They (03:04)
+02. Energia (03:07)
+03. Benadryl (03:16)
+04. Batshit (03:23)(   Читать дальше...   )Жанр: Dance-pop, Indie Pop, HouseПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AD883951A096EDD1509ACCF8A10B6E74938F521
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099237   (907337) от 31.01.2017
 
 Musical Mandalas - Mantra (2017) [MP3|320 Kbps] <Ambient>
@@ -665,33 +692,6 @@ VA - Faith In A Wet Season (2012) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BCAF3B7E3AC599EBEEF0F3EFAF46F86DEE962A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990814   (910064) от 26.02.2016
-
-Millimetric - Reconfiguration (2011) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, EBM>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smoking Kills (The Hacker Remix) (06:57)
-02. Dans Mes Yeux (Lyynk Remix) (05:11)
-03. Manic Depression (David Carretta Remix) (07:27)
-04. Colargol (Adriano Canzian Remix) (06:53)(   Читать дальше...   )Жанр: Techno, Electro, EBMПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3C094639010A57B8DDA74600DFF3FA62CD7490
 ```
 
 

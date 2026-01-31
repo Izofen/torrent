@@ -1,3 +1,84 @@
+###  Публикация: 1000136   (860648) от 24.03.2016
+
+AURORA (Aksnes) - All My Demons Greeting Me As A Friend (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Art Pop, Indie Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway
+02. Conqueror
+03. Running with the Wolves
+04. Lucky(   Читать дальше...   )Жанр: Alternative Art Pop, Indie Pop, SynthpopПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B514FA7E571CC8D1979F2723C9710A2112FF918B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 999824   (860719) от 24.03.2016
+
+Валерий Меладзе - Всё Так И Было (1999) [FLAC|Lossless|tracks + .cue] <Schlager, Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мечта (3:02)
+02. Всё так и было (3:28)
+03. Красиво (4:45)
+04. Рассветная (3:41)(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B4406AFA9C0836FD62698EFC3AB8EB0F15A757
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109094   (860750) от 26.02.2017
+
+Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hiroshima (6:52)
+ 02. ( Life may be ) A big insanity (4:30)
+ 03. Johnny wanna live (4:29)
+ 04. Lovelight in your eyes (5:29)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBA509042102224CDFFDFB04591B8A5EB0A4AAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109047   (860938) от 26.02.2017
 
 Player [1] - Game Over (1980) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
@@ -615,84 +696,6 @@ Tommaso Pini - #COSECHEDANNOANSIA (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E01A25D2693A439451EFC48B8DDFDCFE6958BA32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497473   (864877) от 22.09.2021
-
-Miko Vanilla - Vanilla (2021) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless LoveЖанр: DiscoПродолжительность: 01:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7889D9BE4AA6D79F642398662626857A736A77C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497542   (864945) от 22.09.2021
-
-Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay On The Line (4:20)
-02. Tonight Is The Night (5:02)
-03. Asi Como Asi (3:32)
-04. Little Maggie (3:56)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE3ECFD1B0C92A8A334898108CEC2B0DB9A91B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375578   (865257) от 14.04.2020
-
-SHLAKOBLOCHINA - FATALITY (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_865257.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Новая сила киски (feat. FEARMUCH)
-2. Самолетная
-3. Х**вый карпарат
-4. Не тревожь папайю(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE80673EB1C8367E2DE0C731FF5A20740D12199
 ```
 
 

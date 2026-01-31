@@ -1,3 +1,36 @@
+###  Публикация: 519141   (633314) от 08.07.2012
+
+VA - Сборник хороших хитов - Позитивный заряд - Версия 2 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633314.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Борис Шварцман - Мадемуазель
+002. Oksi - Made in China (Andi Vax remix)
+003. Лена Катина (Ex. T.A.T.U) - Never Forget You (Radio Version)
+004. Sebastian Ingrosso & Alesso - Calling (Original Instrumental Mix)
+005. Лион Feat. Макс Лоренс - Мой Милый Ангел
+006. 25-17 Feat. Дмитрий Ревякин - Корабль
+007. Virtual Vault Feat. Ice Mc - Think About The Way
+008. Митя Фомин - Хорошая Песня
+009. Ак$иС - Танцуй
+010. Денис Майданов - Ничего Не Жаль(   Читать дальше...   )Жанр: PopПродолжительность: 06:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69C40F00B3D1D11131D81503BED8EBE07B19F436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519387   (633452) от 08.07.2012
 
 VA - Midnight Club Драйв По Встречной 7 (2012) [MP3|256 кб/с]<Рор>
@@ -705,33 +738,6 @@ VA - Summer Is Coming House (2018) [MP3|320 Kbps] <Progressive, Groove, Funky, J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2B11771683E02171C26CEC706E036D6499E75AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034581   (634128) от 13.07.2016
-
-VA - Disco Hits - Generation One (2016) [MP3|320 Kbps] <Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boney M. - Sunny [03:59]
-02. Eruption - One A Way Ticket [03:36]
-03. ABBA - Voulez-Vous [05:08]
-04. Donna Summer - Hot Stuff [2:55](   Читать дальше...   )Жанр: DiscoПродолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C3DF52374C4EE4E82C70D83387BAD1723689218
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1444733   (1034217) от 03.02.2021
+
+The Persuaders - It's All About Love (1976) LP [MP3|320 Kbps] <Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Love (2:57)
+02. Count The Ways (4:58)
+03. I Need Love (4:15)
+04. Quickest Way Out (Vocal) (4:11)(   Читать дальше...   )Жанр: Disco, Funk SoulПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B886262AAB7C476F05300D84D4DB0E88C201586
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444943   (1034229) от 03.02.2021
+
+C.O.D. - Tears (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears (3:20)
+02. Groovin' (2:52)
+03. Good Time (3:21)
+04. I Just Want To Be With You (3:21)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59580E61C026A14B5EFE8654D6977BFCA7123E5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618182   (1034298) от 10.03.2023
+
+Miley Cyrus - Endless Summer Vacation (2023) [FLAC|Lossless|WEB-DL|tracks] <pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flowers [00:03:20]
+02. Jaded [00:03:05]
+03. Rose Colored Lenses [00:03:43]
+04. Thousand Miles (feat. Brandi Carlile) [00:03:51](   Читать дальше...   )Жанр: popПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E62164876C0AB013CD2E3D4E5EE832FE23CC36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444692   (1034435) от 02.02.2021
 
 VA - Modernation, Vol. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, EBM, Electro, Synthpop>
@@ -614,87 +695,6 @@ Birizdo I Am - Mademoiselle (2015) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:059EDA1053BAAC254F8144A622B26A9CA6A46781
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443713   (1035208) от 30.01.2021
-
-Birizdo I Am - Sound of Yesteryear (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Say I Love You (Maybe Baby 2) (4:38)
-02. Indiana Jones (6:13)
-03. Sound of Yesteryear (5:46)
-04. If I Could... (7:00)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FF36635BD7C09FC5A2DFFE7442A815F802A139
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443712   (1035215) от 30.01.2021
-
-Birizdo I Am - eRETROshock (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:58)
-02. Cannot Buy Happiness (5:54)
-03. Senorita (4:15)
-04. Diamond of My Heart (5:38)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEE11E7D52E327DA4255CAB4A1166AB24D9B3D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617281   (1035260) от 06.03.2023
-
-VA - We Love Italo (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Circle - Touch in the Night (5:19)
-02. D.White & DimaD. - 600 KM (4:17)
-03. Boys Next Door - Lady of the Night (The Night Affair Mix) (4:58)
-04. Bruce & Bongo - Geil (Ben Liebrand Mix) (7:09)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A3B54E42B92936A106C29410E98E8B7677DF22
 ```
 
 

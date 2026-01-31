@@ -1,3 +1,30 @@
+###  Публикация: 1318484   (494611) от 06.08.2019
+
+VA - Лучшие Trance треки Ver.9 (2019) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miroslav Vrlik - Sundown (Original Mix) 6:14
+02. Mark Sherry - Luminosity Curve (Extended Mix) 5:27
+03. Darren Porter feat. Ana Criado - Dream Like I Do (Extended Mix) 7:46
+04. Roman Messer feat. Cari - Serenity (Extended Mix) 6:26(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting Trance, Vocal TranceПродолжительность: 05:19:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF622A61AEEBE82C38E824AFF6096951BFCD79F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318467   (494692) от 06.08.2019
 
 VA - Лучшие Trance треки Ver.7 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -692,33 +719,6 @@ VA - Попсовая соточка MTV. Сборник 4 (2015) [MP3|256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B25112FD1A388C7DD6E794F60FDBD26B792FF9BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936234   (496295) от 11.09.2015
-
-VA - Hi-NRG Dance Classics (2 CD) (2015) [MP3|320 кб/с]<Hi-NRG, Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Flirts - Passion (Special Remixed Disco Version) [09:01]
-02. Fancy - In Shock [05:40]
-03. Joe Yellow - Easy Lovers (Mix Edit) [05:42]
-04. Eartha Kitt & Bronski Beat - Cha Cha Heels (Extended Mix) [06:41](   Читать дальше...   )Жанр: Hi-NRG, Italo DiscoПродолжительность: 02:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA8F5D7058D10437054C6A19CCE591CC576ADC2
 ```
 
 

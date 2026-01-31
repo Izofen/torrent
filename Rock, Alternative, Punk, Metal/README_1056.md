@@ -1,3 +1,327 @@
+###  Публикация: 1505455   (802942) от 28.10.2021
+
+Marshall - Old Rockers Never Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wake up America (00:04:56)
+02 - Coltan Wars (00:05:34)
+03 - Burn the Ships (00:04:31)
+04 - The Rope (00:04:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5A2DA6E5113A05E8F3BC750197BA25BC5D6986
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505547   (802944) от 28.10.2021
+
+Chicago - Love Songs (2005) [FLAC|Lossless|tracks + .cue] <Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're The Inspiration
+02. If You Leave Me Now
+03. Saturday In The Park
+04. Hard To Say I'm Sorry / Get Away(   Читать дальше...   )Жанр: Rock, Jazz RockПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEA7F572F3204F441CCE4CD974AA94F281D35EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505421   (802952) от 28.10.2021
+
+Asoka - 3 albums (1971-2009) [FLAC|Lossless|tracks + .cue] <Prog Rock, Hard Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа образовалась в начале 70-х в Мальмё, Швеция на обломках группы "Taste Of Blues", позже "Take Off". Трое из членов этих групп - Клас «Clabbe» Эрикссон, Роберт «Роббан» Ларссон и Патрик Эриксон объединились с братьями Кентом «Тджоббе» Бенгтссоном и Альфом «Даффи» Бенгтссон, сформировав группу Асока. В 1971 вышел одноимённый дебютный альбом (   Читать дальше...   )--------------------------
+
+01. Visst är det bättre, men int' är det bra (3:51)
+02. Jag gick mig åt körka (4:32)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic Rock |Продолжительность: 02:38:00 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57BBEC0224FC56663C22DD99462348EC5119DB1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505582   (802960) от 28.10.2021
+
+NDKH - If Heaven Is A Lie (2021) [MP3|320 Kbps] <Progressive Metalcore, Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  - Trauma , [02:22]
+02.  - Behelit (feat. FRCTRD) , [04:50]
+03.  - Adonis (feat. Child Of Waste) , [04:30]
+04.  - El Dj0ntos , [05:47](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F634691378AC302395E3A668296AF87F3D0DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505531   (802962) от 28.10.2021
+
+The Alan Parsons Project - Tales of Mystery and Imagination : Adgar Allan Poe (1976) Remastered, 1987,  Mercury [FLAC|Lossless|image + .cue] <Art Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_802962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alan Parsons добился высокой репутации студийного мастера совместной деятельностью с самыми выдающимися исполнителями на рубеже 60-70-х годов. Свою карьеру в студии он начал, когда Beatles взялись за работу над альбомом Abbey road. В 1971 году Alan появился в качестве звукорежиссера у Paul McCartney на записи Wild Life и Red Rose Speedway, однако свое настоящее "боевое (   Читать дальше...   )01. A Dream Within a Dream (instrumental) (4:13)
+02. The Raven (3:57)
+03. The Tell-Tale Heart (4:38 )
+04. The Cask of Amontillado (4:33)(   Читать дальше...   )Жанр: Art Rock, Prog RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD74E3E1BAC4227DAE2CA01804AC315BF2BE213E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505499   (803027) от 28.10.2021
+
+Kepa - Divine morphine (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Eldorado (00:04:44)
+02 - For Once (00:03:57)
+03 - Abyss (00:03:19)
+04 - Hard Time Killing Floor (00:03:45)(   Читать дальше...   )Жанр: Alternative, Indie Rock, Pop RockПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78F955B27DA31CD71DD540555039773E085D817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505699   (803029) от 28.10.2021
+
+The Dead Already - Nymphalis Antiopa (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Where Last You Burned [00:04:30]
+02 - Cold Lake [00:02:50]
+03 - Dead Already [00:04:06]
+04 - Dusk [00:05:12](   Читать дальше...   )Жанр: Gothic-RockПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEA3C96368F1F1DEB7C106772677F5DBB1A0F38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505692   (803031) от 28.10.2021
+
+Drifting Sun - Forsaken Innocence (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - King of the Country (00:11:36)
+02 - Insidious (00:08:08)
+03 - Dementium (00:09:10)
+04 - New Dawn (00:06:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A668E1FCC72B18B43B760AA53C31AF815A1138B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505705   (803033) от 28.10.2021
+
+6:33 - Feary Tales for Strange Lullabies: The Dome (2021) [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wacky Worms (00:03:54)
+02 - Holy Golden Boner (00:05:11)
+03 - Prime Focus (00:06:07)
+04 - Party Inc (00:06:31)(   Читать дальше...   )Жанр: Avant-Garde MetalПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539DB828F222607AC319B214E5217E79756E6300
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505569   (803036) от 28.10.2021
+
+Persona - Animal (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ghost [00:03:32]
+02 - Animals [00:03:56]
+03 - Beyond [00:03:33]
+04 - Hurricane [00:04:54](   Читать дальше...   )Жанр: Alternative-Metal, Nu-MetalПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5C1B76906EFE9512AEE6765CCD59B7ECDAC595
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505447   (803041) от 28.10.2021
+
+Galahad Electric Company - Soul Therapy (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Therapy (00:04:14)
+02 - All That Glitters (00:06:50)
+03 - Gone to Ground (00:05:29)
+04 - Fluidity (00:03:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB22FBB6AE083D93CDFB0548E598C1F4036FD2D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120312   (803081) от 30.03.2017
+
+Мумий Тролль - Морская (1997) 2017, NAVIGATOR, NR 0517 CDp [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вдруг ушли поезда (3:56)
+02. Девочка (3:29)
+03. Утекай (2:23)
+04. Морская болезнь (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2576ABFE4BF3173755B1B353B31F32A18731043
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120406   (803280) от 30.03.2017
 
 Body Count - Bloodlust (2017) [MP3|320 Kbps] <Rapcore, Hardcore>
@@ -365,330 +689,6 @@ Tyranex - Death Roll (2017) [MP3|320 Kbps] <Thrash Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09EA63428A83E158816F41CAB279699EAC8A3DC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120140   (803565) от 30.03.2017
-
-OCN (Ocean) - Wojna Swin (2011) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wojna Świń (03:04)
-02. Betonowy Mamut (03:36)
-03. Nienażarty (03:06)
-04. Kto Szybciej Pod Piach (02:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15059889DED33B13D396F003CFA144700F18B05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120222   (803647) от 30.03.2017
-
-Krypt - Preludes To Death (2008) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worthless
-02. Krypt
-03. I Am God
-04. Misfits(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3886F6EAA6FE19792B2AB1B0FB84C5EAA0A94878
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505234   (804137) от 27.10.2021
-
-Pink Floyd - The Division Bell (1994) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cluster One
-02. What Do You Want From Me
-03. Poles Apart
-04. Marooned(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55E4F114F645E03F90C21C929ABCF7E0ACC52BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198728   (804232) от 13.01.2018
-
-Pink Floyd - Wish Yоu Were Неre (1975) Reissue, Remastered, 2017, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On You Crazy Diamond (Parts 1-5) (13:33)
- 02. Welcome to the Machine (7:32)
- 03. Have a Cigar (5:08)
- 04. Wish You Were Here (5:35)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CEE0DB07353A377295107F53C77FFF41714FDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505214   (804243) от 27.10.2021
-
-Pink Floyd - Wish You Were Here (1975) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Shine On You Crazy Diamond (1-5)
-02 Welcome To The Machine
-03 Have A Cigar
-04 Wish You Were Here(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031512FC726724898709F58167330B0B55BAB620
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505300   (804263) от 27.10.2021
-
-Imagine Dragons - Origins (2018) Deluxe Edition [FLAC 2.0|44,1/24|WEB-DL|tracks] <Pop Rock, Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural [00:03:09]
-02. Boomerang [00:03:07]
-03. Machine [00:03:01]
-04. Cool Out [00:03:37](   Читать дальше...   )Жанр: Pop Rock, Indie Rock, Alternative RockПродолжительность: 00:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1386732929C6135333695ECB5311140A351F5499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384328   (804275) от 19.05.2020
-
-Ladies Ballbreaker - Whole Lotta Bobby (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Female AC/DC cover band:01. Hell Ain't a Bad Place to Be [4:21]
- 02. Whole Lotta Rosie [4:19]
- 03. Dirty Deeds Done Dirt Cheap [4:09]
- 04. Back in Black [5:23](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5BA367FF7327256E61F92EF4C3665FA4948F55D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505242   (804356) от 27.10.2021
-
-Pink Floyd - More (Original Film Sountrack) (1969) Remastered 2011, Pink Floyd Records [FLAC 2.0|192/24|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Cirrus Minor
-02-The Nile Song
-03-Crying Song
-04-Up the Khyber(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF0268A1BBAEBE2749F4897D9E9B1655BB8EFE06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505003   (804360) от 27.10.2021
-
-Black Sabbath - Vol. 4 (1972) Remastered 2021, Rhino Warner Records [FLAC 2.0|96/24|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wheels of Confusion / The Straightener (2021 Remaster) (7:47)
-02. Tomorrow's Dream (2021 Remaster) (3:09)
-03. Changes (2021 Remaster) (4:42)
-04. FX (2021 Remaster) (1:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3609191D02FC46336A88F070EA410DE58AA2E56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505440   (804363) от 27.10.2021
-
-Judas Priest - Reflections: 50 Heavy Metal Years Of Music (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Us Prey / Call For The Priest
-02. You Don't Have To Be Old To Be Wise
-03. Fever
-04. Eat Me Alive(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E47DB15FA94B43BE2EE9581C1BAEDE8C6B9DD37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505324   (804364) от 27.10.2021
-
-Franklin Zoo - Red Skies (2016) [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Caught (00:05:17)
-02. Noone's Slave (00:06:12)
-03. Burning Man (00:04:39)
-04. Red Skies (00:07:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20EEA00CCCC026962DD454AFE4D395B48FF6493
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010449   (804393) от 24.04.2016
-
-Woslom - A Near Life Experience (2016) [MP3|320 кб/с] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Underworld of Aggression
-02. A Near Life Experience
-03. Brokenbones
-04. Lapses of Sin(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C9548764B4C23CA90F8F6023160995AA782C7C7
 ```
 
 

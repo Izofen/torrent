@@ -1,3 +1,30 @@
+###  Публикация: 1400827   (715023) от 07.08.2020
+
+Washed Out - Purple Noon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Late (4:12)
+ 02. Face Up (4:09)
+ 03. Time to Walk Away (4:16)
+ 04. Paralyzed (3:21)(   Читать дальше...   )Жанр: Electronic, Indie Pop, ChillwaveПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00FDD4882AA554F26E3EA0DEF8A4C8E745282B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286103   (715085) от 01.03.2019
 
 VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
@@ -664,33 +691,6 @@ Erik K Skodvin & Rauelsson - A Score For Darling (2018) Sonic Pieces [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7AEEDDFF1F81E4B98F6789C95803F741708551E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219068   (717667) от 12.04.2018
-
-VA - Aly & Fila - Future Sound of Egypt 543 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Way Out West - Sunday Maybe (Original Mix)
-02. Darko De Jan feat. Esphyr - Undisclosed Ambitions (Dmitry Molosh Remix)
-03. Richard R - Sous Sol (Original Mix)
-04. Brigado Crew & Crisstiano - Persian (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136B17445E1E72DBF64B232AEB3462A595E5BDB5
 ```
 
 

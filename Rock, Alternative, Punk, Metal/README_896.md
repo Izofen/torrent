@@ -1,3 +1,333 @@
+###  Публикация: 907279   (639935) от 11.06.2015
+
+Hell Camino - Hell Camino (2015) [MP3|320 кб/с]<Southern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead And Gone
+02. Under It All
+03. Pleasure To Burn
+04. Rixie Road(   Читать дальше...   )Жанр: Southern MetalПродолжительность: 00:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50EB0AB39EBEB86D5FCFE4BA2EEEE04C2A7AE158
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907069   (639937) от 11.06.2015
+
+Tuatha De Danann - Dawn Of A New Sun (2015) [MP3|320 кб/с]<Progressive / Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We're Back
+02. Rhymes Against Humanity
+03. The Brave And The Herd
+04. An Ultimato(   Читать дальше...   )Жанр: Progressive / Folk MetalПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80ACD03C666F229842D0486F210BA2989292FFD7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536791   (639949) от 18.07.2013
+
+Therion - 13 albums (1991 - 2012) [MP3|320 кб/с]<Death Metal; Symphonic Metal; Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639949.jpg" />
+</div>
+
+
+###  Подробнее
+
+только студийные альбомы, без синглов, лайфов и миниЖанр: Death Metal; Symphonic Metal; Gothic MetalПродолжительность: 00:47:48
+
+01. Poupée de cire, poupée the son (2:51)
+02. Une fleur dans le coeur (3:03)
+03. Initials B.B (3:44)
+04. Mon amour, mon ami (4:35)
+05. Polichinelle (2:28)
+06. La Maritza (3:54)
+07. Soeur angelique (3:05)
+08. Dis-moi poupée (3:24)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2534DCA15801721F0A966BB93605DFDAC18DF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033197   (639994) от 10.07.2016
+
+Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves of Winter
+02. Friends and Enemies
+03. Animal Style
+04. Re-arrange(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F032614831BFEF608DA3E09C55C1528B13DAE1D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033262   (640004) от 10.07.2016
+
+Mech - Painkiller - Original Soundtrack (2004) Promo [FLAC|Lossless|tracks] <Industrial, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Painkiller    01:58
+02.  Morph In    03:06
+03.  Banshee    02:49
+04.  Playing Tarot    03:27(   Читать дальше...   )Жанр: Industrial, Heavy MetalПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26134C7D0912789873FAEB01A6D28F80E575A29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907268   (640032) от 11.06.2015
+
+Davy O'List - Second Thoughts (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Thoughts (08:55)
+02. To The Stars (04:07)
+03. The Emperor (08:21)
+04. Touch Wood (06:23)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1E1B06BA2D9235C706D613590A988E4482FA005
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907374   (640033) от 11.06.2015
+
+Quiet Prayer - The Failure of Religion (2015) [MP3|320 кб/с]<Heavy Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Heavenly Tragedy
+02. The End of Faith
+03. All Gods Dead
+04. Tragedy's Grin (Teach Your Children War)(   Читать дальше...   )Жанр: Heavy Metal, Melodic Death MetalПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1861926AD788EE44C1BC2C4A7164DFAECA7F0CD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 907277   (640036) от 11.06.2015
+
+Karakoram - Ov Shangri-La (2015) [MP3|320 кб/с]<Heavy / Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azathoth
+02. Sagarmatha
+03. En Sabah Nur
+04. Via Betelgeuse(   Читать дальше...   )Жанр: Heavy / Groove MetalПродолжительность: 00:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0B73058516BB46FC8B43007D132AFA45B9C54F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033180   (640107) от 10.07.2016
+
+Heart - Beautiful Broken (2016) [FLAC|Lossless|tracks] <Melodic Rock, Hard Rock, Folk Ballads>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Broken (2:26)
+02. Two (4:23)
+03. Sweet Darlin' (3:53)
+04. I Jump (3:52)(   Читать дальше...   )Жанр: Melodic Rock, Hard Rock, Folk BalladsПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D97DADF187F46BD5E8F6ECA174F866AFD989F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033300   (640208) от 10.07.2016
+
+Fall of Envy - Poetic Rage (2012) Special Edition [MP3|320 Kbps] <Rock, Alt Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Smoking Gun    05:21
+02.  For You    03:19
+03.  Poetic Rage    05:27
+04.  Wondering    03:36(   Читать дальше...   )Жанр: Rock, Alt RockПродолжительность: 00:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60D0C12F152BAF75EB525CF1E448DB5DD5613C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033241   (640213) от 10.07.2016
+
+Faithful Breath - Gold'N'Glory (1984) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't feel hate    03:45
+02.  King of the rock    03:17
+03.  Jailbreaker    03:27
+04.  A million hearts    04:56(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6473471EE60070204A4688766B9A54D73E7C13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033198   (640214) от 10.07.2016
+
+Kissin' Dynamite - Generation Goodbye (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Generation Goodbye
+02. Hashtag Your Life
+03. If Clocks Were Running Backwards
+04. Somebody To Hate(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F38356440463EDABEEC712112380DC2F6239066
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 217002   (640266) от 10.07.2010
 
 Grand Funk - We're An American Band (1973) remaster, 2010, Audio Fidelity [FLAC|Lossless]<Hard Rock>
@@ -382,354 +712,6 @@ Dream Widow, Foo Fighters - Dream Widow (2022) [FLAC|Lossless|WEB-DL|tracks] <Th
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95220A1CC1A7754CCA6A3599758C5C1D7302D776
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518740   (641161) от 04.07.2012
-
-Lita Ford - Living Like A Runaway (2012) [FLAC|Lossless]<Hard Rock/Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый альбом легендарной гитаристки и иконы хард-рока Литы Форд01. Branded (03:47)
-02. Hate (03:55)
-03. The Mask (04:09)
-04. Living Like A Runaway (04:47)
-05. Relentless (03:48)
-06. Mother (02:55)
-07. Devil In My Head (05:22)
-08. Asylum (04:34)
-09. Luv 2 Hate U (03:45)
-10. A Song To Slit Your Wrist By (03:55)(   Читать дальше...   )Жанр: Hard Rock/MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541932   (641213) от 05.04.2022
-
-Caught In Action - Devil's Tango (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - New York City (00:03:51)
-02 - Miracle (00:04:32)
-03 - Devil`s Tango (00:04:05)
-04 - Simple Man (00:04:02)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B3FD3127D33D70D33D7BEEC5788A1F83AEE94C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541960   (641215) от 05.04.2022
-
-The Hellacopters - Eyes Of Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Reap A Hurricane (00:03:15)
-02 - Can It Wait (00:01:59)
-03 - So Sorry I Could Die (00:04:21)
-04 - Eyes Of Oblivion (00:03:59)(   Читать дальше...   )Жанр: Hard Rock, Garage RockПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E78A37D0BB9BA3D3723D7C9202F64DCD5A0B889
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541947   (641216) от 05.04.2022
-
-Jon Spencer & The Hitmakers - Spencer Gets It Lit (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Junk Man (00:02:21)
-02 - Get It Right Now (00:02:24)
-03 - Death Ray (00:03:54)
-04 - The Worst Facts (00:03:08)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF9202DCD199CFC60CD3E01C0E240FC15534B4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518722   (641245) от 04.07.2012
-
-Sweet - New York Connection (2012) [FLAC|Lossless]<Classic Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New York Groove
-02. Gold On The Ceiling
-03. It's All Moving Faster
-04. New York Connection
-05. Shapes Of Things
-06. You Spin Me Right Round
-07. Because The Night
-08. Sweet Jane
-09. Blitzkrieg Bop
-10. On Broadway(   Читать дальше...   )Жанр: Classic Rock, Glam RockПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292962   (641280) от 01.04.2019
-
-Periphery - Periphery IV: Hail Stan (2019) [MP3|320 Kbps] <Progressive Metal, Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reptile (feat. Mikee Goodman of SikTh)
-02. Blood Eagle
-03. CHVRCH BVRNER
-04. Garden in the Bones(   Читать дальше...   )Жанр: Progressive Metal, Math MetalПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3BE8E5776C2E6FBCE42B7BB7D395D7B2B53456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292906   (641351) от 01.04.2019
-
-Jetboy - Born To Fly (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beating the Odds (Explicit)  (4:21)
-02. Born to Fly  (3:12)
-03. Old Dog New Tricks  (4:20)
-04. The Way That You Move Me  (4:11)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFA76AAF78D6A3955DE039CB805C2272DB07DAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292971   (641363) от 01.04.2019
-
-Pulchra Morte - Divina Autem Et Aniles (2019) [FLAC|Lossless|image + .cue] <Death, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give No More (3:06)
-02. Black Ritual (4:08)
-03. Soulstench (4:50)
-04. Ignis Et Tempestas (2:42)(   Читать дальше...   )Жанр: Death, Doom MetalПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF778CF887245326A2E06A4B3B3D6F2FD391783
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518727   (641372) от 04.07.2012
-
-Blackberry Smoke - The Whippoorwill (2012) [FLAC|Lossless]<Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Six Ways to Sunday - 3:27
-02. Pretty Little Lie - 3:35
-03. Everybody Knows She's Mine - 3:50
-04. One Horse Town - 4:16
-05. Ain't Much Left of Me - 4:59
-06. The Whippoorwill -  5:32
-07. Lucky Seven - 4:17
-08. Leave A Scar - 3:35
-09. Crimson Moon - 4:01
-10. Ain't Got the Blues - 4:04(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292925   (641376) от 01.04.2019
-
-Malakhim - II (2019) EP [FLAC|Lossless|tracks + .cue] <Rock, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641376.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In the Rays of a New Sun (05:20)
-2. Triumphant Spears (05:16)
-3. He Who Devours (05:15)
-4. Sworn to Satan’s Fire (04:42)Жанр: Rock, Black MetalПродолжительность: 00:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:060AE7BB51BE5B475B38D47B4FBD4CE70485673A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292934   (641385) от 01.04.2019
-
-Ringarë (Ringare) - Under Pale Moon (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641385.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Under Pale Moon (10:16)
-2. Sorrow Under Starry Sky (06:48)
-3. In Nocturnal Agony (03:54)
-4. Through Forest and Fog (18:11)Жанр: Black MetalПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603C3498B698505233042AAD80F9CAF021FC9A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518704   (641391) от 04.07.2012
-
-Joe Walsh - Analog Man (2012) [FLAC|Lossless]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_641391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Analog Man - 04:02
-02. Wrecking Ball - 03:45
-03. Lucky That Way - 04:14
-04. Spanish Dancer - 03:49
-05. Band Played On - 04:03
-06. Family - 04:21
-07. One Day at a Time - 03:18
-08. Hi-Roller Baby - 03:18
-09. Funk 50 - 01:57
-10. India  - 03:44Жанр: Classic RockПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-нет
 ```
 
 

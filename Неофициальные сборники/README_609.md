@@ -1,3 +1,30 @@
+###  Публикация: 988977   (917136) от 22.02.2016
+
+VA - Workout Chillout (2016) [MP3|320 kbps] <Lounge, Chill House, Soulful>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project feat. Solanos - Festa Do Sol (Funk edit)
+02. Enrico Donner feat. Theresa Thomason - Something New
+03. Zero Feedback - Rien Ne Va Plus (Don Gorda Project remix)
+04. Lazypojke - Why Always Me?(   Читать дальше...   )Жанр: Lounge, Chill House, SoulfulПродолжительность: 01:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC64552316FA4696C9B008CB873E47100E763839
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490678   (917138) от 21.08.2021
 
 VA - Music News vol.125 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,33 +695,6 @@ Sedativ - Sedativ (2002) [MP3|256 Kbps] <Post Punk, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A8A10EF4EB253D19A8AD2FA664018B3B4B66CEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096704   (917735) от 25.01.2017
-
-VA - Убойные хиты на Шансоне. Выпуск № 10 (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917735.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Лукоянов - Застава 3:17
-002. Николай Искуснов - Память Моя 3:51
-003. Хасан & Хусен Исмоиловы - Ты Половинка Моя 5:49
-004. Елена Светлая - Возвращайся Домой 5:54(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E4D96604FC732E0A3D634E7EF462072DAE2057
 ```
 
 

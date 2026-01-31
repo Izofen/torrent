@@ -1,3 +1,223 @@
+###  Публикация: 538378   (504391) от 28.08.2012
+
+Lichtmond (Лунный свет) - Erwachen Fruhlingstanzerin (2010) [MP3|256 кб/с]<NewAge, Ambiente, Chill Out, Trance>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erwachen
+02. Morgenrot
+03. Philosophy of Love
+04. Frühlingstänzerin
+05. Wenn des Mondes Strahl
+06. Der Orangenzweig
+07. Ich und Du
+08. Sounds of Distance
+09. Sonnenlicht
+10. Shine on me(   Читать дальше...   )Жанр: NewAge, Ambiente, Chill Out, TranceПродолжительность: 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7602585721B1D70C0F1CED62E1EE2509CDDEC22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539784   (504400) от 28.08.2012
+
+Mariza - 5 альбомов (2001 - 2010) [FLAC|Lossless]<Fado>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fado Vianinha (Fado Vianinha) [02:31]
+02. Promete, Jura (Fado Sergio) [03:53]
+03. As Meninas Dos Meus Olhos (Fado Alfacinha) [02:35]
+04. Mais Uma Lua (Fado Varela) [03:38]
+05. Dona Rosa (Fado Bailarico) [02:16]
+06. Ai, Esta Pena De Mim (Fado Ze Antonio) [02:33]
+07. Na Rua Do Silencio (Fado Alexandrino) [02:48]
+08. Rosa Da Madragoa (Fado Seixal) [01:54]
+09. Boa Noite Solidao (Fado Carlos Da Maia) [03:45]
+10. Desalma (Fado Alberto) [02:30](   Читать дальше...   )Жанр: FadoПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538422   (504499) от 28.08.2012
+
+Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504499.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.From Dawn
+2.Spirit of Silence
+3.Walking In The Air
+4.Dark Ages
+5.Signs of Love
+6.Paradise Lost
+7.Interlude
+8.Metamorphosis (Part 1)
+9.Inner World
+10.Metamorphosis (Part 2)(   Читать дальше...   )Жанр: Electronic, Enigmatic, New AgeПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933868   (504510) от 03.09.2015
+
+Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Within
+02. Dusty Rider
+03. Crying
+04. Fun Fare(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFA5421C642447A572A56612B12FF4EAFDCF7BE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540338   (504740) от 28.08.2012
+
+Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Ethereal Voices>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (01:06)
+02. Gloria (03:25)
+03. The Magic Will Return (03:36)
+04. By Morning Dawn (03:17)
+05. Hallelujah (03:36)
+06. A Stone Will Tell (04:05)
+07. Gone to Earth (04:33)
+08. World of Fantasy (03:22)
+09. Call of Immortality (04:04)
+10. Turn the Key (03:25)(   Читать дальше...   )Жанр: New Age,Celtic,World,Ethereal VoicesПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8FF75E4A7C0F4876FAAD28F839CC36F6DCE057
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540217   (504743) от 28.08.2012
+
+Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коллекция из 33 самых знаменитых песен (1947-1962)1. Diamonds are a girl's best friend (3:31)
+ 2. When I fall in love (2:59)
+ 3. One silver dollar (2:02)
+ 4. Happy birthda Mr. President (2:01)
+ 5. Do it again (3:12)Жанр: OSTПродолжительность: 01:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFEE3EFB60D7D3930D3961DCBFB4B8332E57042B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538006   (504839) от 28.08.2012
+
+Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In Pacific Ocean (Ethereal)
+02.Breath underwater (Ethereal)
+03.Flying in the deep blue (Ethereal)
+04.Across the Lagoon Nebula
+05.Son of the Sun
+06.Sailing the river Styx
+07.From the Beginning Till the End
+08.Touch of Blue light
+09.Ganymede
+10.K'ank'in(   Читать дальше...   )Жанр: New Age, Enigmatic, AmbientПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2622E9CA068BE2A2BAE908E3567827A0D89437C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538375   (504856) от 28.08.2012
 
 Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno, Ambient, New Age>
@@ -534,205 +754,6 @@ Medwyn Goodall - Medicine Woman (1992-2022) Collection 8CD [MP3|320 Kbps] <New A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B188FD2F09BE35ADF8402C89B88D46BBD3719CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562174   (509027) от 09.07.2022
-
-Malte Marten - Lifeline (2021) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Handpan>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky & Sand
-02. Breath
-03. Lifeline
-04. Lotus Unfolding(   Читать дальше...   )Жанр: Meditative, HandpanПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2393BFC6D6C726E4521FF4F32942889D6AAB3D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932411   (509362) от 29.08.2015
-
-VA - Easy Listening Music: Relaxing Piano Music, Vol. 1 (2015) [MP3|320 кб/с]<Relaxation, New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larry Dalton - Minuet in G Minor, Suite No. 1
-02. Shannon Devos - Ambiance of a Piano
-03. Peng Jing - Days of Sunshine
-04. Gonella - Notturno No. 3(   Читать дальше...   )Жанр: Relaxation, New AgeПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F35FC38EA887BA674287CC1B495E5C6EE89BEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377252   (509520) от 18.08.2011
-
-Franz Lambert - Pur (2001) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франц Ламберт (родился 11 марта 1948 года в Heppenheim, Германия) - немецкий композитор и органист. Он является страстным исполнителем на Хаммонд-органе, однако в последние годы предпочитает электронные органы Wersi . За свою карьеру он выпустил более 100 альбомов.
-Его первой заметным публичным выступлением было выступление в 1969 году в немецком телешоу Zum Blauen (   Читать дальше...   )01. El Torero 				(03:12)
-02. Baby Elephant Walk 		(03:27)
-03. Watermelon Man 			(03:05)
-04. Hello Josephine 			(02:45)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4289948189A70C6290BECF60E5C438487A2602D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537163   (510491) от 22.08.2012
-
-Kenny G and Rahul Sharma - Namaste (2012) [MP3|320 кб/с]<Smooth Jazz , Saxophone , World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste (05:26)
-02. Brhama-Vishnu-Shiva (05:29)
-03. Dance Of The Elephant God (04:54)
-04. Lotus Lovers (04:57)
-05. Transcendental Consciousness (05:13)
-06. Valley Of Flowers (05:58)
-07. Silsila (06:38)
-08. Om Shanti (04:10)
-09. Transcendental Consciousness (Walter A. Remix) (03:44)
-10. Namaste (Soul Seekerz Club Mix) (03:38)Жанр: Smooth Jazz , Saxophone , WorldПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537652   (510545) от 22.08.2012
-
-VA - Mystic & Relax Vol.1(2007) [MP3|192 кб/с]<Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Enigmatic, New Age, Electronic Music, Ambient, EthnoПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52214B19ED1535670C6BB5A5DE842289064ABBFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315791   (510698) от 22.07.2019
-
-Donald Quan - Zen Garden: Music For Relaxation (2013) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510698.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Arise (8:15)
-2.Sunrise at Guilin (7:57)
-3.Inward Reflections (4:58)
-4.Whispers in the Breeze (5:54)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8014C277E08C761E65A5EAC15D0F9E838809FE43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 537626   (511469) от 21.08.2012
-
-Various artists - The Muppets Original Motion Picture Soundtrack (2011) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Muppets & Joanna Newsom - The Muppet Show Theme
-02. Walter - Muppet Studios, I Can't Believe It
-03. Mickey Rooney, Feist, Amy Adam - Life's A Happy Song
-04. Jason Segel & Kermit - I Haven't Seen The Old Gang
-05. Gonzo, Fozzie, Swedish Chef, K - Pictures In My Head
-06. Walter & Kermit - We Drive
-07. Paul Simon - Me And Julio Down By The Schoolyard
-08. Amy Adams & 80's Robot - That Spells Reno
-09. The Moopets - Rainbow Connection
-10. Fozzie, Walter, Kermit & Dr. T - Welcome back(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071C38B229115B52A41F1474D51622B157E293DD
 ```
 
 

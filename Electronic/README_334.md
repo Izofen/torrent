@@ -1,3 +1,30 @@
+###  Публикация: 903645   (658169) от 31.05.2015
+
+VA - Cala Gracioneta (Pop Lounge Ibiza 2015) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risasi - How You Like [04:01]
+02. Jnr Robinson - Wanna Praise [03:47]
+03. Trevor Jackson - Can You Blame Me [04:47]
+04. Rocklike - Holding On - Acoustic Version [04:25](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAB31FE6ED78EAC89F4197253A2788B40377ECB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903655   (658172) от 31.05.2015
 
 VA - My Day (Chillout & Lounge) (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - A Shower of Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3E476AA8BF7959D035345BF1BD25E2C29125CF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903113   (659365) от 30.05.2015
-
-VA - Living For Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Mindfulness [05:51]
-02. Cane Garden Quartet - Stay Strong [05:37]
-03. Kaxamalka - You Take My Breath Away [05:40]
-04. Bonsugi - Himerius - Darkness Lounge Paradise Mix [07:01](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6C7971853857F7409387B4D81C741D1D2F958F
 ```
 
 

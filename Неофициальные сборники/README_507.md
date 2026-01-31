@@ -1,3 +1,30 @@
+###  Публикация: 1205635   (783515) от 10.02.2018
+
+VA - Record Super Chart #523 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Axwell & Ingrosso feat. Trevor Guthrie  -  Dreamer (Radiology Festival Mix)  4:11
+02.  GSPR  -  With You  4:17
+03.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+04.  Post Malone feat. 21 Savage  -  Rockstar  3:38(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97068FCDDC28C20171E53B42F363A9936B35C2DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204118   (783532) от 10.02.2018
 
 VA - JB-Mix 19 (2017) [MP3|320 Kbps] <Drum n Bass, Dub Step, Jungle>
@@ -667,33 +694,6 @@ VA - Music for You vol.4 (2020) [MP3|320 Kbps] <Rock, Metal, Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAAAE3359870B0F1296738FF1F862606D5D98263
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204922   (784223) от 07.02.2018
-
-VA - Зайцев.Нет: Февраль (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Сергия  -  Я хочу быть только с тобой  3:42
-02.  ТЕО и Ольга Рыжикова  -  По тонкому льду  3:10
-03.  X Ambassadors  -  Don't Stay  3:10
-04.  Sting & Shaggy  -  Don't Make Me Wait  3:34(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23798AF9C0DCE0D9A23B5CB4CFF3A078DD613A31
 ```
 
 

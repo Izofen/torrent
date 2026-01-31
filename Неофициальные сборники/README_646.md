@@ -1,3 +1,30 @@
+###  Публикация: 1354393   (987623) от 22.01.2020
+
+VA - Ремиксы 2К20 2 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987623.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Anarchy17 - Восьмое марта (Remix) (3:04)
+2.Armin Van Buuren ft. Sharon Den Adel - In and Out of Love ( ALEX FLEEV REMIX) (3:44)
+3.ASPARAGUSproject - Зима (4:19)
+4.FILATOV & KARAS feat. RADA & MARIA - ЛИРИКА (efh bootleg) (2:56)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 07:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7568D61DC5B12766318958D4BABB1F58568572FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1354405   (987631) от 22.01.2020
 
 VA - Emotions: Extended Deep House Party (2020) [MP3|320 Kbps] <Deep House>
@@ -716,39 +743,6 @@ VA - Ecoutez La Musique De L'amour (2020) [MP3|320 Kbps] <Chanson, Pop Lyric, So
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A3C32D506689D6D56254419F1107DBC56A9F876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610621   (990497) от 29.01.2013
-
-VA - Клубная Zона №3 (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_990497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Никита - Танец В Темноте (Andrey Keyton Official Remix) (Radio Edit)
-02. Слава - Люди Любят (Dj Vengerov Remix)
-03. Нюша - Ты Слишком Сильный (Ural Djs Dance Mix)
-04. Женя Вилль - Ты Для Меня (Alexey Frolof Remix)
-05. Martin Solveig - The Night Out (Madeon Remix)
-06. Rico Bernasconi - Hit The Dust '12 (Official Video Version)
-07. Амина - Дни-Недели (Dj Nariman Mix)
-08. Global Deejays - Hardcore Vibes (Club Edit)
-09. Karmin - Hello (Laidback Luke Radio Edit)
-10. Voodoo & Serano feat. Ceresia & Ron Carroll - Louder (Club Mix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9607608857BB6CF0394E2059AC292A361E165133
 ```
 
 

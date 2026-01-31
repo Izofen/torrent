@@ -1,3 +1,30 @@
+###  Публикация: 1410431   (436225) от 21.09.2020
+
+Gwar - Blood Of Gods (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War on GWAR (7:21)
+02. Viking Death Machine (4:16)
+03. El Presidente (4:21)
+04. IХll Be Your Monster (3:09)(   Читать дальше...   )Жанр: Thrash Metal, HardcoreПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96EE46A82EFD4242DC4706C1791C3A99BD07076A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410430   (436228) от 21.09.2020
 
 Drifter - Reality Turns to Dust (1988) [FLAC|Lossless|image + .cue] <Thrash Metal>
@@ -664,33 +691,6 @@ Thundermother - Black And Gold (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:122DC9E903715FF344C79100336E4722BF9DBF7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944664   (438325) от 08.10.2015
-
-All Time Low - Future Hearts (2015) Deluxe Edition [FLAC|tracks + .cue]<Pop-Punk, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satellite [2:25]
-02. Kicking & Screaming [3:26]
-03. Something's Gotta Give [3:09]
-04. Kids in the Dark [3:37](   Читать дальше...   )Жанр: Pop-Punk, Alternative RockПродолжительность: 00:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887BBB7DC23882108B2F563992F5308035B23A6B
 ```
 
 

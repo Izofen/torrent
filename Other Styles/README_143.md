@@ -1,3 +1,189 @@
+###  Публикация: 1197628   (812013) от 09.01.2018
+
+Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes, Instrumental, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ukon Kivi
+02. Lemmini March
+03. Sigurrine
+04. Mellow Praxis(   Читать дальше...   )Жанр: Cinematic Themes, Instrumental, ElectronicПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA2A9382F9E7CA24FF325D7105DD26AE279B6FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382890   (813459) от 14.05.2020
+
+Mike Oldfield - Light + Shade (2005) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quicksilver (5:56)
+02. Resolution (4:33)
+03. Slipstream (5:15)
+04. Surfing (5:36)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F78596288676D705A97157328687751BBD025F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197358   (813782) от 08.01.2018
+
+VA - Fetenhits - Latin (2017) [MP3|320 Kbps] <Kuduro, Bolero, Soca>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Fonsi - DespacitoЖанр: Kuduro, Bolero, SocaПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44AB1261140ECF281492C51BF824229919BB3EE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197695   (813918) от 08.01.2018
+
+David Hollandsworth - Voices of Peace (2018) [MP3|320 Kbps] <New Age, Ambient, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voices of Peace
+02. Wonder
+03. Walking on Air
+04. Thoughts of Home(   Читать дальше...   )Жанр: New Age, Ambient, Modern ClassicalПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527B61F4D9590DDA26252CCE18B18F31A1B8B9FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 777195   (814093) от 14.04.2014
+
+Yanni - Ultimate Yanni (2003) 2CD [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paths of water
+02. Marching season
+03. Reflections of passion
+04. Looking glass(   Читать дальше...   )Жанр: New Age |Продолжительность: 02:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD92B6398A4EC2661F19627324BAD3D3071AECA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504034   (814123) от 22.10.2021
+
+Irari (Irina Mikhailova, Ira Stein) - Esquisses (2004) [FLAC|Lossless|tracks + .cue] <Folk, Piano>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aj Mori
+02. Winter Light
+03. Peline
+04. Chereshko(   Читать дальше...   )Жанр: Folk, PianoПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F805F232CA01F18D608B5CE95214991780477FA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117940   (814761) от 24.03.2017
+
+VA - Horizon Zero Dawn (Original Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Flight - The Spreading Eclipse - Part 4 - Secrets Of The Earth (05:36)
+02. The Flight - The Demon Remade - Part 4 - Secrets Of The Earth (01:26)
+03. Joris de Man - Force Multiplication - Part 4 - Secrets Of The Earth (04:00)
+04. The Flight - Buried Shadow - Part 4 - Secrets Of The Earth (00:57)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 04:00:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3529BF234314CEA4A2E74057835E2844736A868F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007836   (814834) от 18.04.2016
 
 Максим Фадеев - Oil plant (2016) [MP3|320 кб/с] <Chillout, Electronic>
@@ -501,195 +687,6 @@ Back to Earth - The Journey to the Inner Island (2018) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:677C2A0C389AC8009E370F1298F2395EFF58B6D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007557   (817595) от 17.04.2016
-
-Flaer Smin - 2 альбома (2014-2015) [MP3|320 кб/с] <New Age, Enigmatic, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817595.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:19] 01. Flaer Smin - Learn To Live
-[04:34] 02. Flaer Smin - Fight For Life (Album Edit)
-[06:19] 03. Flaer Smin - Spacewalk
-[06:13] 04. Flaer Smin - Seven Lives(   Читать дальше...   )Жанр: New Age, Enigmatic, Electronic, AmbientПродолжительность: 01:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72318EA5D111E35904174FE35DF2C3D211DE108D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007915   (817737) от 17.04.2016
-
-VA - 50 ans de tangos (2002) [MP3|192 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817737.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lys Gauty — J'aime tes grands yeux
-002. Rafael Canaro — Paciencia
-003. Bianco Bachicha — Vidalita
-004. Gaden Robert — Un jour je te dirai(   Читать дальше...   )Жанр: TangoПродолжительность: 06:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E4F38BD7C532B6563AAB57253230C493FE209C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008216   (817746) от 17.04.2016
-
-VA - Los clasicos argentinos Tango Vol.09: Julio Sosa - El varon del tango (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carlos Gardel - Pompas
-02. Aldo Campoamor - Tapera
-03. Raul Iriarte - La noche que te fuiste
-04. Osvaldo Fresedo - El once(   Читать дальше...   )Жанр: TangoПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D1E1159839923788D9CFE576700DDB7A2EA1E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007155   (817933) от 17.04.2016
-
-Carlos Garo - Entrance To The Parallel Universe (2015) [MP3|320 кб/с] <New age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entering the Universe (1:32)
-02. Infinite Space (4:14)
-03. Desert (5:06)
-04. The World Keeps on Spinning (5:01)(   Читать дальше...   )Жанр: New age, EnigmaticПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E493B7C30689E04D67E40F6F6510400B93F751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007951   (817940) от 17.04.2016
-
-Back To Earth - The Book Of Silence (2015) [FLAC|Lossless|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Guide Me) Through the Loneliness    06:48
-02. The Book of Silence    04:54
-03. At the End of the Day    04:35
-04. Echoes from an Unknown Land    05:30(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:17:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F852B1DCB30C22B98032C7F9778A20AA267E2BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008137   (817949) от 17.04.2016
-
-Stamatis Spanoudakis - Bathed in the Sun (2016) [FLAC|Lossless|tracks] <New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Fleeing    03:56
-02. Blue Sound    04:45
-03. Angels’ Tear    05:25
-04. Bathed in the Sun    04:17(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B645955B96A6FC6D355D43354C3180028B196E81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007542   (818019) от 17.04.2016
-
-Monte Wang - The Wandering Accordion (2003) [FLAC|Lossless|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_818019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight    01:34
-02. As Dino Saluzzi as Morning    04:46
-03. Macchiato Floating    04:58
-04. The Subway    01:11(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3458B877352BB3B8044DDFF4DAF1F745B0A0A3F0
 ```
 
 

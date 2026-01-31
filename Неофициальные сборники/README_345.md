@@ -1,3 +1,30 @@
+###  Публикация: 1042739   (576713) от 14.08.2016
+
+VA - Get Ready Beats Vol.1: Finest Deep House Tunes (2016) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Weekend Sound - Strong
+02. D-Wax - Halifax
+03. Bes & Meret - Morgenstund - Tom Leeland Radio Mix
+04. Johnny Pana - Got You - Ghost Wire Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE1688104653F0AEC5204C3850BB307BAD5F4093
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042723   (576725) от 14.08.2016
 
 VA - German Top 50 Official Dance Charts (22.08.) (2016) [MP3|320 Kbps] <House, Progressive, Electro House, Dance, Club>
@@ -671,30 +698,6 @@ VA - Лучшее и Редкое от Ovvod7 - 1 (2018) [MP3|320 Kbps] <Pop, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5453751BDA1E579751CBD394078621C11A8061FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150626   (578012) от 16.07.2017
-
-VA - Summer Session 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Vocal House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Club House, Vocal House, DanceПродолжительность: 02:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15BCD93318AD014A2DB8ED50BEB659688999B8E
 ```
 
 

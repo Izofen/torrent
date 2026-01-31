@@ -1,3 +1,84 @@
+###  Публикация: 1366811   (918882) от 14.03.2020
+
+Boney M. - Their Most Beautiful Ballads (2000) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Carnival Is Over
+02. El Lute
+03. Somewhere In The World
+04. Where Did You Go(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8043837D2458EBB9322E94B7D656F9CCA6E3A33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988987   (918959) от 21.02.2016
+
+Arabesque - The Magic of Arabesque (2016) [MP3|320 kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Mr. Monkey 3:28
+02. Someone Is Waiting For You 4:04
+03. Six Times A Day 3:12
+04. Buggy Boy 2:56(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A4DECB2A38CB748FEA2C0FAB98D834921EEFB8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367077   (918969) от 14.03.2020
+
+VA - 90s Guitar Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918969.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All Saints - Under the Bridge
+2. Jannik - The Power of Love
+3. a-ha - Move to Memphis
+4. Tori Amos - God(   Читать дальше...   )Жанр: PopПродолжительность: 02:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C841E7E5505FFB12D1BA4E6B35455E50214814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988675   (918996) от 21.02.2016
 
 Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Rock, R'n'B>
@@ -617,87 +698,6 @@ The Spotnicks - The Premium Best Collection (2006) Compilation, 2CD [MP3|320 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D27B7A3D77B162F0A5ADC939272ECB10BDFDCFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988029   (922729) от 19.02.2016
-
-VA - I Saw You Dancing (2001) S&V #03/2001 [FLAC|Lossless|tracks + .cue] <Euro-Disco, Disco, Mambo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaft - Mucho Mambo (3:29)
-02. Q-pow! - Summer Holiday (3:19)
-03. Loona - Bailando (3:36)
-04. Crystal Waters - 100% Pure Love (4:40)(   Читать дальше...   )Жанр: Euro-Disco, Disco, Mambo, Euro HouseПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1263673D52D449F83CA47E20DB30F7F0917736
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095804   (922800) от 22.01.2017
-
-VA - Brazilian Lifestyle (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922800.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rosferra Marsalis, Toni Macles - Bossa de Saudad 4:34
- 2. Nandy Xavier - Garota de Vitine 4:37
- 3. Joao Martins - Don't Speak (Bossa Style) 4:05
- 4. Sergio Augusto - Nao Ha Nada Como Aqui 3:07(   Читать дальше...   )Жанр: Pop, Bossa Nova, LatinПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4141AED490D76DEB7DD1549FAB376790BEC302C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176681   (923065) от 26.02.2010
-
-Ирина Аллегрова - Дискография (1994-2008) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 02:42:09
-
-1.Всё сначала (5:26)
-2.Не верю (дуэт с Григорием Лепсом) (4:05)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

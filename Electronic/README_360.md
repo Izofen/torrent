@@ -1,3 +1,30 @@
+###  Публикация: 1219068   (717667) от 12.04.2018
+
+VA - Aly & Fila - Future Sound of Egypt 543 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Out West - Sunday Maybe (Original Mix)
+02. Darko De Jan feat. Esphyr - Undisclosed Ambitions (Dmitry Molosh Remix)
+03. Richard R - Sous Sol (Original Mix)
+04. Brigado Crew & Crisstiano - Persian (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136B17445E1E72DBF64B232AEB3462A595E5BDB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218879   (717670) от 12.04.2018
 
 Bradley Sean Alexander - Lowered Expectations (2018) Polar Sea Recordings [FLAC|Lossless|tracks+.cue] <Ambient>
@@ -662,33 +689,6 @@ VA - LNG Music: Nick Skitz - Skitzmix 55 (2019) [MP3|320 Kbps] <House, Progressi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3DE0DC230334BA52C3EC4C6F370BF2165509D42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285813   (719062) от 27.02.2019
-
-Voin Oruwu - Etudes From A Starship (2019) Kvitnu [FLAC|Lossless|WEB-DL|tracks] <Experimental, Ambient, IDM, Leftfield>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titan (02:14)
- 02. Rising (03:12)
- 03. Blur Planet (04:35)
- 04. Source (02:12)(   Читать дальше...   )Жанр: Experimental, Ambient, IDM, LeftfieldПродолжительность: 00:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753B54A9A3B0D45A9B903DFE41093DBF76A2D2A9
 ```
 
 

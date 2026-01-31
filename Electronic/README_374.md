@@ -1,3 +1,30 @@
+###  Публикация: 1282490   (745406) от 12.02.2019
+
+Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teryan 1 (08:02)
+ 02. Arpa River (07:03)
+ 03. Opposition Crowd (07:17)
+ 04. Teryan 1 (Saphileaum's Second Sky) (05:51)Жанр: TechnoПродолжительность: 00:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4A50F897DB3EAA446E378A12054A61413B7008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282422   (745407) от 12.02.2019
 
 Conforce - Machine Conspiracy (2010) Meanwhile [FLAC|Lossless|tracks+.cue] <Techno, Electro, Dub Techno>
@@ -656,33 +683,6 @@ VA - Poolside Miami 2018 (Mixed by Kraak & Smaak) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73A8B39F7703855681B45388D22CA0EA2BAFBA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216852   (747856) от 01.04.2018
-
-Ashterra - Other Earth (2018) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747856.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Arctic (5:20)
-2. Taiga (4:52)
-3. The Paradox (5:49)
-4. View (4:59)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA623638097EA44E8199A14830914027F354333
 ```
 
 

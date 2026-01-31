@@ -1,3 +1,84 @@
+###  Публикация: 972278   (981798) от 06.01.2016
+
+Ottawan - Grand Collection (2006) [FLAC|Lossless|image + .cue] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco (English Maxi Version) (05:00)
+ 02. You`re OK (05:12)
+ 03. Hands Up (Give Me Your Heart) (04:51)
+ 04. Crazy Music (05:28)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F74BAB3CD62D30F40B945FE1200285F122EC70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 741835   (981899) от 04.01.2014
+
+Татьяна Снежина - Я возвращаюсь скоро (2013) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Листопад
+02. Мне не станет больнее
+03. Я тебя покидаю, прощай
+04. Давай о нас не говорить(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF6C3BBEBE3B783FC3881D5F7273FFBC3E31654
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972689   (981932) от 06.01.2016
+
+WeAreCastor - Invade & Disco (2014) [MP3|320 кб/с] <Alternative Pop, Nu Disco, Funky>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (original mix) (01:07)
+02. Invade & Disco (original mix) (06:15)
+03. Ulrik’s Bicycle (original mix) (03:57)
+04. Projects (original mix) (03:50)(   Читать дальше...   )Жанр: Alternative Pop, Nu Disco, Funky,Продолжительность: 01:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADE894D59BF1FD1641CF148A6079DA0573C7ADC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355744   (982098) от 27.01.2020
 
 Bad Boys Blue - Heart & Soul (Recharged) (2018) [MP3|320 Kbps] <Disco, Pop>
@@ -644,87 +725,6 @@ magnet:?xt=urn:btih:27F926C4BA3FEFC9E98024E9B62770FC69C32778
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:686550F270CCE2C0A48D9E4DF3B7089A81F04FFB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354583   (986980) от 23.01.2020
-
-VA - 100 Hits Winter (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986980.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Lorenzo - Damdamdeo
-02. Dadju - Compliqué
-03. Black M - Mon beau-frère(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95471D2CFAD0D7B6A5EFD73F2B6432FDDF46EF01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354582   (986981) от 23.01.2020
-
-VA - Rock'N'Roll HitMix  Superhits Non-Stop (1999) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' David - Golden Age Of Rock 'N' Roll (0:56)
-02. Little Richard - Lucille (0:54)
-03. Rick Nelson - Poor Little Fool (1:12)
-04. Pat Boone - Speedy Gonzales (1:26)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E4CA9822A917C169FA3BAA5DA524D331F58DE16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354807   (987028) от 23.01.2020
-
-На-На - Вся жизнь - игра (1998) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дождик [03:19]
-02. Любимая [03:35]
-03. Игра [03:19]
-04. В первый раз [03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF8DC933D3D10D56C7079CDE876D98A3AC10E61
 ```
 
 

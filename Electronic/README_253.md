@@ -1,3 +1,30 @@
+###  Публикация: 1406807   (470992) от 05.09.2020
+
+Black Magnet - Hallucination Scene (2020) [MP3|320 Kbps] <Industrial Metal, Alternative Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470992.jpg" />
+</div>
+
+
+###  Подробнее
+
+1﻿. Divination Equipment (2:06)
+2. Anubis (4:22)
+3. Punishment Map (1:34)
+4. Neuroprophet (3:42)﻿(   Читать дальше...   )Жанр: Industrial Metal, Alternative MetalПродолжительность: 00:25:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357B5852E943C994144CB2AF7BB78A121A361AAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406994   (471187) от 05.09.2020
 
 VA - Dj Darroo - Harder Trance (2020) [MP3|320 Kbps] <Hard Trance, Trance>
@@ -685,33 +712,6 @@ VA - Healing Zen Yoga (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:574434C95F1DDA708F7FDB39CDF2C0FDA49E340E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320143   (473370) от 17.08.2019
-
-VA - Bikini Beach, Vol. 2 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amisso - Resistance 05:41
-02. Beatzshocker Mirjami - Leila 02:40
-03. CYNC - Sounds of Emotions 04:03
-04. Dirty Wild - Flame 04:02(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C94B37C6CB2432AA4B573C7AAAF918FE2193010
 ```
 
 

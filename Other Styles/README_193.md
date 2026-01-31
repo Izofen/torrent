@@ -1,3 +1,192 @@
+###  Публикация: 1457216   (1020925) от 15.04.2021
+
+Erotic Sex Audio XXX - Hot and Sexy Ringtones (2010) 2CD [MP3|320 Kbps] <Ringtones, Pop, Sexy>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot & Sexy Ringtone #1
+02. Hot & Sexy Ringtone #2
+03. Hot & Sexy Ringtone #3
+04. Hot & Sexy Ringtone #4(   Читать дальше...   )Жанр: Ringtones, Pop, SexyПродолжительность: 00:09:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A71A29777F620914EF9836D7BCCBCC032DB134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461444   (1021609) от 11.04.2021
+
+Robbie Robertson - Collection (1994-1998) 2 альбома [MP3|320 Kbps] <Native American, New age, World music>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coyote Dance
+02. Mahk Jchi (Heartbeat Drum Song)
+03. Ghost Dance
+04. The Vanishing Breed(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CA63657DC91890BB748F824EACF02B8AEE1123
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461086   (1021759) от 10.04.2021
+
+VA - Best Of Green Hill Music: The Piano Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stan Whitmire - Bella's Lullaby - Solo Piano Theme From Twilight (3:50)
+02. Jim Brickman - Valentine (3:33)
+03. David Hamilton - 'S Wonderful (4:04)
+04. Beegie Adair - I Get Along Without You Very Well (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E083FCBA33CF6D901F5960ED7A0AFA2591742F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461023   (1021783) от 10.04.2021
+
+Mariza - Mariza Canta Amalia (2020) [FLAC|Lossless|image + .cue] <Fado, Bossanova>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Com Que Voz
+02. Barco Negro
+03. Lagrima
+04. Formiga Bossa Nova(   Читать дальше...   )Жанр: Fado, BossanovaПродолжительность: 00:38:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034118732F10F3C347899346F9CE0DB802FFDD2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461373   (1021789) от 10.04.2021
+
+Yuval Ron - Four Divine States of Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving-Kindness (Metta) (feat. Chloe Pourmorady)
+02. Compassion (Karuna) (feat. Estrella Morente)
+03. Vicarious Joy (Mudita) (feat. Deva Premal)
+04. Equanimity (Upekkha) (feat. Uyanga Bold)Жанр: World, MeditativeПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11C4317C0BB05C58FE57A331E2D1E59AADBE31E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459157   (1023284) от 01.04.2021
+
+Francis Goya - Europe Vol. 5: Latino (2006) [MP3|320 Kbps] <Flamenco, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nostalgia (2:47)
+02. Solamente una vez (3:07)
+03. La Playa (3:58)
+04. Quando, quando, quando (2:33)(   Читать дальше...   )Жанр: Flamenco, Easy ListeningПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0D66069B3E269E900D59255818D5C7DD2C64DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459161   (1023305) от 01.04.2021
+
+Анастасия Бардина - GRAN-d SURPRISE (2006) [MP3|320 Kbps] <Guitar, Acoustic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вечера в парках Парижа (5:29)
+02. Фанданго (6:26)
+03. Соната для скрипки-соло №1 (6:47)
+04. Вальс 'Мечта' (2:05)(   Читать дальше...   )Жанр: Guitar, AcousticПродолжительность: 01:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A817F8B23976B2D27E5D91B184B9E89E1332A683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457766   (1023462) от 31.03.2021
 
 Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Original Motion Picture Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Score>
@@ -508,196 +697,6 @@ Beirut - 9 альбомов (2006-2019) [FLAC|Lossless]<Balkan Folk, World, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34580A29F2AE22A73343F8621266D5EE287BCAA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453745   (1026576) от 13.03.2021
-
-Empyrium - 7 Studio Albums (1996-2021) 7xCD [FLAC|Lossless|image + .cue] <Neofolk, Doom Metal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026576.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкая группа Empyrium образовалась в 1994 году. Первые два альбома группы представляли собой смесь фолка, дум и блэк-метала, за ними последовали два альбома акустического неофолка.
-После выхода альбома 2002 года "Weiland" группа решила прекратить запись: «Empyrium исследует природную мистику с 1994 года, и через 8 лет мы чувствуем, что движемся дальше (   Читать дальше...   )1996 - A Wintersunset
-1997 - Songs Of Moors And Misty Fields
-1999 - Where At Night The Wood Grouse Plays
-2002 - Weiland(   Читать дальше...   )Жанр: Neofolk, Doom MetalПродолжительность: 06:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA967EA77FD027B18D668AECF9C0350DC40E345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453725   (1026709) от 12.03.2021
-
-Blackmore's Night - Nature's Light (2021) [FLAC|24/48|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon December
-02. Four Winds
-03. Feather in the Wind
-04. Darker Shade of Black(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5976BD001EC0B363107C86EDD76CE9BC60C988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 850361   (1026713) от 12.03.2021
-
-Baulta - 4 Альбома + 1 EP (2011-2021) [MP3|320 кб/с] <Post-Rock, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026713.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - Deeply Sorry To Interrupt Your Megalomania
-2012 - That's My House You're Living In
-2013 - The Greatest Solos Of Mr. Bellini Vol.1 (EP)
-2014 - Any Fool Can Regret Yesterday(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 03:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB933EF93D097821F7EB766904FEDD3E881C5AC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453672   (1026734) от 12.03.2021
-
-Marc Canham - I Care A Lot (2021) Original Motion Picture Soundtrack [FLAC|Lossless|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Just Doing My Job (03:43)
-02 - Liquidated (01:08)
-03 - Pull The Trigger (01:18)
-04 - Welcome Home (03:01)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6715DF7D5DAF15E9D589B2A776580068B634151F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452789   (1027363) от 08.03.2021
-
-Romantic Piano Music Masters - Спокойное фортепиано: Инструментальные баллады, Женский день (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Спокойное фортепиано (2:35)
-02. Как ты (2:41)
-03. Жажда (2:51)
-04. Вальс ветра (2:38)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAC142A5A72D415E89DC576727346FE65C417003
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452519   (1027705) от 06.03.2021
-
-Wardruna - Kvitravn (2021) [FLAC|Lossless|tracks + .cue] <Dark Folk, Ambient, Nordic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synkverv (4:51)
-02. Kvitravn (6:18)
-03. Skugge (6:38)
-04. Grá (3:32)(   Читать дальше...   )Производство: Sony Music, Columbia, Fimbulljóð Productions – 19439724702Жанр: Folk, Ambient, Nordic Folk, Dark FolkПродолжительность: 01:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB676E7919376F6373E0F53F6FB8EA3FF017919
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 19013   (1027979) от 04.03.2021
-
-The Best of Paul Mauriat 10 CD
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027979.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-
-01 BEGIN THE BEGUINE '90
-02 EBB TIDE '72(   Читать дальше...   )Жанр: InstrumentalПродолжительность: ~12:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38A60833FE6116FD23FCE31085A78404CEACC2AB
 ```
 
 

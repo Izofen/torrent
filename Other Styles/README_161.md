@@ -1,3 +1,196 @@
+###  Публикация: 994376   (891577) от 07.03.2016
+
+Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystical Istanbul
+02. The Golden Horn
+03. Evening Prayer
+04. Orange Sky(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA92468514816D0B6B410B9B032C5725E6168DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994398   (891606) от 07.03.2016
+
+Richard Laurence - A Busy Couple of Years (2016) [MP3|320 кб/с] <Classical, New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life Changes Key
+02. Final Words from a Best Man
+03. Song for Grey Skies
+04. Rainbow Moonstone(   Читать дальше...   )Жанр: Classical, New Age, PianoПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4D6AA5B019071EEEAC418C9C5240115F75F3E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994266   (891618) от 07.03.2016
+
+Golana - Feather On The Wind (2000) [FLAC|Lossless|image + .cue] <New Age, International>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer To You  04:54
+02. All Good Medicine  06:03
+03. Allaluia  03:50
+04. Mojava Morning  03:52(   Читать дальше...   )Жанр: New Age, International, InstrumentalПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A64B838E7C3A7DDDCE6C8CC46CF8196B0A5FB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371009   (891872) от 30.03.2020
+
+Keiichi Okabe - NieR Orchestral Arrangement Album - Addendum (2020) Soundtrack /2CD/Limited Edition [FLAC|Lossless|tracks + .cue] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien Manifestation (J'Nique Nicole Vocals)
+02. Peaceful Sleep
+03. Vague Hope (Emi Evans Vocals)Жанр: ScoreПродолжительность: 00:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D029FCD30A538693A768A904B3D6BAD71B747955
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 776937   (892010) от 08.02.2017
+
+Ennio Morricone - Collected (2014) 3CD Box Set [MP3|320 кб/с]<Soundtrack, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892010.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эннио Морриконе родился 10 ноября 1928 года в семье профессионального джазового трубача Марио Морриконе и домохозяйки Либеры Ридольфи, он был старшим из 5 детей.01. The Fascist (Theme) (From the movie 'The Fascist') (2:04)
+02. A Fistful Of Dollars (Theme) (From the movie 'A Fistful Of Dollars') (1:48)
+03. Bullets Don't Argue (Theme) (From the movie 'Bullets Don't Argue') (2:34)
+04. A Gun For Ringo (Theme) (From the movie 'A Gun For Ringo') (2:19)(   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 03:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8738D6B1C3F3229CC0016BCD762BF04CB7451A20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371159   (892019) от 30.03.2020
+
+Alexander Ryabtsev (Александр Рябцев) - Europe: Space Theme Vol. 12 (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_892019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Иванович Рябцев родился 12 марта 1963 году в семье военнослужащего. Окончил радиотехнический факультет Новороссийского высшего инженерного морского училища. Начинал работать на судах загранплавания Новороссийского морского пароходства начальником радиостанции. В 1998 году заочно окончил судоводительский факультет Новороссийской государственной морской академии (   Читать дальше...   )01. Make A Wish (4:50)
+02. In Harmony (3:32)
+03. On The Crest Of A Wave (4:06)
+04. Between The Past And The Future (4:48)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CFB1D28204DB0152A3B1565C50E32ED6273B2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 184483   (892336) от 18.03.2010
+
+Omnia - 8 альбомов (2001-2007) [MP3|192-256 кб/с]<Folk, Medieval, Celtic, Pagan, Neofolk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Wytches Brew 4:09
+02. The Raven 9:07
+03. Allive! 4:45
+04. Were You at The Rock? 1:04
+05. Richard Parkers Fancy 3:39
+06. The Elven Lover 4:24
+07. Satyr Sex 4:10
+08. Equinox 5:21
+09. Fairy Tale 5:07Жанр: Folk, Medieval, Celtic, Pagan, NeofolkПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637928   (892368) от 04.04.2013
 
 Тюдоры 1-4 сезоны / The Tudors 1-4 season (2007-2010) [MP3|320 кб/с]<Soundtrack>
@@ -573,212 +766,6 @@ VA - Война (2002) [FLAC|Lossless|image + .cue] <Rock, Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:053A0FF2DE26F1493B317278A9D9E73167CCD7D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993977   (893973) от 06.03.2016
-
-Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Go. Loslassen
-02. Mindfulness. Achtsamkeit
-03. Serenity. Gelassenheit
-04. Inner Freedom. Innere Freiheit(   Читать дальше...   )Жанр: New age, MeditationПродолжительность: 01:01:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4D5E8AF0017F80AA4402857067A30071363481
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993880   (893979) от 06.03.2016
-
-Marco Beltrami - Gods Of Egypt (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gods Of Egypt Prologue (02:39)
-02. Bek And Zaya (00:45)
-03. Market Chase (00:29)
-04. Coronation (02:25)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B662776492F8B395285C708CC8A9F9F1D3C283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 183917   (894035) от 17.03.2010
-
-Faun - Acoustic - Buch Der Balladen (2009) [MP3|320 kbps]<Medieval Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Prolog
-02. Sigurdlied
-03. Herr Heinerich
-04. Sen Polska
-05. Tanz Uber Die Brucke
-06. Brynhildur Tattur
-07. Nahtegal
-08. Jahrtausendalt
-09. Der Wilde Wassermann
-10. Belle Dame Sans Merci(   Читать дальше...   )Жанр: Medieval FolkПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761844   (894073) от 01.03.2014
-
-Сергей Хмелевский - World of Tanks (2014) [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 - По машинам!
- 02 - Выдвигаемся на позицию
- 03 - Марш стали
- 04 - Руины Химмельсдорфа
- 05 - "Эй, ухнем!"
- 06 - Уличный бой
- 07 - Заря над Перевалом
- 08 - Горная тропа
- 09 - Читая "Звёзды и полосы"
- 10 - Воины Нового Света(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:43:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E460C931835F3B472A5E82B9FB20E82584053DD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101514   (894440) от 07.02.2017
-
-VA - Blade / Блэйд (1998) Unofficial [MP3|127-320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - Bad Moon Rising
-02. Polygon Window - UT1 - Dot
-03. Shonen Knife - Ah Singapore
-04. DJ Krush - Yeah(   Читать дальше...   )Жанр: Unofficial SoundtrackПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0F4C100B5900CABAAE9C6280FDDAD3AF7EFC1C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 761643   (894496) от 01.03.2014
-
-Randall McClellan - The Healing Music of Rana (2014) /Limited Edition/ [FLAC|Lossless]<Ambient, Meditation, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Vol. I
-01. Sirius (41:50)
-02. Celestial Lake (41:36)
-Vol. II
-01. Mountain Frangrance (20:42)
-02. Across Clouds of Distance Past (20:30)
-Vol.III
-01. Solarwindplay (26:55)
-02. Crystal Morning (26:24)Жанр: Ambient, Meditation, New AgeПродолжительность: 04:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA29EFB4C29E70FB6776573FEEB7022E2BF8D96
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100094   (894629) от 07.02.2017
-
-Pryapisme - Diabolicus Felinae Pandemonium (2017) [MP3|320 Kbps] <Instrumental Avant-garde Metal, Electronic, Experimental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Un Max De Croco
-2. La Boetie Stochastic Process
-3. 100 % Babines, Pur Molossoïde!
-4. A La Zheuleuleu(   Читать дальше...   )Жанр: Instrumental Avant-garde Metal, Electronic, ExperimentalПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71253919298C4B275E65A9DA846078567F8527DD
 ```
 
 

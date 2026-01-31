@@ -1,3 +1,28 @@
+###  Публикация: 1274051   (795071) от 05.01.2019
+
+Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road To Beijing (05:53)
+ 02. Road To Beijing (Raffaele Attanasio LFJ Version) (04:16)Жанр: Techno, Deep HouseПродолжительность: 00:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697C307082D9964A129CCAA0E7079073D4CE398C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031490   (795108) от 28.05.2020
 
 Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Collabs, Zeitgeber) - Discography (1990-2020) Warp Records, NovaMute [FLAC|Lossless|tracks+.cue] Techno, IDM, Ambient
@@ -667,34 +692,6 @@ glo - Discography 8 Releases (2015-2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BB40C1E9CEC09A3DAA4A5EDD2318A27AEFC4A41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011778   (796304) от 28.04.2016
-
-'Til Tuesday - 3 Albums (1985-1988) [MP3|320 кб/с] <Electronic, Pop Rock, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская группа, сформированная в Бостоне в 1982 году.
-Их хит "Love in a Vacuum" (альбом 1985года) года входил в горячую десятку и получил изрядное количество AirPlay на радиостанциях.Список альбомов:
-01. 1985 - Voices Carry
-02. 1986 - Welcome Home
-03. 1986 - Count Three & PrayЖанр: Electronic, Pop Rock, Synth-popПродолжительность: 02:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:985C670C210B2C9E39A5B8309A47E8B4C7188317
 ```
 
 

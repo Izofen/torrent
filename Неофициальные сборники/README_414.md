@@ -1,3 +1,30 @@
+###  Публикация: 1137413   (667768) от 26.05.2017
+
+VA - Новая Русская Дискотека Vol.7 (2017) [MP3|256-320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Сергей Бирюков - Летние дни 4:14
+02.  Юрий Федотов и A-NET - Будь со мной 3:46
+03.  Студия-80 - Солнце на ладони 4:28
+04.  SpuTniK Project - Дождиком 4:28(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C511B75C4C86F37A5B66121E777583B1E15636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137368   (667876) от 26.05.2017
 
 VA - Русский отрыв. Сборник № 8 (2017) [MP3|256 Kbps] <Pop>
@@ -662,33 +689,6 @@ VA - Spotify - Argentina Top 50 (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A39DCA497D2DFB5FBCE9499A2CD933B45BF45176
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137010   (668691) от 25.05.2017
-
-VA - Дискотека 2017 Dance Club Vol. 164 от NNNB (2017) [MP3|320 Kbps] <Pop, House, Trance, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668691.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DJ Sava feat. Barbara Isasi - Nena 3:25
-002.  Mahmut Orhan feat. Eneli - Save Me 2:52
-003.  Antonio Jose & Cali Y El Dandee - Tu Me Obligaste 3:24
-004.  ATB - Connected 3:36(   Читать дальше...   )Жанр: Pop, House, Trance, Club, DanceПродолжительность: 17:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1123D58748FEC2EDAD7B15A6A8CD2B1E71256E25
 ```
 
 

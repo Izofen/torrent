@@ -1,3 +1,30 @@
+###  Публикация: 1144379   (625921) от 23.06.2017
+
+VA - Visceral 050 (2017) [MP3|320 Kbps] <Progressive House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625921.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. James Warren - Visceral 050 (Part 1) (01:04:36)
+2. Audio Units - Grainspace (original mix) (06:27)
+3. Jobe - Eunis (original mix) (08:11)
+4. Tone Depth - Eros (original mix) (08:39)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 04:34:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F54CC785263415F56C79FE1A06114F16CEAC2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144376   (625930) от 23.06.2017
 
 VA - Sonar 2017/Take Your Way 01 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
@@ -669,33 +696,6 @@ Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FB12840C395431343D83E826EEB4E46DC122C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144373   (627744) от 22.06.2017
-
-VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627744.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ultrasound - Energy (original mix) (08:23)
-2. Steve Mola - Tropical Hotel (Following Light remix) (07:25)
-3. Stergios - Regeneration (Sunshine mix) (08:15)
-4. J-Sevilla - Delphinus (Ivanshee remix) (07:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B0AF058AF36807F441724A53CE9B252AF5A7489
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1553627   (579876) от 28.05.2022
+
+VA - Deep Night Deep House 3 (2022) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eelke Kleijn feat. Nathan Nicholson - Taking Flight (4:47)
+02. Eldar Stuff, Tim Cosmos - Morning (5:43)
+03. Rusez1 - Just Thoughts (3:16)
+04. dndm - In My Dreams (5:07)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 05:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C354141FA01CF722785728DA9A99CA7783BDC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360693   (579911) от 08.07.2011
 
 VA - Зарубежные клубные новинки vol.8 (2011) [MP3|320 kbps]<Club>
@@ -683,30 +710,6 @@ VA - Strong Sound Pressure (2016) [MP3|245-320 Kbps] <Club, Progressive, Funky, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC950885A4205B5EE558217BFB97F481ECCBD216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359068   (580740) от 07.07.2011
-
-VA - Блатные 90-е. Ностальгия (2011) [MP3|256 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ШансонПродолжительность: 06:25:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA2B86DA424FD3A377DB953BF221A0FE71410FA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1844415   (1050111) от 26.12.2025
+
+VA - Ori Uplift - Uplifting Only Episode 672 (Ori's Top 52 Vocal Uplifters of 2025 - Part 1) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evebe feat. Danny Claire - Everything (Timo Pralle Remix)
+02. Roman Messer & Cari - Serenity (Alex M.O.R.P.H. Remix)
+03. Bodgan Vix and Adara - Weightless
+04. Xijaro & Pitch with Susana - Beauty In My Scars(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A11B0C76C02DB683C5CBD4DD432348CBD6F80CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845071   (1050325) от 29.12.2025
 
 VA - Happy New Year Party 2026 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -322,7 +349,7 @@ magnet:?xt=urn:btih:FAF90D3B20D99249EA2EFBB36AD5664EDC556BF4
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845644   (1050762) от 
+###  Публикация: 1845644   (1050762) от 02.01.2026
 
 VA - Armin van Buuren - A State Of Trance 1258 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 
@@ -349,7 +376,7 @@ magnet:?xt=urn:btih:7349712F31BE645ECBA5523148BD93D965547270
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845648   (1050763) от 
+###  Публикация: 1845648   (1050763) от 02.01.2026
 
 VA - Ori Uplift - Uplifting Only Episode 673 (Ori's Top 52 Vocal Uplifters of 2025 - Part 2) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
@@ -430,7 +457,7 @@ magnet:?xt=urn:btih:D4A08B674BC0B364EA2A9CFCA1A6FBD81EEF93D9
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845960   (1051063) от 
+###  Публикация: 1845960   (1051063) от 04.01.2026
 
 Oliver Heldens - Heldeep Radio 600 (2026-01-02) [MP3|320 Kbps] <Techno>
 
@@ -457,7 +484,7 @@ magnet:?xt=urn:btih:154BE52961AC4FB0B7E1C1B82FD7EA8FAF4004E3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845950   (1051084) от 
+###  Публикация: 1845950   (1051084) от 04.01.2026
 
 VA - Summer Melody - Best of 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 
@@ -484,7 +511,7 @@ magnet:?xt=urn:btih:E266D991B95A7E812747C350B0DDD399F6DD5018
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845862   (1051097) от 
+###  Публикация: 1845862   (1051097) от 04.01.2026
 
 Symphony Of Unity - Tomorrowland Belgium (2025) [MP3|320 Kbps] <Progressive House, Dance, Electro Pop>
 
@@ -511,7 +538,7 @@ magnet:?xt=urn:btih:3E1BB9D055839883C754E8FB8BC1586732E63AC3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845927   (1051100) от 
+###  Публикация: 1845927   (1051100) от 04.01.2026
 
 VA - Christmas Deep House: Best for the Year 2026 (2025) [MP3|320 Kbps] <Deep House, Dance, Club>
 
@@ -538,7 +565,7 @@ magnet:?xt=urn:btih:C37FFB320107397C357F88F2F590E8C67450CF9D
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845928   (1051101) от 
+###  Публикация: 1845928   (1051101) от 04.01.2026
 
 Lane 8 - Winter 2025 Mixtape (2025-12-17) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
 
@@ -667,33 +694,6 @@ Kasablanca - Higher Resolution (Side B) (2025)Жанр: Progressive House, Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AF9EC8F0C6AC4B19CFF98527C045363FF441FCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846171   (1051230) от 06.01.2026
-
-Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techno, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwell – Sanctuary (Intro Edit)
-02. Hardwell & Olly James – Lights Out
-03. Hardwell & Olly James vs. Hardwell vs. Tyla – Flatline vs. Spaceman vs. Water (Hardwell Mashup)
-04. Zedd & Foxes vs. Domeno & Michael Sparks – Clarity vs. Locked & Loaded (Hardwell Mashup)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 01:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB447124C4115CDE9DD401A73BCF3C2AC24AE69
 ```
 
 

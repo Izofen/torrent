@@ -1,3 +1,83 @@
+###  Публикация: 1288750   (694077) от 12.03.2019
+
+VA - All The Hits In Discotheque (1977) 2LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Blood - Soul Dracula (3:01)
+02. Banzaii - Chinese Kung Fu (3:16)
+03. Hot Blood - Baby Frankie Stein (4:53)
+04. Jimmy James - Disco Fever (4:13)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7F736155F2BD6466E199377C6EA3F9FDA55DF7A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288781   (694079) от 12.03.2019
+
+Camouflage - A Disco Symphony (1977) LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Disco Symphony (14:49)
+02. Take A Ride (9:15)
+03. Bee Sting (7:42)Жанр: DiscoПродолжительность: 00:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47F9AA7BF6F8B1B46D1879F781E95513CAF6E24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403157   (694143) от 18.08.2020
+
+V.A. - Another Side Of Fancy Megamix (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grant Miller - Colder Than Ice
+02. Elvin - You Set My Heart On Fire
+03. Psychic Interface - Dancin' In The Night
+04. Grant Miller - California Train(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEAFF6D638B8ED185F27FF887F0C122392C15ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403162   (694148) от 18.08.2020
 
 Чёртово колесо инженера Ферриса - Funeral Sex (2020) [MP3|320 Kbps] <Power Pop, Dance Punk>
@@ -614,87 +694,6 @@ Londonbeat - In The Blood (1990) [FLAC|Lossless|tracks + .cue] <Euro House, Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4CAD0173D829B4617E249884036B3E5B9D453F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211566   (696215) от 19.06.2010
-
-Блестящие - 7 альбомов (1997-2006) [MP3|320 kbps]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_696215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:07:09
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221281   (696611) от 23.04.2018
-
-ВИА Песняры - Продолжнение (2018) [MP3|320 Kbps] <Retro, Pop>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696611.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Я лiцвiн
-3. Разам быць
-4. Сокал(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AE5B68DE0EDA524A4EC9BC208A8B0C0CC298E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221171   (696729) от 23.04.2018
-
-VA - Ultimate Disco (4CD) (2018) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Earth, Wind & Fire - September
-02. The Jacksons - Blame It On The Boogie
-03. Heatwave - Boogie Nights(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:17
-
-01. The Jacksons - Shake Your Body (Down to the Ground)
-02. Luther Vandross - Never Too Much(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1F2CAFFC13364462AE2CF3436A8CF781C31213
 ```
 
 

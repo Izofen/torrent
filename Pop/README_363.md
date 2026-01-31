@@ -1,3 +1,84 @@
+###  Публикация: 1611810   (1040754) от 13.02.2023
+
+VA - The Best 80s Album In The World...Ever! (2022) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Simple Minds - Don't You (Forget About Me) (Remastered 2001)
+02. Roxy Music - More Than This (Remastered_1999)
+03. Nik Kershaw - Wouldn't It Be Good
+04. Grace Jones - Slave To The Rhythm(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFCFB58C6AF88C23611A89EC0E393D775C6A4D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611532   (1040755) от 13.02.2023
+
+VA - Romantic Collection. Aria (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebecca Lucker "Aria"–	Arianna
+02. Sarah Brightman–	Anytime, Anywhere
+03. Karen Cummigs–	Ave Maria
+04. Yuri Ogawa–	L'Amour Est Un Oiseau Rebelle "Carmen"(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 01:19:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A616A034807CC3C8FD293224A578267F6FBE120
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611724   (1040761) от 13.02.2023
+
+VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 2 (2005) [OGG Vorbis|480 Kbps] <Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1040761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hervé Roy–	Emmanuelle
+02. Francis Lai, Nicole Croisille–	Un Homme Et Une Femme
+03. Nicoletta–	Mamy Blue
+04. Mireille Mathieu–	Une Histoire D’amour(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75174D7F46102E44729E10D448E6E56D64602A84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611665   (1040801) от 13.02.2023
 
 VA - I Singoli di Sanremo 2023 (2023) [MP3|320 Kbps] <Pop>
@@ -615,87 +696,6 @@ VA - Танцы на колёсах (1998) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48127F866A3C00AA7650BB9CC4D9471845D2CA23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610450   (1042329) от 07.02.2023
-
-Валерий Ободзинский - Звёзды советской эстрады. Хиты Хиты 60-70х (2009) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мелодия
-02. Восточная песня
-03. Белые крылья
-04. Вечная весна(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EA1E37A9119753909C0FED9304B769993145D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610463   (1042355) от 07.02.2023
-
-Араик Бабаджанян - Звёзды советской эстрады. Хиты 60-70х (2010) [MP3|320 Kbps] <Советская эстрада, Ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Как живёте-можете
-02. Люди, чаще улыбайтесь
-03. Дорога любви(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E267F0DC23771B2DB5A649A30403AA9EB1FC27C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610086   (1042400) от 07.02.2023
-
-The J. Geils Band - Freeze Frame (серия "Другие восьмидесятые") (1981) [MP3|320 Kbps] <Rock, New Wave, Dance Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freeze-Frame
-02. Rage In The Cage
-03. Centerfold
-04. Do You Remember When(   Читать дальше...   )Жанр: Rock, New Wave, Dance RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A967A2142F4AF3133800D316D612DE8441E162
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1110081   (855669) от 01.03.2017
+
+VA - Deep House Republic Vol.2 (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855669.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andres Newman - Children - Deeper Mix 3:50
+002. ArtSpace - Far Away - Paradise Mix 4:11
+003. KTB - Another Day in Paradise - Highpass Remix 4:53
+004. Rico Van Basten - Take on Me 3:10(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816B983AD47C31D04E6B2891808D42A5701D71C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109944   (855680) от 01.03.2017
 
 VA - Ibiza Beach House Club Royale (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -664,33 +691,6 @@ VA - Trance In Space Vol.3 (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF5684BEE6A24634A12EE25AB5EB94FFCC66689
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109502   (857445) от 28.02.2017
-
-VA - New York Deep Vibes: 2017 Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857445.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. J-Key - Octopus 4:09
-002. Tabula Rasa - Hashtag Stop - Code Remix 5:19
-003. Minimal Duo - Low Profile 5:00
-004. Tabula Rasa - Cocktail Party 4:55(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504A12372CC1D0ED7AC1AA3BAF840CFC5C52ED57
 ```
 
 

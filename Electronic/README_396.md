@@ -1,3 +1,30 @@
+###  Публикация: 1391190   (781404) от 19.06.2020
+
+Boris Brejcha - Cocoloco (Live Stream Part 2) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocoloco (8:02)
+ 02. Eternity (7:12)
+ 03. Ducktape (7:35)
+ 04. Heaven Trip (6:57)(   Читать дальше...   )Жанр: Electronic, Tech House, MinimalПродолжительность: 00:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983D6DF90A93D7A4ADCF5F56873D8086D3EB329A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391301   (781415) от 19.06.2020
 
 Burn in Noise - We Stand (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Trance>
@@ -666,33 +693,6 @@ VA - Quadrophobia V.1 (1998) Pendragon Records [FLAC|Lossless|tracks+.cue] <IDM,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4194BD44A9239A6B66413A3C696DE6205454A073
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390920   (782260) от 17.06.2020
-
-James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_782260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikola Melnikov & Max Sorokin - Sun Wakes Up Earlier Than All (Mixed) (04:59)
-02. Nordfold - Trondheim (Mixed) (04:22)
-03. Nikola Melnikov & Max Sorokin - Pandawa (Mixed) (03:49)
-04. Rezident - Pure (Mixed) (04:04)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297937A22264F215BBA54AA124A65F01D7B1A8C1
 ```
 
 

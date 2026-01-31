@@ -1,3 +1,324 @@
+###  Публикация: 1310789   (545241) от 26.06.2019
+
+The Cat Empire - Stolen Diamonds (2019) [FLAC|Lossless|tracks + .cue] <Funk, Alternative, Reggae>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kila (03:48)
+02. Stolen Diamonds (04:22)
+03. Oscar Wilde (03:45)
+04. Ready Now (03:14)(   Читать дальше...   )Жанр: Funk, Alternative, ReggaeПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4AD8AC281C060EA9F0D2A163A1B03D401E110A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238592   (545319) от 31.07.2018
+
+Андрей Князев (Король и Шут) - Гимн Шута (2016) LP [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545319.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие песни Андрея Князева из альбомов группы «Король И Шут»1. Гимн Шута
+2. Ром
+3. Тайна Хозяйки Старинных Часов
+4. Некромант(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6BE9CE35C0C70BCD454392832C517C3B43DE62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238646   (545324) от 31.07.2018
+
+Smokie - Discover What We Covered (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everytime You Go Away 04:16
+02. Hungry Eyes 03:55
+03. Who'll Stop the Rain 02:43
+04. When You Walk in the Room 03:29(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345A07D531A77F46FCCE0672893D8B460B0CE169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238661   (545389) от 31.07.2018
+
+Slade - Slade In Showplace (Dover, NJ) Jul 30, 1976 (bootleg) (1976) [MP3|320 Kbps] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear Me Calling (5:39)
+02. Get On Up (6:34)
+03. Scratch My Back (3:53)
+04. Take Me Back Home (4:52)(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 01:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C9001F2C31F81D852C61B42BF7F728170BFFCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238630   (545451) от 31.07.2018
+
+Slade - The Showplace, Dover NJ, July 30, 1976 (1976) Live [FLAC|Lossless|tracks] <Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear Me Calling  (5:39)
+ 02.  Get On Up  (6:34)
+ 03. Scratch My Back  (3:53)
+ 04. Take Me Back Home (4:52)(   Читать дальше...   )Жанр: Glam RockПродолжительность: 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:829481BA0C9B04268ABFB56839051E667E132B50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048883   (545459) от 03.09.2016
+
+Joe Cocker - The Album Recordings 1984-2007 (2016) 14CD Box Set [FLAC|Lossless|image + .cue] <Rock, Blues, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545459.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данный бокс-сет вошли 14 дисков, включающие 12 студийных альбомов, один концертный альбом и бонусный диск с сингловыми композициями, песнями с американских вариантов альбомов, которые не вошли в европейские издания и пара -тройка саундтреков.Жанр: Rock, Blues, Pop RockПродолжительность: 12:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591EF87F71FE2BFB91F864FA62254493B6F464A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238583   (545505) от 31.07.2018
+
+Eldritch - Cracksleep (2018) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracksleep
+02. Reset
+03. Deep Frost
+04. Aberration of Nature(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A5022C0AF50261B3359724DE87EB719AC60755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 695243   (545665) от 30.08.2013
+
+Ministry - From Beer To Eternity (2013) Special Fanbox Edition [MP3|320 кб/с]<Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545665.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hail To His Majesty (Peasants)
+02. Punch In The Face
+03. PermaWar
+04. Perfect Storm(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F268B5461723698098328EB7B4DAD1ED1B08A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048720   (545680) от 03.09.2016
+
+Epica - The Divine Conspiracy (2007) [FLAC|Lossless|image + .cue]<Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indigo - Prologue 2:05
+02. The Obsessive Devotion 7:13
+03. Menace Of Vanity 4:13
+04. Chasing The Dragon 7:40(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A8FC8897D6217272DC4D4D339BDCF05E127A3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048684   (545740) от 03.09.2016
+
+Rocking Rolling Living Loving Band - Thousand Percent Touch (2016) [MP3|320 Kbps] <Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thousand Percent Female     (04:36)
+02. Your Name Must Be Love     (02:41)
+03. High Mountain     (03:54)
+04. Rock'n'rolla Stumbler     (02:41)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910A489D50CBC49F0532341949D8720EE64ED550
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048756   (545751) от 03.09.2016
+
+VA - Shine 3 (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545751.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pulp - Common People [04:11]
+ 2. Oasis - Roll With It [04:01]
+ 3. Supergrass - Alright [03:01]
+ 4. The Lightning Seeds - Marvellous [03:43](   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7090C7178DB0DF6751050FCE0F0CA47D0BC4E0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048651   (545795) от 03.09.2016
+
+The Quireboys - Twisted Love (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Torn & Frayed
+02. Ghost Train
+03. Killing Time
+04. Twisted Love (Album Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E719F6ABECEECE23EE9C755C8EB890259B5C759
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048621   (545803) от 03.09.2016
 
 Stereoside - Hellbent (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock, Post-Grunge>
@@ -368,329 +689,6 @@ Blues Pills - Golden Treasures (2016) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51626D3980D07B57CAE7834A8558F5D9366FFBE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048435   (546530) от 02.09.2016
-
-Anthony Green - Pixie Queen (2016) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Be Fine (4:38)
-02. I'm Not Holding You Back (3:48)
-03. Will It Be (2:08)
-04. A Reason to Stay (3:29)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A620DF63E24CB5EC5FD61D2F72217B33CFAC2392
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048552   (546531) от 02.09.2016
-
-Unwritten Rulz - Life of the Party (2014) [MP3|256 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disappeared
-02. Gone Crazy
-03. Hey Girl
-04. Chamber(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:26:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51836071CEAD4E83E2FEB76E31633A736F04881B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048518   (546532) от 02.09.2016
-
-Unwritten Rulz - Burn It Down (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Striking Matches
-02. Burn It Down
-03. Everyday
-04. Hayseed(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99CFCA99E3D3D0D2C2C7A7DCAD8426932E9C3A40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048360   (546533) от 02.09.2016
-
-Shotgun - Dallasian Rock (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Star Queen 03:10
-02. In The Music 04:15
-03. Seems Like You Would Understand 02:38
-04. Play The Game 03:31(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F98660F9A4E99E7D4346390A287B501A47491131
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048570   (546583) от 02.09.2016
-
-Unwritten Rulz - Filter Thru the Static (2012) [MP3|256 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dig Ya
-02. Hold On
-03. Feel Me Now
-04. Silent Scream(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0171DEFC35A61DA66DDEB59D2B1B950BD5DB8F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694667   (546681) от 29.08.2013
-
-Popa Chubby - Universal Breakdown Blues (2013) [FLAC|Lossless]<Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don't Want Nobody (4:20)
- 02. I Ain't Giving Up (4:37)
- 03. Universal Breakdown Blues (4:42)
- 04. The Peoples Blues (8:47)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF0FB76D69BB253F21B2730C7877C62CBD45F487
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310512   (546962) от 24.06.2019
-
-Guesch Patti - Labyrinthe (1988) EMI France [APE|Lossless|image + .cue] <Pop Rock, Synthpop, Chanson, 80s>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Be Must The Queen (4:21)
- 02. Triangle (4:40)
- 03. Etienne (4:16)
- 04. Backstage D'une Star (1:59)(   Читать дальше...   )Жанр: Pop Rock, Synthpop, Chanson, 80sПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4661E9DDF3B49536B24C88DA66EA61E6B29EDFF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310535   (547018) от 24.06.2019
-
-Accuser - Dependent Domination (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Presentiment 01:00
-02. Beneath Your Dignity 06:02
-03. Torn to Pieces 03:17
-04. Desolate Shape 05:39(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:290A77ABFC1D4D75ABD50319D63B287FF4426151
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238346   (547025) от 29.07.2018
-
-Mono Inc. - Welcome to Hell (2018) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Heart of the Raven (3:59)
- 02. Welcome to Hell (4:23)
- 03. Long Live Death (3:45)
- 04. Risk It All (5:37)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 01:27:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52779CD597DE5E97F525B8C2E23390AE48ABE18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238390   (547027) от 29.07.2018
-
-VA - Rock Road Trip: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Alternative, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547027.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. The Troggs - Wild Thing (Edit) 2:26
-02. Free - All Right Now (Single Version) 4:12
-03. The Velvet Underground - I'm Waiting For The Man 4:38(   Читать дальше...   )Жанр: Rock, Alternative, Hard Rock, Pop RockПродолжительность: 06:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D044F1374B8E1EF47B03C735A833EB8EFE1BA16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238409   (547070) от 29.07.2018
-
-King Company - Queen Of Hearts (2018) Japanese Edition [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547070.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Queen Of Hearts (4:12)
- 2. One Day Of Your Life (4:14)
- 3. Stars (4:24)
- 4. Living In A Hurricane (3:58)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF141B02DEED605AF92E7B83421F066037054794
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238341   (547075) от 29.07.2018
-
-Icon - 4 альбома (1984 - 1989) [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Icon - американская группа heavy metal / glam metal, созданная в 1979 году, расформированная в 1990 году. Ревормировалась в 2008 году, в настоящее время состоит из трех участников классического состава: Dan Wexler (guitar), Stephen Clifford (lead vocals) и John Aquilino (guitar), а также Dave Henzerling (bass) и Gary Bruzzese (drums). Началось все в 1981 году со (   Читать дальше...   )1984 - Icon
-1985 - Night Of The Crime
-1987 - An Even More Perfect Union (2009)Жанр: Hard Rock, GlamПродолжительность: 03:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC8198F6D928DD3947FA44A608662049F3AD433
 ```
 
 

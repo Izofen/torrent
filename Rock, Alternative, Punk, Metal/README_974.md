@@ -1,3 +1,327 @@
+###  Публикация: 1284511   (728650) от 21.02.2019
+
+Dream Theater - Distance Over Time (2019) [MP3|320 Kbps] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728650.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Untethered Angel
+2. Paralyzed
+3. Fall Into The Light
+4. Barstool Warrior(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B8D1592BC070680031595051CBFC70A5292F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128229   (728668) от 24.04.2017
+
+Chickenfoot - Best + Live (2017) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728668.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chickenfoot — американская хард-рок-супергруппа, в которую входят двое бывших участников Van Halen — вокалист Сэмми Хэгэр и бас-гитарист Майкл Энтони, гитарист-виртуоз Джо Сатриани и барабанщик Red Hot Chili Peppers Чад Смит.
+Относительно статуса группы как «супергруппы» Сэмми Хэгэр сказал: «Мы не супергруппа, нам нравится болтаться вместе, а музыка — бонус к этому.» (   Читать дальше...   )CD1 - Best
+CD2 - LiveЖанр: Hard RockПродолжительность: 02:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5956E82794ECCABAC65E871CFD4DF632B24D3390
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530460   (728696) от 11.02.2022
+
+Amorphis - Halo (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Northwards
+02. On The Dark Waters
+03. The Moon
+04. Windmane(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBFE553D3C15376DBBE7B5A85FEB3FCF617AD53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284288   (728764) от 21.02.2019
+
+ZZ Top - Rancho Texicano: The Very Best Of ZZ Top (2004) 2CD, RM. [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tube Snake Boogie (3:04)
+02. Pearl Necklace (4:06)
+03. Gimme All Your Lovin' (4:01)
+04. Sharp Dressed Man (4:15)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Southern Rock |Продолжительность: 01:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F4A11A8851C15928150DBC2EEEF7B3FE1F03A80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284507   (728767) от 21.02.2019
+
+Rhapsody Of Fire - The Eighth Mountain (2019) [MP3|320 Kbps] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abyss of Pain
+02. Seven Heroic Deeds
+03. Master of Peace
+04. Rain of Fury(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA20FBD85574A73D2F02F4F39E8A8D4DFF3BD06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284509   (728774) от 21.02.2019
+
+Delain - Hunter's Moon (2019) [MP3|320 Kbps] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masters Of Destiny
+02. Hunter's Moon
+03. This Silence Is Mine
+04. Art Kills(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8F2510CAF96355B3716EA694B0F79AC2AB9FD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284522   (728776) от 21.02.2019
+
+Overkill - The Wings Of War (2019) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728776.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Last Man Standing
+2. Believe In The Fight
+3. Head Of A Pin
+4. Bat Shit Crazy(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E943EEDC268574F94F4F0928BA0F53A536AEC428
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127922   (728792) от 24.04.2017
+
+Andy McCoy & Pete Malmi - Briard (1997) [FLAC|Lossless|image + .cue] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728792.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Fuck The Army
+2 I Didn't Know She Could Rock'N'Roll
+3 River Of Dreams
+4 Let's Play Home(   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32652BDFBB3708884800FF88CD235A90F9BFD2AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022627   (728820) от 02.06.2016
+
+The Hillbilly Moon Explosion - My Love for Evermore (2015) [MP3|320 кб/с] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Are You Gay? (03:07)
+02. Chick Habit (02:12)
+03. Maniac Lover (03:40)
+04. Dead Cat Boogie (03:19)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0B9378C91DABB5E78A49BBC00274999080B820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283985   (728872) от 21.02.2019
+
+Childish Japes & Dave Vives - Salamander (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California (04:04)
+02. Something Else (03:59)
+03. Please Explain (03:43)
+04. Lying To Us (03:59)(   Читать дальше...   )Жанр: Indie Rock
+Источник: bandcampПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E88486331D4F57E1A2BF958904372F38B2CA5D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128222   (728873) от 24.04.2017
+
+Aes Dana - La Chasse Sauvage (2001) [FLAC|Lossless|image + .cue] <Celtic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Chasse Sauvage 04:24
+02. La Dernière Marche 03:45
+03. Anwynn 05:25
+04. Les Complaintes De Nemon 03:21(   Читать дальше...   )Жанр: Celtic Black MetalПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB8471779AAEEB9C1A993169C9E8FF5CE9BE67C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284202   (728901) от 21.02.2019
+
+Said the Whale - Cascadia (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up (03:34)
+02. UnAmerican (03:00)
+03. Love Don't Ask (03:13)
+04. Cascadia (03:40)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F855DCC643E308A56C936416EC88EAB09EAC3E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530632   (728913) от 11.02.2022
 
 VA - СЛОТ XX Tribute (2022) [MP3|320 Kbps] <Rock, Alternative>
@@ -371,330 +695,6 @@ The Dark Horse Years 1976—1992 — бокс-сет альбомов Джорд
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A55DF4CA01870506DBCDCC84274F64C1DC338D22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128202   (729503) от 23.04.2017
-
-Aerosmith, Bon Jovi, Guns N' Roses, Green Day, Sex Pistols - Bands Unlimited Collection (2011) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Hard Rock, Alternative, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное был какой-то смысл объединить такие разные группы под одной обложкой.  На мой взгляд, эта пятерка является квинтэссенцией той сотни кричащих, властных причудливых металлических и тяжелых групп, которые некоторые музыкальные критики воспринимают только как эпатажную форму амбиций. Но в таком случае почему столько поклонников уже не один десяток лет влюблены (   Читать дальше...   )CD1 Aerosmith
-01. Eat The Rich  (3:57)
-02. Rag Doll  (4:05)
-03. Cryin'  (5:21)(   Читать дальше...   )Жанр: Hard Rock, Alternative, Punk RockПродолжительность: 03:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F7CC8469B1F5A825BBF7009E86D97F9CB69AD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022351   (729523) от 01.06.2016
-
-Yngwie Malmsteen - World On Fire (2016) [MP3|320 кб/с] <Neoclassical Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World on Fire
-02. Sorcery
-03. Abandon
-04. Top Down, Foot Down(   Читать дальше...   )Жанр: Neoclassical Heavy Metal, Power MetalПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:264D843BFED4399F073A27DBC109C6D5B5E05F18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530327   (729677) от 10.02.2022
-
-Amorphis - Halo (2022) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729677.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Northwards
-2. On The Dark Waters
-3. The Moon
-4. Windmane(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:55:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F4046411B6F05431EA3F6C4AFC42B1911BCFD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022136   (729761) от 01.06.2016
-
-Brymir - Slayer of Gods (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Symphonic, Melodic Death, Pagan Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. For Those Who
-03. Risen
-04. The Black Hammer(   Читать дальше...   )Жанр: Symphonic, Melodic Death, Pagan MetalПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81DE67082BED6EFE24EA15D80A528C16521E91E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127844   (729857) от 23.04.2017
-
-Adrenaline Rush - Soul Survivor (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrenaline (3:42)
-02. Love Like Poison (4:46)
-03. Breaking The Chains (3:52)
-04. Soul Survivor (4:44)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFD0C11EA4A8BE6A97B84072ED36F7CEE4D3CD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128036   (729867) от 23.04.2017
-
-Шмели - Бюро волшебных услуг (Сборник) (2017) [MP3|320 Kbps] <Metal, Rock, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729867.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Агония
-2. Бом лбом
-3. Всё
-4. Иволгой петь(   Читать дальше...   )Жанр: Metal, Rock, FolkПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DBBBA477B464EB552F51EBC3043DDC0CE5BFF34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284295   (729948) от 20.02.2019
-
-VA - Hard Rock Arena (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Babe Ruth - Wells Fargo
-02 - Bad City - Look Out!
-03 - Deep Purple - Flight of the Rat
-04 - Jane's Addiction - Mountain Song(   Читать дальше...   )Жанр: RockПродолжительность: 02:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26726FA4223AE647B8CAC5689360F13DE38B1764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128192   (729978) от 23.04.2017
-
-Cryonic Temple - Into The Glorious Battle (2017) [MP3|320 Kbps] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beginning of a New Era
-02. Man of a Thousand Faces
-03. All the Kingsmen
-04. Prepare for War(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7505A88F14FCD80A0C9701AD372D21B9608366A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022049   (729995) от 01.06.2016
-
-In Mourning - Afterglow (2016) [MP3|320 кб/с] <Progressive MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire And Ocean
-02. The Grinning Mist
-03. Ashen Crown
-04. Below Rise To The Above(   Читать дальше...   )Жанр: Progressive MDMПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437FFB341C2C47AF72E7E0D544F28C94F5B1C37D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128015   (730035) от 23.04.2017
-
-Tequila Mockingbyrd - Fight And Flight (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Smell Rock N Roll 03:19
-02. Never Go Home 04:05
-03. Money Tree 02:49
-04. Catalyst 04:45(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D525262EBAB8E81510DEB2E401630CF5F7D2B66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128055   (730065) от 23.04.2017
-
-Les Discrets - Predateurs (Prédateurs) (2017) Deluxe Edition [MP3|320 Kbps] <Post-Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730065.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prédateurs
-2. Virée Nocturne
-3. Les Amis De Minuit
-4. Vanishing Beauties(   Читать дальше...   )Жанр: Post-Rock, ShoegazeПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503A4A79C6DB71DB05D33433F23CDBFE535465B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128063   (730070) от 23.04.2017
-
-Richie Kotzen - Wave Of Emotion (1996) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Affair (3:14)
-02. Wave Of Emotion (3:02)
-03. Stoned (3:41)
-04. Degeneration (4:34)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, FusionПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714DB9C619172225FA4732D5CCB6C19FD74D5A46
 ```
 
 

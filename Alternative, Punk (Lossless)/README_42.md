@@ -1,3 +1,30 @@
+###  Публикация: 1310325   (547858) от 23.06.2019
+
+Ducktails - St. Catherine (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Disney Afternoon
+02. Headbanging In The Mirror
+03. Into The Sky
+04. Heaven’s Room(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5EF8FE6172DA8A0538DEDD3ADFDAF43529957D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310322   (547861) от 23.06.2019
 
 Ducktails - III: Arcade Dynamics (2011) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -668,33 +695,6 @@ Moodring - Stargazer (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25642705554B1A9415A9A01DFEBAF9E63C4738EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556682   (557129) от 11.06.2022
-
-Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557129.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Connections
-2. The Cycle
-3. Ebb & Flow
-4. Restitution(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
 ```
 
 

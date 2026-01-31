@@ -1,3 +1,30 @@
+###  Публикация: 1240748   (523669) от 13.08.2018
+
+VA - Black Hole Trance Music 08-18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Emma Hewitt - Safe From Harm (Dylhen Extended Remix)
+02. Richard Durand - The Air I Breathe (Extended Mix)
+03. Betsie Larkin & Ferry Tayle - The Key (Extended Mix)
+04. Craig Connelly - New York Sunday (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B51E7BCC508130988820CB1DDC25671890B0C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240720   (523701) от 13.08.2018
 
 Anne Guthrie - Brass Orchids (2018) Students Of Decay [FLAC|Lossless|WEB-DL|tracks] <Experimental, Field Recording, Ambient, Industrial>
@@ -667,33 +694,6 @@ VA - Pure Deep Sexy Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70BE7AC7559D59DB25BFFA37C4691D60C068CB5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156877   (526400) от 09.08.2017
-
-VA - Ministry Of Sound - Chilled House Ibiza (2017) 2CD [MP3|320 Kbps] <Chill House, Lounge>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_526400.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. It Ain't Me - Kygo & Selena Gomez
-2. Scared To Be Lonely (Julien Earle Remix) - Martin Garrix & Dua Lipa
-3. Places - Martin Solveig feat. Ina Wroldsen(   Читать дальше...   )Жанр: Chill House, LoungeПродолжительность: 02:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F70196E0D00F8CCDE07AEE7C6D0431CBCCCF91F
 ```
 
 

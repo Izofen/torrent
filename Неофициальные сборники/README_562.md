@@ -1,3 +1,30 @@
+###  Публикация: 877583   (845717) от 13.03.2015
+
+VA - Звезды Дискотек! (39 - 42) (2015) (4CD) [MP3|192 - 320 кб/с]<Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_845717.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. E-Type - Angels Сrying (03:50)
+002. Milk Inc. - Livin' A Lie (03:20)
+003. E-Type - Princess Of Egypt (03:39)
+004. Alice Deejay - Back In My Life (03:29)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 01:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD643786E89743DE496972A95CDAE9DD9671EE59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378424   (846289) от 25.04.2020
 
 The Sweet - 100% The Sweet (2020) [MP3|320 Kbps] <Rock, Glam Rock>
@@ -665,33 +692,6 @@ VA - Trance Traveling 75 (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E15242E3D7EC0B2830366D1EE646A0EBDE827006
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499691   (847284) от 02.10.2021
-
-VA - German Top 100 Single Charts  01.10.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Kid Laroi & Justin Bieber - Stay
-02. Ed Sheeran - Bad Habits
-03. Glass Animals - Heat Waves
-04. Ed Sheeran - Shivers(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3376677FAB22FEDF928A059C97E20539C03591
 ```
 
 

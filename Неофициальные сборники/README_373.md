@@ -1,3 +1,30 @@
+###  Публикация: 1037405   (613568) от 24.07.2016
+
+VA - Бомба Года Выпуск 50+50 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medina - By Your Side
+ 02. Alekseev - Пьяное Солнце
+03. Elvira T - Дежавю
+04. Dreezy Feat. Jeremih - Body(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F781560F7B2F8C7139DB07FD7E8158BB6BA1EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037436   (613666) от 24.07.2016
 
 VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
@@ -692,33 +719,6 @@ VA - Yabba Funk: Soul Full Radio (2019) [MP3|320 Kbps] <Funk Soul, Funky House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08C53BA9BD08B28719358F2CD4FDCDB0732CCBAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037065   (615276) от 23.07.2016
-
-VA - Лучшие хитовые треки 2016 - Drum And Bass №1 (2016) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above Beyond ft. Richard Bedford - Sun Moon (Zardonic Remix)
-02. Agressor Bunx - Battlespace
-03. Andy Pain & Z - Connection - Asteroid Belt
-04. Anile ft. Blu Mar Ten - Lyssakses(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18D00F04D8A771654CEEAA7D8EA987C5F241DC8
 ```
 
 

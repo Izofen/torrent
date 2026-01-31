@@ -1,3 +1,84 @@
+###  Публикация: 980362   (955973) от 29.01.2016
+
+Pet Shop Boys - Very (1993) Licence to EMI Records Ltd. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_955973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Can You Forgive Her?
+2.I Wouldn’t Normally Do This Kind of Thing
+3.Liberation
+4.A Different Point of View(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17EDF1DEC034A0084B99FFC1E35A2031D528D29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980472   (956062) от 29.01.2016
+
+ABBA - Super Trouper (1980) West Germany 1st Press, 15 November 1982 [FLAC|Lossless|image + .cue] <Pop Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Trouper    [04:11.90]
+02. The Winner Takes It All    [04:55.26]
+03. On and on and On    [03:40.62]
+04. Andante, Andante    [04:39.57](   Читать дальше...   )Жанр: PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687BF6BAA867AE1F01C72653F0CEA2D638628C45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980468   (956154) от 29.01.2016
+
+Nicole Scherzinger - Killer Love (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poison [03:47]
+02. Killer Love [03:52]
+03. Don't Hold Your Breath [03:17]
+04. Right There [04:02](   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0250677A7D62F3B56FF6A0E13052256136ADE02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980518   (956156) от 29.01.2016
 
 Fancy - Five (1990) [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, Disco>
@@ -611,87 +692,6 @@ magnet:?xt=urn:btih:425F2B905DF073F55DF78F0DF86F5AC557A50EB4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11777D45F889603F03775AE55F510E1EBFC90BAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359611   (961986) от 14.02.2020
-
-Орбита - Raketa (2002) [MP3|320 Kbps] <Pop, Europop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вот Такая Любовь [3:33]
-02. Что Же Делать [5:05]
-03. Нарисуй [4:09]
-04. Последний Раз [4:15](   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270DA909B8F006B4A7E1B43822BB50825C80D013
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978833   (962159) от 24.01.2016
-
-VA - Piano Music For Weddings (2011) [MP3|320 кб/с] <Pop, Easy listening>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Only Just Begun (Stan Whitmire) (3:20)
-02. I Will Always Love You (Pat Coil) (5:02)
-03. The Wind Beneath My Wings (David Hamilton) (4:59)
-04. So This Is Love (The Cinderella Waltz) (David Huntsinger) (3:07)(   Читать дальше...   )Жанр: Pop, Easy listeningПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CBD9BECA0C7A2D1A47BADB75B0129D58BA0379
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978563   (962512) от 24.01.2016
-
-Philippe Chatel - Renaissance (2016) [MP3|320 кб/с] <Chanson, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 heures du matin (2:49)
-02. L'absence (4:07)
-03. La fille dans la bouteille (3:03)
-04. Chanson du pere (2:26)(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5836D223A03707FE1829C16D1F7C37119F704E27
 ```
 
 

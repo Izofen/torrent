@@ -1,3 +1,30 @@
+###  Публикация: 1218969   (717514) от 12.04.2018
+
+VA - Sacred Killer: Metal Compilation (2018) [MP3|320 Kbps] <Black, Death, Brutal Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717514.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ellende - Am Sterbebett Der Zeit
+002. ANA - Ana
+003. Burning Shadows - Day of Darkness
+004. Soijl - Death Do Us Part(   Читать дальше...   )Жанр: Black, Death, Brutal MetalПродолжительность: 12:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D01B50D06A6D02687549194D34BC7280F7B246FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219048   (717515) от 12.04.2018
 
 VA - Душевный шансон в хорошей компании (2018) [MP3|256 Kbps] <Шансон>
@@ -668,33 +695,6 @@ VA - Disco 80 Dance Premium (2017) [MP3|320 Kbps] <Disco, Euro-Pop, Italo-Disco,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9E11783A1E29733A74B74CBE3F1376FAE3AAEDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285431   (718385) от 27.02.2019
-
-VA - Club Dance Ambience vol.172 (2019) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718385.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #Неболира - На Твой Свет (Ivan Art Remix)
-002. 5&Dime, Left Of The Boom - Shackles Feat Janine Fagan  (Dj Bong Mash Up)
-003. A.Chal - Oooooo (Amice Remix)
-004. Aaron Smith - Dancin (Sladkoff & Andrienko Radio Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65525067F7D5000A16F5624D422102723E4C640C
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1046705   (552125) от 27.08.2016
+
+AstroPilot - Lost and Found The Organic Remixes (2015) [MP3|320 Kbps] <Ambient, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forest AM (12:06)
+02. Sunbeam Flowers (Organic Remix) (06:45)
+03. En Rêve (Organic Remix) (07:52)
+04. The Green Eyes Mystery (Organic Remix) (04:33)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4998D4C03231BBC09BC96A14E5D8EA6000636E45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046413   (552127) от 27.08.2016
 
 Astropilot - Solar Walk IV. Youniverse (2016) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -668,33 +695,6 @@ Jan Hammer - Seasons, Pt. 1 (2018) [MP3|320 Kbps] <Synth-Pop, Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9CC9157FB3113043F2B21E5579AC5CAEC286BF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237060   (553290) от 22.07.2018
-
-VA - Black Hole Trance Music 07 - 18 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Moor & Adina Butar - Wild Dream (Extended Mix)
-02. Bobina - Something About You (Extended Mix)
-03. Arkham Knights - Industry  (Extended Mix)
-04. Ferry Corsten & DIM3NSION - Safe With Me (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C5E8AE6558FD50905DACF0DF584B4DBF9E8E5A
 ```
 
 

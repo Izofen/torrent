@@ -1,3 +1,30 @@
+###  Публикация: 1202133   (790549) от 28.01.2018
+
+VA - Damaged Presents Charged (Mixed by Jordan Suckley & Coming Soon!!!) (2018) [MP3|320 Kbps] <Trance,Psy-Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashley Smith - Kick Back (Original Mix)
+02. Bryan Kearney presents Karney - Smiler (Original Mix)
+03. Jordan Suckley & Kutski - Surveillance (2nd Phase Remix)
+04. David Forbes - Panic Room (Original Mix)(   Читать дальше...   )Жанр: Trance,Psy-TranceПродолжительность: 05:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C332CAA2B32165FDE53CCE89462DD563D39050B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202326   (790550) от 28.01.2018
 
 VA - Balearic Lounge: Fresh Nu Lounge Music Selection (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -667,33 +694,6 @@ I Am Robot And Proud - Lucky Static (2018) [FLAC|Lossless|tracks + .cue] <IDM, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9219EAFBAB68A8C4CC6A16E2C82400FEB0DA5BFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275312   (791153) от 10.01.2019
-
-VA - Best Of LW Trance III (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judge Jules x Ronnie Canada & Tristan D - The Verdict (Ronnie's Vocal Mix)
-02. Estiva & Johan Vilborg - Mondays (Original Mix)
-03. Lange & Tom Tyler - On Your Side (Willem de Roo Remix)
-04. Sean Truby & Solis feat. Irina Makosh - Forever (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E988968CA114F3EA32E9B9C32D8A04B442F9DD2B
 ```
 
 

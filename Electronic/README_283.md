@@ -1,3 +1,30 @@
+###  Публикация: 1237060   (553290) от 22.07.2018
+
+VA - Black Hole Trance Music 07 - 18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Moor & Adina Butar - Wild Dream (Extended Mix)
+02. Bobina - Something About You (Extended Mix)
+03. Arkham Knights - Industry  (Extended Mix)
+04. Ferry Corsten & DIM3NSION - Safe With Me (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C5E8AE6558FD50905DACF0DF584B4DBF9E8E5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237070   (553317) от 22.07.2018
 
 VA - Markus Schulz - Global DJ Broadcast Top 20 July (2018) [MP3|320 Kbps] <Trance>
@@ -666,33 +693,6 @@ Miromiro (Microstatic, Punchaface) - Discography 5 Releases (2015-2019) Ngirungi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D37EA2728999EE44CF421144C56EAC3873ED4191
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307293   (555216) от 08.06.2019
-
-Planet Supreme - Planet Supreme (2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Descend (07:21)
-02. Holy Mountain (05:40)
-03. Gardens (05:13)
-04. Suns (04:45)(   Читать дальше...   )Жанр: Ambient, IndustrialПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48D6D2C8B408585BB7332A3647055226C39ACAA5
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1373162   (882052) от 05.04.2020
+
+VA - Know What I Want: R&B Collection (2020) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_882052.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abhi The Nomad - Sex N' Drugs
+002. 1Takeocho - Lowkey
+003. Al Mac - Know What I Want
+004. Anna Moore - The Light(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 06:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF262F74026BE7376D83F8799F38B0BF07A7D09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373168   (882068) от 05.04.2020
 
 VA - Space Song: Synthspace Electronic (2020) [MP3|320 Kbps] <Synthspace, Synth Wave>
@@ -668,30 +695,6 @@ VA - Хиты в тачку. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80051F11DDB44E338E08853D8C598F6C933D8D3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186139   (883540) от 24.03.2010
-
-VA - Золотые песни 90-х (2009) [MP3|256 кб/c]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_883540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:20:16
-
-## Скачать торент
-```bash
-нет
 ```
 
 

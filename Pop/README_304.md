@@ -1,3 +1,84 @@
+###  Публикация: 879073   (838832) от 17.03.2015
+
+Arabesque - Complete Box (2015) 10CD /Japan/ [FLAC|Lossless]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1978 - Friday Night (Arabesque)
+1979 - Peppermint Jack (Arabesque II / City Cats)
+1980 - Marigot Bay (Arabesque III)(   Читать дальше...   )Жанр: Disco |Продолжительность: 06:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2157732E29BD25FB285FEF1694B3588CA8405CC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995107   (839619) от 05.04.2016
+
+VA - DJ Collection 7 (1997) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T-Spoon – Sex On The Beach (3:44)
+02. Robin Cook & Bluedream – Comanchero (3:33)
+03. Los Umbrellos – No Tengo Dinero (3:37)
+04. Touché – I Can't Get No Sleep (3:56)(   Читать дальше...   )Жанр: Electronic, Hip Hop, PopПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EB24B97CF1C33077EC3E513044CE91C9B0ADF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004272   (839754) от 05.04.2016
+
+Zodiac - Zodiac (1998) [MP3|320 кб/с] <Electronic, Euro House, Happy Hardcore>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Again    03:39
+02. Every Time I See You    03:06
+03. Make Believe    03:56
+04. All The Things You Do    03:33(   Читать дальше...   )Жанр: Electronic, Euro House, Happy HardcoreПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE88FCA3C9C984D2CF9224469D242FDCDD32EB62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112557   (839883) от 10.03.2017
 
 Jim Reeves - The Real... Jim Reeves (2013) 3CD [FLAC|Lossless|tracks + .cue] <Country, Pop>
@@ -620,84 +701,6 @@ a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34544B5682280829620E4E31F416A3599A6C02D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379060   (842911) от 27.04.2020
-
-Демо - Rarities (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842911.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я не знаю (Version 2)
-2. На краю света (Arrival project Remix)
-3. Всё просто (VideoClip Mix)
-4. Я не знаю (Arrival project Remix 1)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7161C5F91CBDDBE0552C03C2D4E97C2159068150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379063   (842972) от 27.04.2020
-
-Владимир Пресняков - Первый снег (Моральный Кодекс Cover) (2020) Single [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842972.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Первый снег (Моральный Кодекс Cover)Жанр: PopПродолжительность: 00:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADDF7D8AE801CE0A0F89F7241E467A8C8E8F5AEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378823   (842976) от 27.04.2020
-
-Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night [03:13]
-02. All You Ever Wanted [03:55]
-03. Sleeper [03:04]
-04. Burning [03:12](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:00.35.10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566775920D2F08A680AF640C4D4A07280039EB0D
 ```
 
 

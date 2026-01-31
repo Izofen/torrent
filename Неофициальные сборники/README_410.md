@@ -1,3 +1,30 @@
+###  Публикация: 1138947   (661000) от 01.06.2017
+
+VA - 55 most slow Blues (Bonus) (2017) [MP3|320 Kbps] <Blues, Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_661000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Cray -  A Whole Lotta Pride
+02. Blues Cousins -  All Your Love
+03. Robert Randolph -  Angels
+04. Louisiana Red -  Arlene Blues(   Читать дальше...   )Жанр: Blues, Rock, Blues RockПродолжительность: 04:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:660123D9F03BD5E7CA03D76B8EC8B1E8EF10F4A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538880   (661088) от 22.03.2022
 
 VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
@@ -656,33 +683,6 @@ VA - Hit Music от Мяу - Лето (2017) [MP3|256-320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E220195D1F1A71ECEF86F234BA5B77182701BC8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537883   (663132) от 20.03.2022
-
-Ernesto Cortazar - Compilation part 3 (2022) [MP3|320 Kbps] <Easy Listening, Instrumental, Piano>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_663132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories of the Fall
-02. Delirio
-03. Mournful Seaside
-04. Cid(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 06:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFC6B744A68612502B720020CDAD95556CD50FF
 ```
 
 

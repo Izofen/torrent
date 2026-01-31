@@ -1,3 +1,60 @@
+###  Публикация: 1062624   (438869) от 14.10.2016
+
+Валентин Стрыкало - Развлечение (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ускользает
+02. О брат
+03. 92
+04. Решится само собой(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA206099F98A7D2C6317CC973E95BC5ACE7D494F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 554429   (438900) от 30.09.2012
+
+Ereb Altor - Gastrike (2012) [WavPack|Lossless]<Viking Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_438900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gathering Of Witches (5:39)
+02. Dance Of Darkness (6:19)
+03. Dispellation (6:41)
+04. The Boatman's Call (5:39)
+05. The Mistress Of Wisdom (8:26)
+06. I Djupet Så Svart (6:16)
+07. Seven (6:11)Жанр: Viking Black MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164658   (439060) от 10.09.2017
 
 Tori Amos - Native Invader (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Alternative, Pop>
@@ -640,60 +697,6 @@ Hollywood Vampires - Hollywood Vampires (2015) [FLAC|image+.cue]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73268C7D60B4B8499ED8AF237D0BA8D107108C29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944693   (440378) от 07.10.2015
-
-Максим Леонидов и Hippoband - Hippopotazm (2003) [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440378.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск получил название благодаря смешной опечатке: "Когда название песни "Гиппопотам" вводили в компьютер, случилась опечатка - появилась буковка "з". А мы решили все так и оставить. Hippopotazm - это некий термин философский, а философские термины всегда пишутся латинскими буквами. Что он означает, я пока не знаю. Но в этой песне выражен (   Читать дальше...   )01. Красотка Нева
-02. Духовная жажда
-03. Гиппопотам
-04. Пепел(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432CB46AB083DFE46E80AA987B6A6886E7577E8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409847   (440445) от 19.09.2020
-
-The Last Reign - Evolution (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis [00:03:21]
-02. Evolution of a Decaying Race [00:04:45]
-03. Annihilation of the Ancients [00:05:34]
-04. Ironclad Torment [00:05:00](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B6CD28B1FB5462E772E47445DB8E7134F6CF217
 ```
 
 

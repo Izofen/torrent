@@ -1,3 +1,30 @@
+###  Публикация: 1401187   (711292) от 09.08.2020
+
+Scapa Flow - Chased By Sunset (1991) [MP3|320 Kbps] <EBM, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_711292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drugstore [00:04:34]
+02. India Rubber [00:06:11]
+03. Bad Mood Blues [00:04:51]
+04. Dancing King [00:05:54](   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499A0EB400DBA3449E87735D29F954DE3E4BD160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401186   (711300) от 09.08.2020
 
 God Module - The Unsound Remixes (2020) [MP3|320 Kbps] <EBM, Aggrotech, Dark Electro>
@@ -665,33 +692,6 @@ VA - Armada Deep: Miami (2019) [MP3|320 Kbps] <House, Progressive House, Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC8C6581EA3F617171BA3E7DDF2846B1632A10B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286514   (713163) от 02.03.2019
-
-OSSIA - Devil’s Dance (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Drone, Abstract, Dark Ambient>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concrete (5:58)
-02. Radiation (5:39)
-03. Devil's Dance (5:57)
-04. Slow Dance (2:18)(   Читать дальше...   )Производство: Blackest Ever Black - BLACKEST075Жанр: Experimental, Drone, Abstract, Dark AmbientПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D516B8FEEAAF79F8E34BE75335C50E1D55857F
 ```
 
 

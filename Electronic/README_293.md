@@ -1,3 +1,30 @@
+###  Публикация: 1303359   (572923) от 21.05.2019
+
+VA - Sweet Lounge Session Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stepo Del Sol - Summer Dreams
+02. Taco-Town - Con Su Permiso
+03. Mazelo Nostra - Memories Of Love
+04. Bob Zopp - Summer On The Strand(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018AD68CDD74B9EFA0EE66734F46E8F7C075F418
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234324   (572961) от 04.07.2018
 
 VA - Progressive Summer Session (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
@@ -672,33 +699,6 @@ U96 - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA745C023B94A8B621187B277367B891C8A2DBF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042845   (575963) от 14.08.2016
-
-VA - Sport Music Fitness Personal Trainer - 200 Songs (2016) [MP3|320 Kbps] <House, Electro House, Progressive, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575963.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Kold  -  Sidechain  4:49
-002. California Sun  -  Touch the Sky (Extended Mix)  5:18
-003. Alain Chavez  -  Private Area  5:42
-004. Calabria  -  Evolver (Club Mix)  6:19(   Читать дальше...   )Жанр: House, Electro House, Progressive, Dance, ClubПродолжительность: 19:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01102AC3CF5B373E4A399769552D55324C4794CA
 ```
 
 

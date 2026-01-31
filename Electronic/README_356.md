@@ -1,3 +1,30 @@
+###  Публикация: 1220103   (708242) от 17.04.2018
+
+VA - Fresh Big Room (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deugene - Yellow Paradise (Original Mix) 3:41
+02. Jaxx Volt - Voz De Mando (Original Mix) 3:45
+03. Rompasso - Mohito (Original Mix) 5:22
+04. Robert Cayman - The Lord Of The Rings (Original Mix) 4:56(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7BD366549AA31CDB5A62D269AAF7E267B93F58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131223   (708775) от 05.05.2017
 
 Retouch - Light Years (2017) [MP3|320 Kbps] <Synthwave, Retrowave, Electronic Rock>
@@ -667,33 +694,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05006C71E4794CA638B3B69C0F45E7EB933CDB91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401187   (711292) от 09.08.2020
-
-Scapa Flow - Chased By Sunset (1991) [MP3|320 Kbps] <EBM, Industrial>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_711292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drugstore [00:04:34]
-02. India Rubber [00:06:11]
-03. Bad Mood Blues [00:04:51]
-04. Dancing King [00:05:54](   Читать дальше...   )Жанр: EBM, IndustrialПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499A0EB400DBA3449E87735D29F954DE3E4BD160
 ```
 
 

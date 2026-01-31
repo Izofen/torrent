@@ -1,3 +1,30 @@
+###  Публикация: 939220   (478023) от 20.09.2015
+
+VA - Deep House Excitation Two - 15 Finest Deep-and Chillhouse Tunes (2015) [MP3|320 кб/с]<Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallow - Engage - Paul Lock Remix
+02. Jaques Le Noir - Looking For
+03. Tafubar - Constructing the Void - Lemongrass Balearic Mix
+04. Dr. Beat - Lovely Lisbon(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7A94ADC2175147AECD850B9ABD0C80E6A7D4F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939188   (478026) от 20.09.2015
 
 VA - Autumn Relaxation Moments Best of Chillout and Lounge for the Fall and Late Summer Moments (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -686,33 +713,6 @@ VA - Singles Chat Pop August Vol.2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F0E5530B7BC2C50F547BB0052FEF473DB1ED098
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405953   (479383) от 01.09.2020
-
-VA - Beatport Psy Trance: Electro Sound Pack #162 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479383.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Enarxis - One Last Dance
-002. Flyaway - The Virus
-003. Hinap - Explorations
-004. Sonic System - Clarinha(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B45B97A35BFBC1D69CACF305FAD50F14CF55D087
 ```
 
 

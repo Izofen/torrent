@@ -1,3 +1,30 @@
+###  Публикация: 1046785   (551178) от 28.08.2016
+
+VA - Advanced Modern Mood Music Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Lovers - Analogamente [04:30]
+02. Dee Lice - Derize - Chill Groovers Mix [05:45]
+03. The Global Lounge - Deeper and Deeper [02:31]
+04. Eddy J - Make Those Eyes [03:16](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A2730CC2FEDB35C8B6F491612B1C5A7CDEC48F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046787   (551179) от 28.08.2016
 
 VA - Advanced Modern Mood Music Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Ice Cream Sampler Vol.2 (2016) [MP3|320 Kbps] <House, Nu-Disco, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC67100EC866F79A86933FCA65426C54B5FCDD55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046705   (552125) от 27.08.2016
-
-AstroPilot - Lost and Found The Organic Remixes (2015) [MP3|320 Kbps] <Ambient, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest AM (12:06)
-02. Sunbeam Flowers (Organic Remix) (06:45)
-03. En Rêve (Organic Remix) (07:52)
-04. The Green Eyes Mystery (Organic Remix) (04:33)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4998D4C03231BBC09BC96A14E5D8EA6000636E45
 ```
 
 

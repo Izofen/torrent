@@ -1,3 +1,30 @@
+###  Публикация: 1483444   (1006883) от 13.07.2021
+
+VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006883.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Pale Waves - Wish U Were Here
+002. The Natvral - Sylvia, The Cup Of Youth
+003. That Handsome Devil - Punch In The Face
+004. Flock Of Dimes - Hard Way(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA386C4CE0D5E38A077E339948380FFCFF4304B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483236   (1006955) от 12.07.2021
 
 VA - Виртуозы Жанра - Russian Blues (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
@@ -668,33 +695,6 @@ VA - Лето на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD91E5C3993BB4140D6AC663A0E6D5058A79088
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1481872   (1007989) от 05.07.2021
-
-VA - Music News vol.113 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007989.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Леся Ярославская - Полюбила Другого (02:54)
- 002. Ahzee - Royalty (03:10)
- 003. Akim - Селяви (02:57)
- 004. Akritis - Я Скучаю По Тебе (03:43)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED2D856A06FC57A2C7CB0EB9FB7756B5883FAEA
 ```
 
 

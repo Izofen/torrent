@@ -1,642 +1,639 @@
-###  Публикация: 1849212   (1053445) от 21.01.2026
+###  Публикация: 1850199   (1054305) от 
 
-Adobe Premiere Pro 2026 26.0.0.72 Light Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Premiere Pro — это продвинутое, гибкое и удобное средство нелинейного видеомонтажа. Импортируйте и комбинируйте любые типы медиаконтента — от видеоматериалов, снятых на мобильный телефон, до видео формата 5K и более высокого разрешения — и после редактируйте видеоматериалы в оригинальных форматах без необходимости перекодирования. Приложение имеет удобный и предельно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12B30C33137B89831EF9FE3FE3449770C3700E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849209   (1053444) от 21.01.2026
-
-Divinity: Original Sin II (2): Divine Edition (2017) [Ru] (30.04.2025) Unofficial SynthVoiceRu [Русификатор звука]
-
->>Win Игры
->>AddOn/DLC/Mod для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053444.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданное продолжение знаменитой ролевой игры, в котором вы сможете собрать свой отряд храбрецов, изучить проработанную тактическую систему боя и даже объединить силы еще с тремя друзьями. Но помните: лишь один из вас станет Богом. Бог мертв. Пустота надвигается. Великая сила, сокрытая внутри вас, готова к пробуждению. Битва за право стать Создателем началась. (   Читать дальше...   )Тип издания: UnofficialЖанр: Ролевые игрыЯзык озвучки: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB17132B47F6D41C5392FB51CEDA4AB852D23F7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849226   (1053443) от 21.01.2026
-
-Richard Marx - After Hours (2026) [FLAC|Lossless|image + .cue] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053443.jpg" />
-</div>
-
-
-###  Подробнее
-
-В прошлом году Richard Marx и его жена, Daisy Fuentes, пили мартини в своей гостиной и слушали свинг по радио, когда услышали версию песни Fly Me to the Moon в исполнении Frank Sinatrы. Marx сел за пианино и попытался подобрать аккорды. И тут, - сказал он, - я написал эту прекрасную небольшую интерлюдию, балладную версию с протяжными нотами.
-На своем новом альбоме (   Читать дальше...   )01. feat. Randy Waldman - Love Is Here To Stay (3:16)
-02. feat. Chris Botti - All I Ever Needed (3:39)
-03. feat. Rod Stewart - Young At Heart (3:05)
-04. The Way You Look Tonight (3:31)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE888D45F569639CF8D0A55A8A5D9448613F2802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849233   (1053442) от 21.01.2026
-
-Microsoft Visual Studio 2022 Enterprise 17.14.25 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053442.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio — это мощное средство разработчика, которое можно использовать для выполнения всего цикла разработки в одном месте. Это комплексная интегрированная среда разработки (IDE), которую можно использовать для записи, редактирования, отладки и сборки кода, а затем развертывания приложения. Visual Studio включает компиляторы, средства завершения кода, управление (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E06A675F074ED4DAFF1B84E8D01F2186CB8623A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849228   (1053441) от 21.01.2026
-
-Dan Piestun, Felecia Killings и др. | Basic Electrical And Electronics Engineering. 3rd Edition (2023) [PDF] [EN]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053441.jpg" />
-</div>
-
-
-###  Подробнее
-
-This book contains information obtained from highly regarded resources. Reprinted material sources are
-indicated. Copyright for individual articles remains with the authors as indicated and published under
-Creative Commons License. A Wide variety of references are listed. Reasonable efforts have been made
-to publish reliable data and views articulated in the chapters (   Читать дальше...   )Жанр: Электротехника, ЭлектроникаЯзык: АнглийскийИздательство: 3G E-learningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97A0726DBA059C8DEC0B6F69DB518E36361AFF8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849227   (1053440) от 21.01.2026
-
-Brandon Smith | Illustrated Dictionary of Computer Science. 3Ed Edition (2024) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Covers a wide range of entries in computer science, providing a thorough introduction to the field for students and professionals alike. The book includes detailed explanations of key concepts such as algorithms, data structures, programming languages, operating systems, and artificial intelligence. Third edition of this dictionary incorporates many new definitions (   Читать дальше...   )Жанр: Словари, Английский язык, КомпьютерыЯзык: АнглийскийИздательство: 3G E-learningФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACB49DB37FEE36F4EF39843009E75F48B39BA1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849223   (1053439) от 21.01.2026
-
-Papercut Limited | Home Networking. Tricks and Tips. 8th Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Home Networking Tricks and Tips is the perfect digital publication for the user that wants to take their skill set to the next level. Do you want to enhance your user experience? Or wish to gain insider knowledge? Do you want to learn directly from experts in their field? Learn the numerous short cuts that the professionals use? Over the pages of the new advanced (   Читать дальше...   )Жанр: Компьютерная литература, Компьютерные сетиЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A92C73E3A3358DC97867E490973C79F4613108F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849222   (1053438) от 21.01.2026
-
-Дэвид Веллингтон | Красный космос (Книга 2). Ревенант-Х (2025) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Колония на планете Рай-1 оказалась ловушкой, где исчезло всё человеческое. Экипажу «Артемиды» предстоит столкнуться с тьмой, породившей ревенантов – существ, в которых не осталось ничего от их прежних обитателей.
-Им удалось выжить и прорваться на планету Рай-1. Наконец-то экипаж «Артемиды» узнает, почему колония перестала отвечать. Однако, прибыв на планету, они (   Читать дальше...   )Жанр: Космическая фантастика, хоррорПеревод: Е. Н. КомароваИздательство: Аудиокнига (АСТ)Продолжительность: 11:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09CC2DD60D9A0BA35FFD800DBB0B0C64616AA24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849219   (1053437) от 21.01.2026
-
-Никита Киров | Фантом (Книга 2). Куратор (Часть 2) (2026) [MP3, Дмитрий Поляков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший полковник ФСБ разоблачил шпионов, которые продавали тайны важного военного проекта. Его устранили и обвинили в предательстве для сокрытия преступления. Спустя месяц он очнулся в теле студента, пострадавшего в аварии. Пока его враги уверены в победе, за ними начинает охоту человек, которого они считали мёртвым — опытный агент, который знает о них всё. Он стал (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРес: чтец, авторПродолжительность: 07:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A24B4E4800D0DD29C972258289432ECFEEF18EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849218   (1053436) от 21.01.2026
-
-Peter Hill | Pricing for Profit. How to Develop a Powerful Pricing Strategy for Your Business (2013) [EPUB] [EN]
+М.А. Сухинина | Квантовая психология. Ключи к твоей реальности (2025) [PDF]
 
 >>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053436.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Price is the most significant factor affecting the profitability of every business, profit centre or department. When the pressure is on to perform or grow, your instinct may be to discount, undercut your competitors, cut costs and promote through price. Yet these are often the last things you should do. Pricing for Profit is the most practical guide on pricing available. (   Читать дальше...   )Жанр: Ценообразование, ЭкономикаЯзык: АнглийскийИздательство: Kogan PageФормат: EPUBКачество: Изначально электронное (ebook)
+Все мы хотя бы однажды слышали, что мысли материальны. Давайте проверим это! Никаких сложных теорий и многолетних медитаций, потребуется лишь немного времени, концентрация и знания, как это сделать. Вам повезло – последний компонент у вас в руках, вам же остается только открыть эту книгу. Что Вас ждет внутри? Теория квантовой психологии: что это на самом деле, откуда (   Читать дальше...   )Жанр: ПсихологияИздательство: ЭксмоФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECE0A7805718CAA87A23156AEE865721E10D43D7
+magnet:?xt=urn:btih:DC412F1E8E15F9531842A1147647D251A29F897B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849216   (1053435) от 21.01.2026
+###  Публикация: 1850198   (1054304) от 
 
-Никита Киров | Фантом (Книга 1). Куратор (2025) [MP3, Дмитрий Поляков]
+А. Владимирская, В. Дианова | Уставшие. Воркбук, который поможет побороть выгорание (2025) [PDF, EPUB]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053435.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бывший полковник ФСБ разоблачил шпионов, которые продавали тайны важного военного проекта. Его устранили и обвинили в предательстве для сокрытия преступления. Спустя месяц он очнулся в теле студента, пострадавшего в аварии. Пока его враги уверены в победе, за ними начинает охоту человек, которого они считали мёртвым — опытный агент, который знает о них всё. Он стал (   Читать дальше...   )Жанр: Фантастика, попаданцыИздательство: ЛитРес: чтец, авторПродолжительность: 08:45:03
+Устали или выгорели? И с тем и другим можно справиться – надо только определиться, что именно с вами происходит, и составить план спасения самого себя: понять, что с этим делать, и как помочь себе, даже если нет сил.
+Воркбук «Уставшие» – практическая рабочая тетрадь, которая проведет вас по методике бестселлера «Уставшие» от Алёны Владимирской, ведущего хедхантера (   Читать дальше...   )Жанр: ПсихологияИздательство: БомбораФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACEC20EC5242525955C1A13190F70D033A9D3E59
+magnet:?xt=urn:btih:C98C2A154493EBBADB63AED47C1B0F1D4CF8BB9E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849215   (1053434) от 21.01.2026
+###  Публикация: 1850197   (1054303) от 
 
-Papercut Limited | Make Your Own PC. Tricks and Tips. 22nd Edition (2025) [PDF] [EN]
+П.П. Урбанович, Д.М. Романенко | Компьютерные сети. Учебное пособие (2022) [PDF]
 
 >>Компьютерная литература
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053434.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Make Your Own PC Tricks & Tips is the perfect digital publication for the user that wants to take their skill set to the next level. Do you want to enhance your user experience? Or wish to gain insider knowledge? Do you want to learn directly from experts in their field? Learn the numerous short cuts that the professionals use? Over the pages of the new advanced (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Papercut LimitedФормат: PDFКачество: Обработанный скан
+Даны общие понятия и определения из области компьютерных сетей и технологий, описаны сетевые компоненты. Приведены наиболее распространенные виды топологий, используемые для физического соединения компьютеров в сети, основные методы доступа к каналу связи, рассмотрены применяемые на практике физические среды передачи данных. Передача данных в сети рассматривается (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Инфра-ИнженерияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:439736798BB521E3E85E33FD5F13B76411AF7F22
+magnet:?xt=urn:btih:20718120DAA7B157856956578FB178F2CD1C1F06
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849205   (1053433) от 21.01.2026
+###  Публикация: 1850196   (1054302) от 
 
-Газета | The Wall Street Journal №16 (21 января 2026) [PDF] [EN]
+Д. Пачеко, С. Сгро | Принципы модернизации программных архитектур (2026) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробное руководство по проектированию масштабируемого и поддерживаемого программного обеспечения, написанное признанными экспертами в области программных архитектур. Рассматриваются основные сложности монолитных приложений и антипаттерны, которые приводят к проблемам их масштабирования и сопровождения. Изложены принципы качественного проектирования, включая слабую (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: БХВ-ПетербургФормат: PDFКачество: OCR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BECA884584EE2D9E3AE53EEA687FFCDAEA6DBBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850194   (1054301) от 
+
+Дж. Галбрейт | Сетевое программирование на Python (2024) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена разработке серверных приложений и клиент-серверных архитектур на Python. Рассказано о поддержке SSL в Python 3, представлены примеры работы с протоколами TCP, UDP, HTTP, SMTP, IMAP, FTP, RPC, взаимодействия с сервисами DNS. Освещена работа с электронной почтой в приложениях. Описаны цели протокола TLS и методы их достижения на Python. Подробно описаны (   Читать дальше...   )Жанр: Компьютерная литература, PythonИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7598B8A6DD3D4BE872DD721302C8AB59DFC2E77F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850189   (1054300) от 
+
+Pallavi Sapkale, Shilpa Mehta, S. Balamurugan | Quantum Computing and Machine Learning for 6G. 1st Edition (2026) [PDF] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Secure your expertise in the next frontier of wireless technology with this essential book, which provides a deep dive into the integration of machine learning and quantum computing to build the necessary infrastructure for 6G communication networks.
+
+Despite the potential benefits of 6G, the technology to enable its realization is not yet available. As a result, (   Читать дальше...   )Жанр: Mobile & Wireless Telecommunications, Radio Operation, Radio Communications,Язык: АнглийскийИздательство: Wiley-ScrivenerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159B34B293185E7E9F5EF5EF878B8A4476233964
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850187   (1054299) от 
+
+Олег Велесов | Мир Загона (Книга 6). Шлак. Безумная королева (2026) [MP3, Сергей Дидок]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тавроди нашёл нас.
+Я всегда был слишком доверчив, чтобы принимать жёсткие решения. Пришло время всё поменять. Но для этого придётся вернуться в Загон. Он изменился, он стал настолько другим, что узнать его невозможно. Из ниоткуда появились новые люди. Кто они: проводники, решившие подмять Территории под себя, или новый двуликий, ведущий собственную игру…Жанр: Боевая фантастика, Постапокалипсис, АнтиутопияИздательство: Аудиокнига своими рукамиПродолжительность: 12:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDD69762881392BD600B6DC981E2D29B9244160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850186   (1054298) от 
+
+Эд Ботт | Windows 10 для IT-специалистов (2016) [PDF]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное руководство познакомит вас с новыми функциями и возможностями Windows 10. Автор - заслуженный эксперт по операционной системе Windows Эд Ботт (Ed Bott) - составил общий обзор Windows 10 для IT-профессионалов, готовых начать процесс развертывания, с множеством практических советов для эффективной работы. Книга начинается с обзора операционной системы, затем (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Эком ПаблишерзФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645B1DC06629AA95106544FE16E704DB895532BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850184   (1054297) от 
+
+Pau McFedries | Microsoft Excel Formulas and Functions (Office 2021 and Microsoft 365) (2022) [PDF, EPUB]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Use Excel 365 and Excel 2021 core features to build spreadsheets that solve business problems and deliver reliable answers. Drawing on his unsurpassed experience, Paul McFedries helps you make the most of formulas and functions, including recent improvements ranging from dynamic arrays to XLOOKUP and LET. McFedries' step-by-step projects walk you through handling (   Читать дальше...   )Жанр: Microsoft Office Guides, Microsoft Excel Guides, Spreadsheet BooksЯзык: АнглийскийИздательство: Pearson EducationФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:642E047F69F558E6A199DDD0203A9B053F402E30
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850205   (1054296) от 
+
+R.I.P. - Reincarnation Insurance Program (2026) [Ru/Multi] (0.8.1.6) Repack Let'sРlay [Early Access]
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054296.jpg" />
+</div>
+
+
+###  Подробнее
+
+R.I.P. органично сочетает град пуль из Vampire Survivors с прогрессией, завязанной на снаряжении, из серии игр Diablo. Мир кишит коррозионными вирусами и зомби, вы - элитный сотрудник R.I.P., и ваша цель проста: избавиться от нескончаемых орд физическими методами. Убивайте монстров, подбирайте добычу, перекраивайте снаряжение и собирайте различные комплекты - это (   Читать дальше...   )Тип издания: RepackРазработчик: WarmCore StudioЖанр: Экшены, Приключенческие игры, Казуальные игрыЯзык субтитров: Русский, Английский, Японский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Японский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29B0A7C1A70D1E9E2BA7920290CF13A991AD0C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850140   (1054295) от 
+
+Журнал | Дилетант №2 (122) (февраль 2026) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053433.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Wall Street Journal — ежедневная американская деловая газета на английском языке. Издаётся в Нью-Йорке компанией Dow Jones & Company, которая входит в холдинг News Corp, с 1889.
-WSJ прежде всего освещает события в США и международный бизнес, финансовые новости и проблемы.Жанр: НовостиЯзык: АнглийскийИздательство: Dow Jones & CompanyФормат: PDFКачество: Изначально электронное (ebook)
+Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы.
+В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналИздательство: ООО "Образование 21 век"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C3921455DAD445F75163250473248D2E3372E30
+magnet:?xt=urn:btih:A150D49979676001E9C0F166E7D179BDE5DD5AF1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849127   (1053432) от 21.01.2026
+###  Публикация: 1850117   (1054294) от 
 
-Майкл Финкель | Музейный вор. Подлинная история любви и преступной одержимости (2024) [MP3, Виталий Сулимов]
+Журнал | Монокль №4 (1418) (19-25 января 2026) [PDF]
 
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053432.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054294.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Музеи - тюрьма для искусства. Когда прямо перед тобой шедевр, при виде которого перехватывает дыхание, а на глаза наворачиваются слезы, что может быть естественнее желания любоваться им бесконечно долго, проследить пальцами точные движения резца или кисти?.. Все это, конечно, удобнее делать в тишине и уединении, устроившись в любимом кресле. Мальчиком Стефан Брайтвизер (   Читать дальше...   )Жанр: Документальный детектив, история искусства, публицистикаИздательство: Азбука-АттикусПродолжительность: 06:34:47
+Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
+В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B1CCC32E2E0AA760E0671AE808CF58A0DC163C3
+magnet:?xt=urn:btih:E94A1D3C254607B6B65CE9B569F571F480948DD6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849207   (1053431) от 21.01.2026
+###  Публикация: 1850113   (1054293) от 
 
-Gary Garth | The Zero to 100 Million Sales Blueprint (2023) [EPUB] [EN]
+Тимофей Афаэль, Алексей Сказ | Цикл "Темный Лорд устал" [6 книг] (2025-2026) [FB2] [Обновляемая]
 
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053431.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-You have a business but don't yet have a reputable brand. You're bootstrapped and need to pinch every penny. You know where you want your business to end up, but you're uncertain of how to get there and what to do first. The Zero to 100 Million Sales Blueprint is for you.
-
-In this contemporary sales bible, serial entrepreneur and master sales expert Gary Garth deep (   Читать дальше...   )Жанр: Продажи, ПредпринимательствоЯзык: АнглийскийИздательство: Lioncrest PublishingФормат: EPUBКачество: Изначально электронное (ebook)
+Что страшнее Темного Лорда на троне? Только уставший Темный Лорд в отпуске. Сбежав от своей империи ради покоя, Кассиан получил новый мир, который не желает оставлять его в покое. Теперь каждому, кто посмеет нарушить его тишину — от назойливого героя до гигантского монстра — предстоит узнать, что нет ничего опаснее, чем бог, который просто хочет, чтобы его не трогали.Жанр: Бояръ-Аниме, Попаданцы, Юмористическое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D504C7D62914D2A63FB71213813BDED20BED9E5
+magnet:?xt=urn:btih:6E5B9F797A7A1DDF5CB9685CA2B087DE5CBB0520
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849211   (1053430) от 21.01.2026
+###  Публикация: 1850107   (1054292) от 
 
-Canan Cengiz | Illustrated Dictionary of Science. 3rd Edition (2024) [PDF] [EN]
+Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) [PDF] [EN]
 
 >>Научная и техническая литература
->>Иностранные языки (литература)
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053430.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book contains information obtained from highly regarded resources.
-Reprinted material sources are indicated. Copyright for individual articles
-remains with the authors as indicated and published under Creative Commons
-License. A Wide variety of references are listed. Reasonable efforts have been(   Читать дальше...   )Жанр: Словари, Английский язык, НаукаЯзык: АнглийскийИздательство: 3G E-learningФормат: PDFКачество: Изначально электронное (ebook)
+This unique book gives a manageable introduction to functional analysis and a thorough treatment of real analysis. Authored as a graduate textbook in analysis, the book could be used for a course in real analysis based on the Lebesgue theory of integration and/or a course on functional analysis.
+The author uses basic topological ideas to unify the presentation of (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Chapman and Hall/CRCФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3940E6B93CF8708DCBE4675052963ECCD9E98B1
+magnet:?xt=urn:btih:FC194F9416873602DDA2B9F1720E6F7AB7303F62
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849204   (1053429) от 21.01.2026
+###  Публикация: 1850106   (1054291) от 
 
-OTUS, Кирилл Федченко, Павел Ершов, Сергей Потамошнев |  Rust разработчик. Professional (2025) PCRec [RU]
+Giulia Enders | Gut.The Inside Story of Our Body’s Most Underrated Organ (2026) [PDF, EPUB] [EN]
 
->>Обучающие видеоматериалы
->>IT, Компьютерные видеокурсы
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053429.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Курс предназначен для разработчиков, которые хотят использовать язык Rust для создания надёжного, безопасного и высокопроизводительного программного обеспечения.
+Transform your understanding of the human gut: An enlightening journey through the most underrated organ with Dr. Giulia Enders' groundbreaking exploration of digestive health, microbial connections, and whole-body wellness.
 
-OTUS, Сергей Потамошнев, Артем Павлов |  Rust Developer. Basic (2025) PCRecПроизводство: OTUSЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 75:19:04
+Discover the secrets of your digestive system—and how to hone a healthy gut—plus new research on the mind-gut connection.
+(   Читать дальше...   )Жанр: Гастроэнтерология, Макробиотика, АнатомияЯзык: АнглийскийИздательство: HarperOneФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65DB4AA68D3D291E4E7ECB26864B0B6DE1142E02
+magnet:?xt=urn:btih:F3F5F117F7192AA56C799E5BD27BD311B1C6CD08
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849239   (1053428) от 21.01.2026
+###  Публикация: 1850105   (1054290) от 
 
-Microsoft Visual Studio 2026 Enterprise 18.2.1 (Offline Cache) [Ru/En]
+Jaewoong Eum | Practical Kotlin Deep Dive. Unlocking the 'How' and 'Why' behind Kotlin fundamentals and internal mechanisms (2026) [PDF] [EN]
 
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053428.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Takes you from “how to use Kotlin” into “how Kotlin really works,” revealing the internal implementations, desmifying bytecodes and compiler behavior, and internals that shape the language. If you want to write smarter, more confident Kotlin across fundamentals, coroutines, and multiplatform, this is the book that shows you why everything is the way it is.
+
+Practical (   Читать дальше...   )Жанр: Java Programming, Mobile App Development & Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Independently publishedФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FFF9F33F383947E0C0BD318DB5FDCDEB7E7BE09
+magnet:?xt=urn:btih:1258AD53F0B263E2952722D73EE5B90F4D27CED1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849213   (1053427) от 21.01.2026
+###  Публикация: 1850104   (1054289) от 
 
-The John Lister Project - Projections (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Steven McGee | McGee's Evidence-Based Physical Diagnosis. 6th Edition (2025) [PDF] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
+>>Научная и техническая литература
+>>Здоровье и медицина
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053427.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Elation (3:38)
-02.  The Altar (3:48)
-03.  Projections (2:53)
-04.  Solutions (3:05)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:33
+Emphasizing the most important physical signs needed to determine an underlying condition or disease, McGee's Evidence-Based Physical Diagnosis, Sixth Edition, offers vital insight and instruction on the fundamental clinical skill of physical diagnosis. Internationally renowned author Dr. Steven McGee clearly shows how to pare down the multiple tests needed to confirm (   Читать дальше...   )Жанр: Медицина, Общая практикаЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7142DD5EB6C49AD88229043B750B26EA4049836
+magnet:?xt=urn:btih:655B5E30FC25C3DEF1D85DCEAED4EBF0E819918E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849241   (1053426) от 21.01.2026
+###  Публикация: 1850062   (1054288) от 
 
-Room Arranger 10.3.3.741 [Multi/Ru]
+Omid Motamedisedeh | 96 Common Challenges in Power Query. Practical Solutions for Mastering Data Transformation in Excel and Power BI (2025) [PDF, EPUB] [EN]
 
->>Мультимедиа и Графика
->>ПО для моделирования
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053426.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Room Arranger - программа специально предназначенная для создания, разработки, анализа интерьеров или дизайна помещений. Она будет реально полезна и поможет вам, если вы решили перенести стены, сделать перепланировку или простую перестановку и размышляете, что и куда передвинуть. Room Arranger позволяет визуально наглядно передвигать, вращать, менять размеры и цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+This comprehensive guide is designed to address the most frequent and challenging issues faced by users of Power Query, a powerful data transformation tool integrated into Excel, Power BI, and Microsoft Azure. By tackling 96 real-world problems with practical, step-by-step solutions, this book is an essential resource for data analysts, Excel enthusiasts, and Power (   Читать дальше...   )Жанр: Microsoft Excel Guides, Microsoft Programming, Databases & Big DataЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82188DD12B5436DD1BF000D19DF9875E22484982
+magnet:?xt=urn:btih:60D1E57C8C6C71FCB5982CF96C3AB13BDF584E28
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849067   (1053425) от 21.01.2026
+###  Публикация: 1850059   (1054287) от 
 
-Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуйста, оденьтесь, Такаминэ [2025, TV, 12 из 12 эп. BDRip 1080p HEVC 10-bit raw+rus
+David Langer | Python in Excel Step-by-Step (2026) [PDF] [EN]
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053425.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Таканэ Такаминэ — звезда школы, она получает хорошие оценки, занимается спортом и даже становится президентом студенческого совета в первый год обучения в старшей школе. Но у Такаминэ есть секрет — она обладает способностью «Вечная дорога девственницы». Способность позволяет ей переделывать совершённые действия и добиваться иного результата. Чтобы активировать способность, (   Читать дальше...   )Производство: Liden FilmsЖанр: комeдия, ромaнтика, этҭиРежиссер: Макино ТомоэЯзык озвучки: Японский и РусскийСубтитры: Английские и Русские ASS(int) by CrunchyRoll (Полные и Надписи)Продолжительность: 12 эп. по 24 мин.
+An intuitive guide for professionals wanting to prepare for the future of Microsoft Excel by building Python in Excel skills and unleashing the power of their data.
+
+A hands-on guide to the foundational Python in Excel skills you’ll need to understand and use this powerful analytics tool, Python in Excel Step-by-Step is for current Excel users interested in expanding (   Читать дальше...   )Жанр: Spreadsheet Books, Data Mining, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74E65916BB22EE67EC3036436629F4C572BDB757
+magnet:?xt=urn:btih:694DAF1CA7123670232BB63A0C28B2259FF4D12A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849244   (1053424) от 22.01.2026
+###  Публикация: 1850207   (1054286) от 
 
-Песенка мышонка. Сборник мультфильмов (1957-1990) DVDRip
+Проекты - VideoHive - Soft Blur Transitions - 61544842 [AEP]
 
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
+>>Проекты
+>>Элементы (проекты)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053424.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник кукольных и рисованных отечественных мультипликационных фильмов для детей. В него вошли: Песенка мышонка, Как ослик счастье искал, Ёжик должен быть колючим?, Храбрый оленёнок, Паровозик из Ромашкова.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Юрий Прытков, Владимир Дегтярев, Леонид Аристов, Ольга Ходатаева, Михаил КаменецкийАктеры: Клара Румянова, Александра Панова, Алексей Грибов, Борис Рунге, Александр Граве, Роза Макагонова, Георгий Милляр, Евгения Мельникова, Сергей Мартинсон, Анатолий Папанов и другиеСубтитры: отсутствуютПродолжительность: 00:56:58
+Поднимите свои видеопроекты на новый уровень с помощью Soft Blur Transitions — профессионально разработанного видеошаблона, созданного для достижения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон разработан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, кинорежиссер, (   Читать дальше...   )Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:194072D0C7043CC321FDA0F126B82D596C21307E
+magnet:?xt=urn:btih:893E6861B49527C594DC76A4CAF0976A5C1FCDC7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849203   (1053423) от 22.01.2026
+###  Публикация: 1850058   (1054285) от 
 
-Тайная игра / The Secret Game (1917) WEBRip
+М. Руссо, А. Феррари | Подробное руководство по DAX. Бизнес-аналитика с Microsoft Power BI, SQL Server Analysis Services и Excel (2021) [PDF]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053423.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Добротная шпионская драма с большим количеством экшена и интриг. Конечно, по нынешним временам кино может показаться немного наивным, но в свое время фильм был весьма популярен и актуален. Ведь действие разворачивается в разгар Первой мировой войны, которая тогда еще продолжалась, и военные проблемы определяли сюжет и многое другое в фильме, что было понятно зрителям-современникам.Производство: США / Jesse L. Lasky Feature Play CompanyЖанр: драма, авантюрный, немое киноРежиссер: Уильям Ч. де МилльАктеры: Сэссуэ Хаякава, Джек Холт, Флоренс Видор, Майме Келсо, Реймонд Хаттон, Чарльз Огл, Дипак СониПеревод: немой с интертитрами (Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 01:07:19
+Расширенная и дополненная с учетом современных требований и техник, эта книга представляет собой наиболее полное руководство по языку DAX, применяемому в области бизнес-аналитики, моделирования данных и анализа. Эксперты Microsoft BI Марко Руссо и Альберто Феррари излагают как основы, так и отдельные нюансы работы с DAX: от простых табличных функций до продвинутых (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55BF5F48F150CC2A3F9902E7603FF0C53E76E223
+magnet:?xt=urn:btih:D582869850CEDB41A8A89EA999B42F715D6937EE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849208   (1053422) от 22.01.2026
+###  Публикация: 1849634   (1054284) от 
 
-Морской бой / Battleship (2012) BDRip [AV1/2160p] [4K, HDR, 10-bit] [hand made AI]
+Анастасия Ватутина | Стылая вода. Круговорот (Часть 3) (2025) [MP3, Юлия Драгунова]
 
->>Остальное
->>hand made * video
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053422.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы посылаем сигналы в космос и ждем ответа. Но уверены ли мы, что хотим его получить? Что если пришельцы потенциально опасны? В 2009 году на конференции в Вашингтоне астронавт Эдгар Митчелл, побывавший на Луне, сделал сенсационное заявление о существовании внеземной жизни. Теперь мы знаем, контакт не просто возможен, он неизбежен!Производство: Япония, США / Battleship Delta Productions, Bluegrass FilmsЖанр: фантастика, боевик, триллер, приключенияРежиссер: Питер БергАктеры: Тейлор Китч, Таданобу Асано, Бруклин Декер, Рианна, Лиам Нисон, Александр Скарсгард, Джесси Племонс, Грегори Д. Гэдсон, Хеймиш Линклейтер, Джон ТуиПеревод: Дублированный (Пифагор)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (forced, PGS), украинские (forced, PGS), английские (PGS)Продолжительность: 02:11:20
+Если бы вам предложили разом избавиться от всего, что причиняет вам боль, вы бы согласились? Стоя на берегу стремительно несущейся реки, Яна раздумывала, правильно ли поступает, соглашаясь принять участие в ритуале. За ее спиной слышался монотонный голос ведьмы, ледяной ветер трепал распущенные волосы, а темные глубины манили и звали, обещая покой и забытье… И как (   Читать дальше...   )Жанр: Детектив, ТриллерИздательство: ЛитРесПродолжительность: 06:48:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1ACAA3182251534DADE82BA632CFE7D94DDD7F60
+magnet:?xt=urn:btih:2A75CACCB31E030025C19661C7A2B4CCB70626B3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849151   (1053421) от 22.01.2026
+###  Публикация: 1849633   (1054283) от 
 
-Тегеран-43 (1980) WEB-DLRip [H.264/1080p] (2 серии)
+Анастасия Ватутина | Плач-камень. Круговорот (Часть 2) (2025) [MP3, Юлия Драгунова]
 
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (HD, FHD, UHD)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053421.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во время тегеранской конференции готовится убийство руководителей держав-противников Германии во Второй Мировой войне - Иосифа Сталина, Франклина Рузвельта и Уинстона Черчилля.
-Но основное действие фильма происходит в наши дни. Бывшие непосредственные участники событий - и даже их дети - как бы заново переживают минувшее, но не для всех эти воспоминания заканчиваются (   Читать дальше...   )Производство: СССР, Швейцария, Франция / Мосфильм, Chetvyortoe Tvorcheskoe Obedinenie, Méditerranée Cinéma, Pro Dis Film AGЖанр: боевик, триллер, драма, мелодрама, криминал, военныйРежиссер: Александр Алов, Владимир НаумовАктеры: Наталья Белохвостикова, Игорь Костолевский, Армен Джигарханян, Клод Жад, Ален Делон, Курд Юргенс, Альберт Филозов, Жорж Жере, Глеб Стриженов, Николай Гринько и др.Субтитры: отсутствуютПродолжительность: 02:24:39
+После событий последних месяцев Яна чувствует, что ей необходим отдых и свежий воздух. Вместе с подругой она отправляется в недавно открывшийся загородный отель с причудливым названием Плач-камень. Никто из них не ожидал, что спонтанный отпуск превратится в самый настоящий кошмар, а Яна окажется подозреваемой в совершении ритуального убийства.Жанр: Детектив, мистика, триллерИздательство: ЛитРесПродолжительность: 07:02:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1640A8B3BB56EE1F0872A36DED55FC3158BC835
+magnet:?xt=urn:btih:554D25D12A6A701BA24C0EF77678B4C60349363B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848929   (1053420) от 22.01.2026
+###  Публикация: 1850061   (1054282) от 
 
-Несчастный случай: Отпуск хитмана / Accident Man: Hitman's Holiday (2022) WEB-DL [H.265/1080p] [10 bit] [MVO]
+О. Зверева, В. Сальников | Операционная система Windows: администрирование и настройка рабочей среды пользователя (2025) [PDF]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053420.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наёмный убийца Майк Фэллон получает новое задание — охранять избалованного сыночка главы криминальной организации. Но для этого снова придется убивать. На Фэллона и его подопечного начинают охоту самые отмороженные убийцы со всего света.Производство: Великобритания / Fiction Films, Kritzer Levine Wilkins Griffin Entertainment, Six Demon Films, Wonder StreetЖанр: боевик, комедия, криминалРежиссер: Джордж Кирби, Гарри КирбиАктеры: Скотт Эдкинс, Рэй Стивенсон, Перри Бенсон, Сара Чан, Джордж Форакрес, Фламиния Синк, Бо Фаулер, Файзал Мохаммед, Андреас Нгуен, Питер Ли ТомасПеревод: Многоголосый (iTunes, Sevimli TV)Язык озвучки: Русский, узбекский, английскийСубтитры: Русские, английскиеПродолжительность: 01:37:05
+Учебно-методическое пособие ориентировано на студентов информационных образовательных направлений, но будет также полезно всем, кто использует на своих персональных компьютерах операционную систему Windows. Одной из первых задач в работе на персональной технике – это настройка ее так, чтобы было удобно работать в созданной среде. Кроме описания практических приемов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: УМЦ-УПИФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47A2C90DB4FBC832969B28C6EA9FD9B8DF4D7812
+magnet:?xt=urn:btih:EA81DEDEE62B91D38A7279FB77EE67C9BF22C726
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850063   (1054281) от 
+
+Greg Beaumont | Power BI Machine Learning and OpenAI. Explore data through business intelligence, predictive analytics, and text generation (2023) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unleash the full potential of Power BI with the integration of AI and machine learning techniques using OpenAI
+Key Features
+Take flight with Power BI machine learning and OpenAI using hands-on examples from the FAA airline data
+Unlock the full potential of Power BI for advanced analytics using OpenAI(   Читать дальше...   )Жанр: Computing & Internet Databases, Computing & Internet ProgrammingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A058BF3DEF5F9568074DBEE7CCBDBD5B5AC7BE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850102   (1054280) от 
+
+John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connections (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054280.jpg" />
+</div>
+
+
+###  Подробнее
+
+The dogma that brain function relied on the cortex has dominated clinical neurology, neurosurgery and psychiatry for the last 100 years. Since the start of the 2000s, it has become evident that brain function is orchestrated as a network through white matter connections. This framework provides an understanding of brain function and dysfunction, and has radically (   Читать дальше...   )Жанр: Нейрохирургия, НеврологияЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C18C1E3D029111CECB17B34E46FD4F85A19F36A
 ```
 
 

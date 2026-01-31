@@ -1,3 +1,324 @@
+###  Публикация: 1051249   (532803) от 11.09.2016
+
+Smokie - Rock Away Your Teardrops (1996) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Is True
+02. Cry In The Night
+03. Hold On For The Night
+04. Never Flight Again(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4D6BCD36C916E2386F3D346CF01AD1350087EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051055   (532924) от 11.09.2016
+
+Boudika - The Dark Side (2014) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Waters
+02. Winter Solstice
+03. The Phantom Of The Opera
+04. Fire With Fire(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE0E75630543A42386BFA744893CF398A8C78B6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239951   (532953) от 08.08.2018
+
+Electric Light Orchestra - Secret Messages (1983/2018) [FLAC|24/192|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532953.jpg" />
+</div>
+
+
+###  Подробнее
+
+3 августа 2018 года легендарный рок-коллектив Electric Light Orchestra перевыпустил свой 10-й студийный альбом Secret Messages. Впервые в истории Secret Messages выпущен с расширенным треклистом - ровно в том виде, в котором лидер коллектива Джефф Линн и хотел его выпускать в 1983 году. В альбом войдут 6 треков, ранее не издававшихся на пластинках. Альбом доступен (   Читать дальше...   )01. Secret Messages
+02. Loser Gone Wild
+03. Bluebird
+04. Take Me On And On(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C18F037B9FECD94EED47D4140A87AF7E577C20F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155412   (533042) от 03.08.2017
+
+Accept - The Rise Of Chaos (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die by the Sword
+02. Hole in the Head
+03. The Rise of Chaos
+04. Koolaid(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C03ADF2F25C3A166D995FF00B45A833E0C3DC911
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155581   (533131) от 03.08.2017
+
+Accept - The Rise Of Chaos (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die by the Sword
+02. Hole in the Head
+03. The Rise of Chaos
+04. Koolaid(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A2306146775AE9E6DE784D9411735AAEE71D3D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239879   (533153) от 08.08.2018
+
+Primal Fear - Apocalypse (2018) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apocalypse
+02. New Rise
+03. The Ritual
+04. King of Madness(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA2E038E79B182AC341C5B323CD6A5D6E7FDF17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240035   (533157) от 08.08.2018
+
+Radio Tapok - Потрошитель (2018) Single [MP3|320 Kbps] <Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трек выполнен в стиле группы Rammstein.1. ПотрошительЖанр: Metal, RockПродолжительность: 00:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF57BAED0A55D5AD079A063AC6B098985AE1CA53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239895   (533229) от 08.08.2018
+
+Erra - Neon (2018) [MP3|320 Kbps] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breach
+02. Monolith
+03. Signal Fire
+04. Valhalla(   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CF113A7553A065B63D2A88D77A927266F4C9B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239874   (533240) от 08.08.2018
+
+Imperial Age - Warrior Race (2016) Japan [FLAC|Lossless|image + .cue] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthem of Valour
+02. Aryavarta
+03. Warrior Race
+04. To Mega Therion (Therion Cover)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249C3EB2068973FCC868A6CFA01D1DFF94A99A87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926603   (533318) от 10.08.2015
+
+Asian Dub Foundation - More Signal More Noise (2015) [OGG| 456-528 кб/с]<Alternative, Electronic, Dub, Breakbeat, Ragga, Bhangra, Hip-Hop, World, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zig Zag Nation (03:55)
+02. Signal And The Noise (03:22)
+03. Radio Bubblegum (03:52)
+04. Blade Ragga (06:11)(   Читать дальше...   )Жанр: Alternative, Electronic, Dub, Breakbeat, Ragga, Bhangra, Hip-Hop, World, PunkПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0162D9BF0ADE537B7197562FA03BCF438AB236F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240013   (533360) от 08.08.2018
+
+Jerry Harrison - Casual Gods (1988) [FLAC|Lossless|image + .cue] <Indie, Post-Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533360.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rev It Up (04:12)
+2. Song Of Angels (03:37)
+3. Man With A Gun (04:39)
+4. Let It Come Down (04:54)(   Читать дальше...   )Жанр: Indie, Post-Rock, Post-PunkПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5850007DF0C85A415DF03F5C9D3D33A069527EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239869   (533361) от 08.08.2018
+
+Nocturnal Rites - Shadowland (2002) Japan [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Eyes of the Dead
+02.Shadowland
+03.Invincible
+04.Revelation(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F535A5E785628647667486DDFEE8476A514D68
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155494   (533529) от 03.08.2017
 
 Dan Swano - Moontower (1998) [FLAC|Lossless|image + .cue] <Progressive Metal, Death Metal>
@@ -370,340 +691,6 @@ Hate Eternal - Upon Desolate Sands (2018) [FLAC|Lossless|WEB-DL|tracks] <Death m
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F13CF244B67849AB8B3FAA9F282AFA4E7BDA2794
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558173   (533761) от 19.06.2022
-
-Doug Brons - Pull (2021) [FLAC|Lossless|image + .cue] <AOR, Westcoast>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_533761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Father Show Us (4:39)
-02. For Love (4:05)
-03. Tell Me Everything (4:08)
-04. Look Up (3:45)(   Читать дальше...   )Жанр: AOR, WestcoastПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EDC5C65D55858B3CDB1EF6A75FC22A054A9327
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227099   (534019) от 17.08.2010
-
-Водопад имени Вахтанга Кикабидзе - Первый всесоюзный панк-съезд (1987) [APE|Lossless]<Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление (орг. базары)
-02. Песня про «…а ну его на фиг»
-03. Мой папа — аппаратчик
-04. Вальс Лехи Дубль-Во
-05. Ария Никака
-06. Рейганкашечка (540 Предупреждение г-ну Рейгану
-07. Памяти дужинника Дубова
-08. Вечный кайф (Жидкий стул)
-09. Берегите цинк!
-10. Заключение (Юрмальский Водопад)Жанр: Rock, PunkПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312239   (534196) от 03.07.2019
-
-Mick Jagger - Wandering Spirit (1993) Reissue, 2019, Polydor Records [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wired All Night
-02. Sweet Thing
-03. Out Of Focus
-04. Don't Tear Me Up(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE61DCE75AFB191BD4C1F67A746941A49E6B478
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 697450   (534217) от 06.09.2013
-
-Elton John - Greatest Hits (1974) Club Edition /1992, Polydor/ [FLAC|Lossless]<Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Song (4:01)
-02. Daniel (3:53)
-03. Honky Cat (5:13)
-04. Goodbye Yellow Brick Road (3:15)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30FBF5B48F09DFE45168AC2DF13703CE0CEBC6A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051126   (534368) от 10.09.2016
-
-VA - Absolute Rock Ballads Classics (2001) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - We Are the Champions.
-02. Nazareth - Love Hurts.
-03. Scorpions - Still Loving You.
-04. David Bowie - Space Oddity.(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop Rock, Classic Rock |Продолжительность: 02:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9574311EA8B754DA06F3592069CD43B84EA16D87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050782   (534376) от 10.09.2016
-
-The Beatles - Live At The Hollywood Bowl (2016) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twist And Shout (1965)
-02. She's A Woman (1965)
-03. Dizzy Miss Lizzy (1965)
-04. Ticket To Ride (1965)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A342D4DF8C8C054B8AAF6EBBB8A5E3D735302C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312406   (534392) от 03.07.2019
-
-Savoy Brown - City Night (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking On Hot Stones (4:32)
-02. Don't Hang Me Out To Dry (4:19)
-03. Payback Time (4:52)
-04. Red Light Mama (4:15)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344B613614CD1419E6D855F7B3C040243E556F44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312382   (534397) от 03.07.2019
-
-PIG - Candy (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Industrial, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hopelessly Devoted To You (04:29)
-02. One Day I'll Fly Away (05:29)
-03. You've Lost That Lovin' Feeling (ft.Sasha Grey) (06:43)
-04. The Blower's Daughter (04:49)(   Читать дальше...   )Жанр: Alternative Rock, Industrial, PunkПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59925E48BEE87E2453FAA2011F496D5D9ACF544
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312319   (534490) от 03.07.2019
-
-Unloved - Heartbreak (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreak (03:49)
-02. Remember (03:07)
-03. Love (02:57)
-04. (Sigh) (03:12)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD642CBF97AA88D3D34B65C21951B5665B29901B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312394   (534495) от 03.07.2019
-
-Glenn Tipton - Baptizm Of Fire (1997) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Core
-02. Paint It Black (The Rolling Stones cover)
-03. Enter The Storm
-04. Fuel Me Up(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004183969811EA59EF9DFD48DBCBC2D6A41A5988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532926   (534627) от 09.08.2012
-
-Время жатвы - Время жатвы (2012) [MP3|320 кб/с]<Symphonic Metal, Female Vocalists>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534627.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Время жатвы (03:56)
-2.Mater Dolorosa (04:07)
-3.С гор текут облака (05:12)
-4.Восхождение к истокам (04:08)
-5.Вороны (10:11)
-6.Новый мир (03:53)
-7.Создатель боли (05:00)
-8.Outro(Aeternum vale) (04:51)Жанр: Symphonic MetalПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EA1DFAB6325D0EC2426A6E1F952152F6AF190E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051284   (534653) от 10.09.2016
-
-Собаки Качалова - Блюз для тех, кто не спит (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_534653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блюз для тех, кто не спит
-02. Алиса - блюз или блюз, написанный в погоне за белым кроликом
-03. Блюз делающих селфи
-04. У моря (почти блюз)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEDA956E4F18A2A0B8BFA3FB5847C7158AE0E0F
 ```
 
 

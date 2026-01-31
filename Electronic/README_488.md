@@ -1,3 +1,30 @@
+###  Публикация: 1358272   (969767) от 07.02.2020
+
+Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969767.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Contract 3:22
+2 One Pair Of Hands 4:04
+3 Contract (Breach Mix) 7:10
+4 Childhood's Faith 3:44(   Читать дальше...   )Жанр: Synth-pop, TranceПродолжительность: 00:22:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844B995AF886B00A65497B2A1BE28C9F2F8C0307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 617300   (969884) от 14.02.2013
 
 VA - Welcome To Ibiza (2012) [MP3|320 кб/с]<House>
@@ -694,33 +721,6 @@ VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67A09678CC89214CA6B155330C76A5599FBC9E47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356643   (975613) от 02.02.2020
-
-VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_975613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Ale B - Raid the Radio (6:24)
-2.Rossetti Matteo - Space Age (4:52)
-3.Andy Well - Neblina Del Verano (5:02)
-4.Supernocs - Chorando (4:03)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCB3040807069F95EBD072FD4AAC276A6805AA05
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1125249   (768759) от 14.04.2017
+
+VA - Pure Bliss Vocals: Spring (2017) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ana Criado & Alan Morris - Border Line (Radio Edit)  3:15
+02.  Allen Watts & Katty Heath - Break Without The Pain (Radio Edit)  3:23
+03.  Audrey Gallagher & Kaimo K - Lullaby (Radio Edit)  4:02
+04.  Adip Kiyoi & Susie Ledge - Another Chance (Above & Beyond Club Edit)  3:44(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 02:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9F78812259C59ED58CB1CE630CDB0E79CD75F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392782   (769105) от 27.06.2020
 
 Soul Button - Phantom Existence (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Deep Progressive House>
@@ -661,33 +688,6 @@ VA - EDM 2016 Ibiza Opening Party (2016) [MP3|320 кб/с] <House, Electro House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:848134CF34EBD152DA2306641D45FDACE1B41583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391862   (771628) от 22.06.2020
-
-Проект Лазарь (Project Lazarus) - К солнцу, к звёздам (2019) [MP3|320 Kbps] <Synthwave, Vaporwave, Dark Ambient, Chillwave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. К солнцу, к звёздам (3:46)
-02. Я разговариваю с луной (3:34)
-03. Скафандр (3:07)
-04. Будь готов к полёту (4:06)(   Читать дальше...   )Жанр: Synthwave, Vaporwave, Dark Ambient, ChillwaveПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7DAA9A22BCC164343B6500FD192608A06850D7
 ```
 
 

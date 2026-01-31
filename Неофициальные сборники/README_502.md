@@ -1,3 +1,30 @@
+###  Публикация: 1210455   (778574) от 03.03.2018
+
+VA - Top 100 Зайцев.Нет Февраль 2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
+02. Элджей - Минимал
+03. Элджей & Feduk - Розовое вино
+04. Время и Стекло - Тролль(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677E18A7D66B612C7613E60464CC9C24CF8BBAD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210519   (778575) от 03.03.2018
 
 VA - Зайцев.Нет: Март (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - I Love The 90's (2018) [MP3|320 Kbps] <Eurodance, Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:492307F90515D17D6ADEAC646D30AB8D0109097B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209301   (779391) от 26.02.2018
-
-VA - Love Is A Catastrophe: Synthpop Neuroactive Mix (2018) [MP3|200-320 Kbps] <Synthpop, Electronic Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mflex - Wonderful Memories
-02. NamNamBulu - Idol
-03. Nordika - Seduceme
-04. Erasure - Be Careful What You Wish For!(   Читать дальше...   )Жанр: Synthpop, Electronic DiscoПродолжительность: 04:01:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEAE3AD4B61065728846DC33E3CA11F799D0B0F7
 ```
 
 

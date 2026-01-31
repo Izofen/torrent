@@ -1,3 +1,327 @@
+###  Публикация: 1293159   (639196) от 02.04.2019
+
+Kane Roberts - The New Normal (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Of The World (4:05)
+02. Wonderful (4:20)
+03. Beginning Of The End (4:48)
+04. Who We Are (3:46)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CE9C0454CE593728B228F6E2365F2D517CC5BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293137   (639198) от 02.04.2019
+
+Flotsam and Jetsam - The End of Chaos (2019) Japan [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prisoner of Time
+02. Control
+03. Recover
+04. Prepare for Chaos(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26A8D3C3F7D94ED054EE62C0F086F14D456DB4BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293243   (639200) от 02.04.2019
+
+Athanasia - The Order of the Silver Compass (2019) [MP3|320 kbps] <Heavy Metal, Thrash Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Read Between the Lines (04:34)
+02. Spoils of War (03:51)
+03. The Order of the Silver Compass (03:34)
+04. Cyclops Lord (My Will Is Done) (04:28)(   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, Modern MetalПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEAAB2D434F14B713B665CCCA239D0B88EA8BE65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293129   (639205) от 02.04.2019
+
+Vola - Applause of a Distant Crowd (2018) [FLAC|Lossless|image + .cue] <Symphonic Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Thin Air (4:07)
+02. Ghosts (3:59)
+03. Smartfriend (4:18 )
+04. Ruby Pool (4:09)(   Читать дальше...   )Жанр: Symphonic Progressive MetalПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE99520FD66685FF3B9A1B3C4EF4988C1D2B3F92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293138   (639206) от 02.04.2019
+
+Caligula's Horse - The Tide, The Thief & River’s End (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Gift To Afterthought (6:18 )
+02. Water's Edge (7:39)
+03. Atlas (5:02)
+04. Into The White (8:29)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CD3045AF81896EBB08A871AF4D5587F15EAAE41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293158   (639207) от 02.04.2019
+
+David Gray - Gold In A Brass Age (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sapling (03:26)
+02. Gold in a Brass Age (04:20)
+03. Furthering (04:32)
+04. Ridiculous Heart (04:00)(   Читать дальше...   )Жанр: Rock, Alternative Rock, IndieПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C9462CED3A4D546406D0671BB455CB238A4307
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293132   (639208) от 02.04.2019
+
+Prospekt - The Illuminated Sky (2017) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ex Nihilo (2:35)
+02. The Illuminated Sky (7:41)
+03. Titan (4:38 )
+04. Distant Anamnesis (1:31)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7CD30215CFD7422CA70ABDCD07138B49228A35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542245   (639230) от 06.04.2022
+
+Emissary - The Wretched Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Silent Treatment (3:26)
+02. Chemical Hatred (3:33)
+03. Hypochondriac (3:54)
+04. In Solitude (4:16)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4560BFCA9F8641B838EA1157F5CA4C56EDED2E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541688   (639233) от 06.04.2022
+
+VVitchesmoon - Lilith, Star of Sorrow (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melodic Death, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Garden of Death [00:05:09]
+02 Fallen Light of Eden [00:08:00]
+03 Grail (Lucifer's Descent) [00:05:52]
+04 It Comes at Dusk [00:07:30](   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790F02BC7A5B9EF50C8A8B443769363F9160FF98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542113   (639244) от 06.04.2022
+
+Warmduscher - At The Hotspot (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Live at the Hotspot (00:04:35)
+02 - Hot Shot (00:02:26)
+03 - Eight Minute Machine (00:02:26)
+04 - Wild Flowers (00:03:34)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A7199F0D8AE4072C59455EF5907E7425967A4F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293130   (639327) от 02.04.2019
+
+Shattered Skies - Muted Neon (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dissafected (4:53)
+02. You Will Know My Name (5:19)
+03. Birth Of A Voyager (5:42)
+04. Emnity (1:54)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86587C50A805D1C465FE2F6B38961121C40A4137
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142823   (639332) от 16.06.2017
+
+Chris Rea - Auberge (1991) Japanese Edition [FLAC|Lossless|image + .cue] <Blues Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Auberge (7:19)
+02. Gone Fishing (4:41)
+03. You're Not a Number (5:01)
+04. Heaven (4:14)(   Читать дальше...   )Жанр: Blues Rock, Soft RockПродолжительность: 01:06:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAF76EC1C2FB051873B7B8333B93075D6DB4917E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519139   (639387) от 05.07.2012
 
 Парадуш - На одной прямой (2006) [FLAC|Lossless] <Rock, Lounge>
@@ -401,336 +725,6 @@ Risen Prophecy - Into the Valley of Hinnom (2015) [MP3|320 кб/с]<Thrash / Pow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3522E7986FF11846F62578C9FFB85EB6918A3F4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907279   (639935) от 11.06.2015
-
-Hell Camino - Hell Camino (2015) [MP3|320 кб/с]<Southern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead And Gone
-02. Under It All
-03. Pleasure To Burn
-04. Rixie Road(   Читать дальше...   )Жанр: Southern MetalПродолжительность: 00:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50EB0AB39EBEB86D5FCFE4BA2EEEE04C2A7AE158
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907069   (639937) от 11.06.2015
-
-Tuatha De Danann - Dawn Of A New Sun (2015) [MP3|320 кб/с]<Progressive / Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We're Back
-02. Rhymes Against Humanity
-03. The Brave And The Herd
-04. An Ultimato(   Читать дальше...   )Жанр: Progressive / Folk MetalПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80ACD03C666F229842D0486F210BA2989292FFD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536791   (639949) от 18.07.2013
-
-Therion - 13 albums (1991 - 2012) [MP3|320 кб/с]<Death Metal; Symphonic Metal; Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639949.jpg" />
-</div>
-
-
-###  Подробнее
-
-только студийные альбомы, без синглов, лайфов и миниЖанр: Death Metal; Symphonic Metal; Gothic MetalПродолжительность: 00:47:48
-
-01. Poupée de cire, poupée the son (2:51)
-02. Une fleur dans le coeur (3:03)
-03. Initials B.B (3:44)
-04. Mon amour, mon ami (4:35)
-05. Polichinelle (2:28)
-06. La Maritza (3:54)
-07. Soeur angelique (3:05)
-08. Dis-moi poupée (3:24)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2534DCA15801721F0A966BB93605DFDAC18DF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033197   (639994) от 10.07.2016
-
-Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves of Winter
-02. Friends and Enemies
-03. Animal Style
-04. Re-arrange(   Читать дальше...   )Жанр: Alternative Rock, Electronic RockПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F032614831BFEF608DA3E09C55C1528B13DAE1D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033262   (640004) от 10.07.2016
-
-Mech - Painkiller - Original Soundtrack (2004) Promo [FLAC|Lossless|tracks] <Industrial, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Painkiller    01:58
-02.  Morph In    03:06
-03.  Banshee    02:49
-04.  Playing Tarot    03:27(   Читать дальше...   )Жанр: Industrial, Heavy MetalПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26134C7D0912789873FAEB01A6D28F80E575A29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907268   (640032) от 11.06.2015
-
-Davy O'List - Second Thoughts (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Thoughts (08:55)
-02. To The Stars (04:07)
-03. The Emperor (08:21)
-04. Touch Wood (06:23)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E1B06BA2D9235C706D613590A988E4482FA005
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907374   (640033) от 11.06.2015
-
-Quiet Prayer - The Failure of Religion (2015) [MP3|320 кб/с]<Heavy Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Heavenly Tragedy
-02. The End of Faith
-03. All Gods Dead
-04. Tragedy's Grin (Teach Your Children War)(   Читать дальше...   )Жанр: Heavy Metal, Melodic Death MetalПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1861926AD788EE44C1BC2C4A7164DFAECA7F0CD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907277   (640036) от 11.06.2015
-
-Karakoram - Ov Shangri-La (2015) [MP3|320 кб/с]<Heavy / Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azathoth
-02. Sagarmatha
-03. En Sabah Nur
-04. Via Betelgeuse(   Читать дальше...   )Жанр: Heavy / Groove MetalПродолжительность: 00:28:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0B73058516BB46FC8B43007D132AFA45B9C54F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033180   (640107) от 10.07.2016
-
-Heart - Beautiful Broken (2016) [FLAC|Lossless|tracks] <Melodic Rock, Hard Rock, Folk Ballads>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Broken (2:26)
-02. Two (4:23)
-03. Sweet Darlin' (3:53)
-04. I Jump (3:52)(   Читать дальше...   )Жанр: Melodic Rock, Hard Rock, Folk BalladsПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D97DADF187F46BD5E8F6ECA174F866AFD989F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033300   (640208) от 10.07.2016
-
-Fall of Envy - Poetic Rage (2012) Special Edition [MP3|320 Kbps] <Rock, Alt Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Smoking Gun    05:21
-02.  For You    03:19
-03.  Poetic Rage    05:27
-04.  Wondering    03:36(   Читать дальше...   )Жанр: Rock, Alt RockПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60D0C12F152BAF75EB525CF1E448DB5DD5613C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033241   (640213) от 10.07.2016
-
-Faithful Breath - Gold'N'Glory (1984) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don't feel hate    03:45
-02.  King of the rock    03:17
-03.  Jailbreaker    03:27
-04.  A million hearts    04:56(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6473471EE60070204A4688766B9A54D73E7C13
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033198   (640214) от 10.07.2016
-
-Kissin' Dynamite - Generation Goodbye (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Generation Goodbye
-02. Hashtag Your Life
-03. If Clocks Were Running Backwards
-04. Somebody To Hate(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F38356440463EDABEEC712112380DC2F6239066
 ```
 
 

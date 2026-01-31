@@ -1,3 +1,189 @@
+###  Публикация: 701825   (471884) от 20.09.2013
+
+Bill Frisell - 6 альбомов (2004-2013) [FLAC|Lossless]<Contemporary Jazz, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Contemporary Jazz, Instrumental |Продолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132E20CA9A4A15392BC788FE7EE2FB5BE8B59A0A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245579   (471909) от 06.09.2018
+
+Relaxing Piano Music & Sleep Baby Sleep - Newborns - Relaxing Pregnancy Music (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lullabye for Alice Grey (Amazing Bedtime Music)	5:09
+02 Native American Massage Music	6:45
+03 Ocean Waterfall  4:08
+04 Relax Your Soul B 4:39(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84549EEBABA46B14EFB0CADF86D2391F8D2A3FE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245470   (472014) от 06.09.2018
+
+Jan Pham Huu Tri & Gabin De L’Auray - Gentle Acoustic Guitar (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumemtal, Guitar, Downtempo>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Togetherness (*) 01:58
+02. Holiday Souvenir (*) 01:49
+03. Lasting Friendship (*) 01:30
+04. Sunshine Hug (*) 01:45(   Читать дальше...   )Жанр: Instrumemtal, Guitar, DowntempoПродолжительность: 00:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48E6900250E0E92BD55B71E24FB3C1AE69A54AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701841   (472067) от 20.09.2013
+
+IchPak - De mo (2013) Авторская раздача [MP3|320 кб/с]<untitled>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472067.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:53] 01 - SOFA
+[04:15] 02 - Atusubitu
+[03:03] 03 - 12на5
+[01:16] 04 - Bionic Commando Groder's Anthem cover(   Читать дальше...   )Жанр: untitledПродолжительность: 00:26:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFF13FF1958CFB03C008B1F9557F4CE09993D50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797289   (473540) от 05.09.2018
+
+Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:43)
+02. The Rains of Castamere* (02:42)
+03. Breaker of Chains (04:05)
+04. Watchers On the Wall (02:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 1:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939416   (473558) от 22.09.2015
+
+Jesse Lafser - Raised On The Plains (2015) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Hat Blues (02:49)
+02. When It Comes To Loving You (02:41)
+03. Darlin Its A Waste Of Time (03:28)
+04. The Chores Song (03:06)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B785EC0BA5D2F1562051DE74912CA3073BB14A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939410   (473564) от 22.09.2015
+
+Jason James - Jason James (2015) [MP3|320 кб/с]<Texan Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_473564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes the Heartache (03:27)
+02. I've Been Drinkin' More (03:34)
+03. Hot Mouth Mama (02:32)
+04. Fancy Limousine (03:29)(   Читать дальше...   )Жанр: Texan CountryПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E1CD728A3D576164054C50FF6EBADE04390C0C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245261   (473890) от 05.09.2018
 
 VA - Sax Is The Best! Showa Kayo Listening At Sax (2012) 5CD [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental, Sax>
@@ -513,196 +699,6 @@ David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0F536BF829369B432E2B8BC0B95713770C2FBD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406025   (479142) от 01.09.2020
-
-Rome - The Lone Furrow (2020) [FLAC|Lossless|WEB-DL|tracks] <Neofolk, Post-industrial>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479142.jpg" />
-</div>
-
-
-###  Подробнее
-
-ROME - проект из Люксембурга, образовался сравнительно недавно, в 2005 году. Его постоянным участником и основателем является Джером Ройтер (Jérôme Reuter).
-ROME создал очаровательный мир противоречий, которым пронизаны все песни. Этот мир с ясностью и неповреждённой добротой словно вынимает вас из повседневного мира и окунает в совершенно иной, утопический, (   Читать дальше...   )01. Masters of the Earth [00:02:44]
-02. Tyriat Sig Tyrias [00:02:57]
-03. Ächtung, Baby! [00:03:57]
-04. Making Enemies in the New Age [00:01:00](   Читать дальше...   )Жанр: Neofolk, Post-industrialПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E06C8AC20F9A1B0EA58B67A5182198C7D3DA50A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056446   (479488) от 26.09.2016
-
-Heidi Feek - The Only (2013) [MP3|320 Kbps] <Country, World, Vocal>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Like The Way   (02:42)
-02. Somebody Someday   (03:42)
-03. 57 Bel Air   (03:14)
-04. The Only   (03:11)(   Читать дальше...   )Жанр: Country, World, VocalПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1507D1C5B8312AAF6E5123B9B9EAC303EA85BAEB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938900   (479559) от 19.09.2015
-
-Jean-Michel Jarre - Essential Recollection (2015) [FLAC|tracks+.cue]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene, Pt. 2
-02. Arpegiateur (Live)
-03. Oxygene, Pt. 4
-04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B52F7430A73ECE9F392BC867AD5C8967B5F327
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938760   (479798) от 19.09.2015
-
-Cosmic Baby - Heaven (1998) [FLAC|Lossless]<Ambient, New-age, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air 1:47
-02. Der Flug 4:32
-03. Casa Del Mar 6:10
-04. Wurzburg 5:32(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B93B74988840A0AE6455FD25CFEE4F156CA2818
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244617   (479923) от 02.09.2018
-
-Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harmony in Motion (07:20)
-02. Tearful Moments (08:51)
-03. Stationary Spirits (09:57)
-04. The Pathway of Life (06:39)(   Читать дальше...   )Жанр: New Agе, Relax, MeditativeПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8830FC9B6D55638A1F08FB8FBEF32198F854740F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244741   (479924) от 02.09.2018
-
-Helen Jane Long - Perspective (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outside
-02. Given
-03. Journey
-04. Perspective(   Читать дальше...   )Жанр: Instrumental, Piano, Modern ClassicalПродолжительность: 00:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF6C3EB1FC09F61EFFFEE051FC6CB55CBA45B2C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317973   (479961) от 30.07.2022
-
-Sucker Punch / Запрещенный прием Soundtrack (2011) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emily Browning - Sweet Dreams (are made of this) (05:19)
-02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)
-03. Emiliana Torrini - White Rabbit (05:09)
-04. Queen with Armageddon a.k.a Geddy - I Want It All/We Will Rock You (05:09)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD26ACF023B62D94C9336805E7E94A26AF394ECC
 ```
 
 

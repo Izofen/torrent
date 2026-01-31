@@ -1,3 +1,30 @@
+###  Публикация: 1375759   (864011) от 15.04.2020
+
+VA - Beatport Psychedelic Trance: Sound Pack #59 (2020) [MP3|320 Kbps] <Psy Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864011.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Antaluk - Gita Sun
+002. Estefano Haze - Spirituality In Action
+003. Sunrazers - Karma
+004. Eguana - Holographic Artifact(   Читать дальше...   )Жанр: Psy Trance, GoaПродолжительность: 12:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9681D94A4E025174A62800FDF68A0DF095079D0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999526   (864213) от 22.03.2016
 
 Линда - Шаманка (The Best of) (2016) [MP3|320 кб/с] <Pop>
@@ -664,33 +691,6 @@ VA - Танцевальная зима. Выпуск № 10 (2017) [MP3|256 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4155DD51E7095037542E41F392BE6DAFB0BC68A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998968   (866378) от 21.03.2016
-
-VA - New Music N2 (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kids United - Imagine.mp3
-002. Vianney - On est bien comme зa (Album Version).mp3
-003. Madilyn Bailey - Rude.mp3
-004. Shy'M - Il Faut Vivre.mp3(   Читать дальше...   )Жанр: PopПродолжительность: 05:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A34302E19D5D3A03F5E14B4C20E9FA0A9A1478
 ```
 
 

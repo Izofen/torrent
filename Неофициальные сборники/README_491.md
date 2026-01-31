@@ -1,3 +1,30 @@
+###  Публикация: 1125589   (767924) от 15.04.2017
+
+VA - Jazz World Music: Electro Swing [2CD] (2017) [MP3|320 Kbps] <Electro Jazz Swing>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_767924.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dimie Cat - Bare Necessities 04:10
+02. DJ Chris - Touch of Jazz 06:41
+03. Andy Roberts - Noodle (AR's Tech Jazz Mix) 08:04(   Читать дальше...   )Жанр: Electro Jazz SwingПродолжительность: 12:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8DE83572D2E92969FA2967504000518F2F2D3BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213494   (767973) от 17.03.2018
 
 Grivina - Я Хочу (2018) Remix [MP3|320 Kbps] <Deep House>
@@ -667,33 +694,6 @@ VA - Music for You vol.8 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D401F1092BEBFF41FB948ED0CD4DD8FE2A971417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391978   (769396) от 25.06.2020
-
-VA - Cajmere - Wheels Of Steel Vol.1 (1998) авторская раздача [MP3|320 Kbps] <House, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andre L. Prioleau & Gene Santiago - One Small Step (5:09)
-02. Djaimin & Djaybee - Fever (2:25)
-03. Cajmere - Only 4 U (Mark Grant Mix) (4:52)
-04. Kerri Chandler - It's You (3:32)(   Читать дальше...   )Жанр: House, Minimal, Tech House, TechnoПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB091F7393BD117ECEED8EE5C0E81102328E03C
 ```
 
 

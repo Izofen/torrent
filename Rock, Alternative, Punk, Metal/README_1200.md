@@ -1,3 +1,327 @@
+###  Публикация: 1351271   (1002412) от 09.01.2020
+
+Apocalyptica - Cell-0 (2020) [MP3|320 Kbps] <Cello Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002412.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ashes Of The Modern World
+2. Cell-0
+3. Rise
+4. En Route To Mayhem(   Читать дальше...   )Жанр: Cello MetalПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B7E199AB798EF72EA3140283E444EAFE7E1BF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351244   (1002475) от 09.01.2020
+
+Порт (812) - Подарок (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002475.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 99 шлюх из ста
+2. Весть благая
+3. Wow (Как бы)
+4. Честь, свобода и любовь(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F359B991FCA5539DCE02A40AEDF9F263F9171200
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487591   (1002524) от 09.08.2021
+
+VA - Triple J'S Hottest 100 Vol.19 (2012) [FLAC|Lossless]<Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triple J Hottest 100 - ежегодный музыкальный сборник, основанный на голосовании, проходящем на национальном австралийском радио Triple J, в в котором слушатели выбирают лучшего исполнителя года. Голосование проходит через интернет и начинается примерно за две недели до Нового Года и подводит его итоги, учитывая композиции, выпущенные только за этот год. 100 наиболее (   Читать дальше...   )CD1
+
+01. Gotye - Somebody That I Used To Know (Ft. Kimbra) (4:04)
+02. The Black Keys - Lonely Boy (3:13)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 02:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CADF5255AB02994F6EEB45A81240B5313C91623
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488149   (1002535) от 09.08.2021
+
+Cruzh - Tropical Thunder (2021) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tropical Thunder
+02. We Go Together
+03. Turn Back Time
+04. Are You Ready?(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97BC2A1F7AB342D67B88370CEDA8DAE31A6F804
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488038   (1002597) от 09.08.2021
+
+Anims - God Is a Witness (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Is a Witness
+02. Freedom
+03. Around Me
+04. Live for Somebody(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294E372D4A4D3139CA4C349882F8C6D9E2B9A1B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351035   (1002677) от 08.01.2020
+
+Chris Rea - One Fine Day (2019) [FLAC|Lossless|tracks + .cue] <Blues Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальная запись и сведение сделаны в 1980 году в Chipping Norton Studios.
+Альбом никогда ранее не выпускался как единое целое. Некоторые треки как перезаписанные версии появлялись на различных альбомах и в качестве би-сайдов.01. Do You Still Dream?
+02. Loving You
+03. One Fine Day
+04. One Sweet and Tender Touch(   Читать дальше...   )Жанр: Blues Rock, Soft RockПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5029CB9C35366833CA61B1B4CA9AE35217A0A06E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 330487   (1002697) от 08.08.2021
+
+Scorpions - Best Of Scorpions (1984) [FLAC|Lossless] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steamrock Fever (3:40)
+02. Pictured Life (3:26)
+03. Robot Man (2:47)
+04. Backstage Queen (3:14)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE5FB5B433AE4FD3D10FADA4B8541DD80A2B810
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351103   (1002730) от 08.01.2020
+
+VA - Soft Rock Sunday (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carly Simon - You Belong to Me
+02. Tina Turner - Private Dancer
+03. Randy VanWarmer - Just When I Needed You Most
+04. Rod Stewart - You're In My Heart (The Final Acclaim)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938DEE2770C602A36281DCC736A939B3CD39DA78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350853   (1002760) от 08.01.2020
+
+Doogie White & La Paz - 2 альбома Collection (2012-2013) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Granite
+2013 - The Dark And The LightЖанр: Hard RockПродолжительность: 01:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8B47E5124D15A195236895EC5990DE9E86B2FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351096   (1002767) от 08.01.2020
+
+Toxenaris - Apoptosis (2018) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002767.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 21st Voyage. 04:23
+2. Spread the Virus. 04:15
+3. Septopus. 05:39
+4. Dispersion. 01:45(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621829D08DCA80325A6CD04258CA1E28A38AB230
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350898   (1002771) от 08.01.2020
+
+Altaria - Invitation (2003) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unicorn 03:32
+02. History of Times to Come 04:16
+03. Ravenwing 04:30
+04. Innocent 04:11(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2B28B0B642E77DB37F58E7CE960C33D6E1AABD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350906   (1002772) от 08.01.2020
+
+Behind The Scenery - Retroviseur (2004) [FLAC|Lossless|image + .cue] <Dark Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retroviseur [05:38]
+02. Me And The Sun [04:32]
+03. Journey [03:06]
+04. Queen Of The Swans [06:48](   Читать дальше...   )Жанр: Dark Metal, Melodic Death MetalПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E753A284C4394F820E9954701C127BE9C777CFCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487892   (1002809) от 08.08.2021
 
 Night Ranger - ATBPO (And The Band Played On) (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -369,330 +693,6 @@ magnet:?xt=urn:btih:2169DEE5FB48B3E93897703C25539AD2A9774383
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:831B2FE3BD0FC25CE3EE4A311274ED9126D70486
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487576   (1003310) от 06.08.2021
-
-Night Ranger - ATBPO (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming For You
-02. Bring It All Home To Me
-03. Breakout
-04. Hard To Make It Easy(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F605F33628A7BA2E54F4C56DCF8D2FAA22E6BC3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487585   (1003311) от 06.08.2021
-
-Spektra - Overload (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overload
-02. Runnin' Out Of Time
-03. Just Because
-04. Since I Found You(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6436FE6CAE62B06CCF6C3548BD93508F6F0E1EFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487587   (1003314) от 06.08.2021
-
-Mayank - Mayank (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny Calling
-02. Billy Is On The Run
-03. Miracle Mile
-04. We Are One(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DB5CD15FB41F8CF92D9BFA87D5A8BA2BD55EE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487578   (1003317) от 06.08.2021
-
-Circus Of Rock - Come One, Come All (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beat (Feat. Riku Turunen)
-02. Desperate Cry (Feat. Johnny Gioeli)
-03. Sheriff Of Ghost Town (Feat. Marco Hietala)
-04. Never (Feat. Kimmo Blom)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6360DEE555F789BA9E942AE7FE256E4186AE40FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350331   (1003332) от 06.01.2020
-
-The Troggs - From Nowhere (1966) 1989, DJM Records [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Thing
-02. The Kitty Cat Song
-03. Ride Your Pony
-04. Hi Hi Hazel(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33013E24F3D8B46D301F622EE2D30E658B11D7F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350566   (1003336) от 06.01.2020
-
-Desert Colossus - Eyes and Tongues (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tear me down (04:20)
-02. The one - Eyes and tongues (12:50)
-03. Predicament (03:22)
-04. Collect call to reality (05:06)(   Читать дальше...   )Жанр: Stoner Rock, Hard RockПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2283C2471AC396E1233B179607954DBBED906AEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350308   (1003338) от 06.01.2020
-
-Paramaecium - 4 Albums, 1 EP (1993-2004) [FLAC|Lossless|image + .cue] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paramaecium - австралийская группа собравшаяся в 1990 году, одна из немногих дэт-думовых команд с текстами, проповедующими христианство.Список альбомов:
-1993 - Exhumed Of The Earth
-1996 - Within The Ancient Forest
-1997 - Repentance(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 03:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F1F8622F5FD954D508AC339049B4AABF7A6EE75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487571   (1003346) от 06.08.2021
-
-Dee Snider - Leave a Scar (2021) [MP3|320 kbps] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Gotta Rock (again) (04:02)
-02. All or Nothing More (03:52)
-03. Down but Never Out (03:36)
-04. Before I Go (04:15)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798AD6D650711EEDD6298FBCA6552E5221FBC11E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487574   (1003350) от 06.08.2021
-
-Trance - Metal Forces (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fighter
-02. Troublemaker
-03. Death Machine
-04. Deep Dance(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD07F68D1C61777B4154BFCFA977613BA3245D4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487593   (1003351) от 06.08.2021
-
-Insolence - Revolution (2001) [FLAC|Lossless|image + .cue] <Hardcore, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death Threat [3:49]
-02. Head 2 Head [3:38]
-03. Poison Well [3:30]
-04. Natural High [3:22](   Читать дальше...   )Жанр: Hardcore, Nu MetalПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7EBC23CED2B94D63F6CEFEC8583205005786E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487598   (1003357) от 06.08.2021
-
-Santiano - Top Hits - die größten Santiano Hymnen (2021) EP [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003357.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Santiano
-2. Wellerman
-3. Es gibt nur Wasser
-4. Gott muss ein Seemann sein(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:20:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD366C0B7E8B7B03CFA172DD9689AB193CD608F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839238   (1003372) от 27.11.2025
-
-Queen - Live At The Rainbow '74 (1974) 2xCD, SHM-CD, Japanese Edition, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Prog Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Queen II Tour Live At The Rainbow, March '74:
-01. Procession
-02. Father to Son
-03. Ogre Battle(   Читать дальше...   )Жанр: Classic Rock, Prog Rock, GlamПродолжительность: 02:24:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE89F4C7CFCBE288D220B5CE759DB4B9D6F187A
 ```
 
 

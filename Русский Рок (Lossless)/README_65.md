@@ -1,3 +1,30 @@
+###  Публикация: 1509352   (794832) от 12.11.2021
+
+Крематорий - Охотник (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794832.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бар «Под дулом револьвера»
+2. Среда
+3. Судья
+4. Ограбление века(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAED30119F48555AFC353E0E999BAC6A7688CACC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509019   (795483) от 11.11.2021
 
 Константин Кинчев - Белый шум (2021) 2xCD [FLAC|Lossless|image + .cue] <Rock>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:869C75060ED873D071D4F524AF483059B088DAD0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6838DB4EF3A792E8A506EABCA619BF5FE0385F69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505118   (806442) от 26.10.2021
-
-Павел Колесник (Август) - Всему свой срок (2017) Limited Edition, Reissue, Remastered, 2020, OldWise Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806442.jpg" />
-</div>
-
-
-###  Подробнее
-
-1		Всему Свой Срок	4:54
-2		На Гребне Волны	5:59
-3		Время Покажет	5:10
-4		Ну И Что	4:20(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901F912CF16499B7A330AEC9A9852F662117C69C
 ```
 
 

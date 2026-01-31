@@ -1,3 +1,327 @@
+###  Публикация: 1282879   (793346) от 30.05.2020
+
+The Strokes - 6 Albums (2001 - 2020)  [FLAC|Lossless|tracks + .cue|image + .cue] <Indie Rock, Garage Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793346.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыку The Strokes очень легко описать двумя словами - это нью-йоркский рок-н-ролл. Участники группы родились и выросли в Нью-Йорке, на Манхэттене, что и позволило им стать квинтэссенцией всех нью-йоркских групп: это вся агрессивность серых тротуаров, упакованная в холодную надменность черной кожи. В их музыке можно услышать и угловатые гитарные перепалки Television, (   Читать дальше...   )Список альбомов:
+2001 - Is This It
+2003 - Room On Fire
+2006 - First Impressions Of EarthЖанр: Indie Rock, Garage Rock, AlternativeПродолжительность: 04:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C70E676A73BE801B8E248852D77DB5B4E8CFE17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122750   (793378) от 06.04.2017
+
+Devilment - II - The Mephisto Waltzes (2016) [FLAC|Lossless|image + .cue] <Extreme Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judasstein 05:21
+02. Hitchcock Blonde 04:09
+03. Under The Thunder 05:19
+04. Full Dark, No Stars 06:23(   Читать дальше...   )Жанр: Extreme Metal, Gothic MetalПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E04A013E9061B2EA23C7AA9D8E5F76EB33F171B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386720   (793395) от 30.05.2020
+
+Александр Ф. Скляр - Песни во время чумы (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На Молдаванке 4 апреля
+2. Не влюбляйтесь 5 апреля
+3. Годы мчатся 6 апреля
+4. Глупо я и сделал 7 апреля(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAA193F375940B2BF772E79DC64B3A01B77B81E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386705   (793413) от 30.05.2020
+
+John Fogerty - Fogerty's Factory (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Centerfield (Fogerty’s Factory Version) (3:54)
+02. Have You Ever Seen The Rain (Fogerty’s Factory Version) (2:37)
+03. Long As I Can See The Light (Fogerty’s Factory Version) (2:56)
+04. Down On The Corner (Fogerty’s Factory Version) (2:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010920FA0E0841C04C79DFE3331B1FDFD78F8B8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122701   (793424) от 06.04.2017
+
+Ruxt - Behind The Masquerade (2016) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:51)
+02. Scare My Demons (05:54)
+03. Soul Keeper (05:30)
+04. Spirit Road (04:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADC6D5F1ED9D8FEFB8A5DB734F809404148877C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386821   (793459) от 30.05.2020
+
+Donovan - Sunshine Superman (1967) Remastered, 2005, Mono [FLAC|Lossless|tracks + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunshine Superman — третий студийный альбом британского певца-исполнителя Донована. Релиз пластинки состоялся в сентябре 1966 года в США, но альбом не был выпущен в Великобритании из-за контрактных споров. Вместо этого там в июне 1967 года был издан сборник, состоявший из материалов альбомов Sunshine Superman и Mellow Yellowruen, но вышедший под названием Sunshine (   Читать дальше...   )01. Sunshine Superman (3:17)
+02. Legend of a Girl Child Linda (6:54)
+03. Three Kingfishers (3:18)
+04. Ferris Wheel (4:15)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ABF99E956AA64D9C7CED9BDF8DFFCBFFEEDFBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122735   (793510) от 06.04.2017
+
+George Lynch - Shadow Train (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe 06:11
+02. Blinded 03:52
+03. Fallen 05:08
+04. Glitter 04:48(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6243EBEC77C629A7C18EA608D456642E701EE81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 179973   (793545) от 13.11.2021
+
+Евгений Маргулис (Шанхай) - 3 альбома  (2001,2007,1998) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Блюз для Анны
+02 - Да и нет
+03 - Джаз
+04 - Земляничные поляны(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E80BEF02BA0C425888271DB192CB5190ACBE3BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386563   (793566) от 30.05.2020
+
+Jerry Lee Lewis - Live At The Star-Club Hamburg (1964) Reissue, 1984, Bear Family Records [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Woman Blues (4:02)
+02. High School Confidential (2:26)
+03. Money (4:39)
+04. Matchbox (2:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA6DD9EA0FB52FA68A7FC222C632C8AE9A931BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386781   (793574) от 30.05.2020
+
+Love - Forever Changes (1967) Stereo [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Love - американская рок-группа конца 60-х и начала 70-х годов. Лидеры группы - вокалист, автор текстов и гитарист Артур Ли и второй автор текстов и гитарист Брайан МакЛин. В их музыке соединились элементы рок-н-ролла, гаражного рока, фолка и психоделии. Довольно умеренная успешность группы не идет ни в какое сравнение с тем, насколько высоко оценивается её творчество (   Читать дальше...   )01. Alone Again Or (3:16)
+02. A House Is Not A Motel (3:32)
+03. Andmoreagain (3:18)
+04. The Daily Planet (3:31)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 01:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:325CD70B2CDF520E90FD167CEA1733679F2D8B53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122895   (793619) от 06.04.2017
+
+SIG:AR:TYR - The Stranger (2003) [FLAC|Lossless|WEB-DL|tracks] <Epic Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793619.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. At The Gates (04:56)
+2. The Stranger (04:51)
+3. Against The Grail (05:28)
+4. Orion Awaits (09:05)(   Читать дальше...   )Жанр: Epic Viking MetalПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDADB2457F33631C8FAB27E6D94E7500959F5C36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122773   (793620) от 06.04.2017
+
+Blaze Bayley - Endure And Survive (Infinite Entanglement Part II) (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endure And Survive 04:27
+02. Escape Velocity 03:27
+03. Blood 04:41
+04. Eating Lies 04:48(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2C36321888E6B4DD3CEC103BA17E9B83D3085C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122626   (793623) от 06.04.2017
 
 The Crest - Letters From Fire (2002) [FLAC|Lossless|image + .cue] <Gothic Rock>
@@ -369,330 +693,6 @@ YOAV - Blood Vine (2012) [FLAC|Lossless|tracks + .cue] <Alternative, Electronic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8A5A9CF0209D33CB4244F9A6FD4C4A8FE56C1FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386619   (793787) от 30.05.2020
-
-The Monks - Black Monk Time (1966) Remastered, 1997, Infinite Zero [FLAC|Lossless|tracks + .cue] <Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monk Time (2:46)
-02. Shut Up (3:16)
-03. Boys Are Boys and Girls Are Choice (1:27)
-04. Higgle-Dy-Piggle-Dy (2:31)(   Читать дальше...   )Жанр: Garage Rock, Classic Rock, Psychedelic RockПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED994443296B563E8266D43F39EF86D6DCBB870
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386545   (793794) от 30.05.2020
-
-Abigail Williams - Walk Beyond the Dark (2019) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Depart (8:02)
-02. Sun And Moon (6:56)
-03. Ever So Bold (4:06)
-04. Black Waves (10:43)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9112FAB28815FC6A17067F6FAED9901A14D41726
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386624   (793795) от 30.05.2020
-
-Paul Revere & The Raiders - Midnight Ride (1966) Reissue, 2000, Sundazed Music [FLAC|Lossless|tracks + .cue] <Garage Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kicks (2:31)
-02. There's Always Tomorrow (2:47)
-03. Little Girl In The 4th Row (3:12)
-04. Ballad Of A Useless Man (2:17)(   Читать дальше...   )Жанр: Garage Rock, Pop RockПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE775D44539AA741AA8A370C0D17887D9E0C1B0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386777   (793797) от 30.05.2020
-
-Tim Buckley - Goodbye And Hello (1967) Reissue, 2000, Elektra [FLAC|Lossless|tracks + .cue] <Folk Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Man Can Find The War (3:00)
-02. Carnival Song (3:13)
-03. Pleasant Street (5:18)
-04. Hallucinations (4:54)(   Читать дальше...   )Жанр: Folk Rock, Psychedelic RockПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:402C359A0DA3FD4D93EB9F753A3012C15E229C27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386474   (793799) от 30.05.2020
-
-Spheric Universe Experience - Anima (2007) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sceptic (6:31)
-02. Being (2:32)
-03. The Inner Quest (5:38)
-04. Neptune's Revenge (6:59)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5979BF06D2E3AD175FBED7213E7011A8B65215
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012448   (793821) от 01.05.2016
-
-Sam Spades - Wolf (2014) [FLAC|Lossless|WEB-DL|tracks] <Rock, Rockabilly, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793821.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Last Call (03:06)
-2. Home (03:15)
-3. Simple Lies (03:13)
-4. Wolf (02:27)(   Читать дальше...   )Жанр: Rock, Rockabilly, Rock & Roll, Ballad, Rock BalladПродолжительность: 00:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADC29F4B7872EB3DE1343E59B98D9CFC80C41B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509420   (793969) от 13.11.2021
-
-Dave Gahan & Soulsavers - Imposter (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dark End Of The Street (2:35)
- 02. Strange Religion (3:53)
- 03. Lilac Wine (4:15)
- 04. I Held My Baby Last Night (3:35)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BB6C02852E7E177154554B51590CCB17E8BEB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201093   (794004) от 23.01.2018
-
-In This Moment - А Stаr-Сrоssed Wаstelаnd (2010) Japanese Edition, 2015, King Records [FLAC|Lossless|image + .cue] <Alternative Metal, Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gun Show (4:46)
- 02. Just Drive (3:27)
- 03. The Promise (4:28)
- 04. Standing Alone (3:51)(   Читать дальше...   )Жанр: Alternative Metal, Melodic MetalcoreПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CE503479052534E8D49DB29B0674923DCFC96C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200992   (794015) от 23.01.2018
-
-AVRELA - Скоро рассвет (2018) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. Скоро рассвет
-03. Дай руку мне
-04. Нас распяли на звёздах(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA50EEAD267CA19821307C370945E1609C4C9CEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200956   (794019) от 23.01.2018
-
-Jack Johnson - All the Light Above It Too (2017) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic, Folk, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subplots 04:29
-02. You Can't Control It 04:09
-03. Sunsets For Somebody Else 03:30
-04. My Mind Is For Sale 03:59(   Читать дальше...   )Жанр: Rock, Acoustic, Folk, AlternativeПродолжительность: 00:38:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E917A8DD716F5D73376579C7A506F1DF85E14F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201202   (794021) от 23.01.2018
-
-Kreolis - Театр Вампиров (2018) [MP3|320 Kbps] <Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перед вами проект группы KreoliS – метал-опера «Театр Вампиров», написанная по мотивам романа писательницы Энн Райс «Интервью с вампиром», также широко известному своей экранизацией 1994 года. Это драматическая история, затрагивающая самые волнительные струны души  каждого из нас - поиски себя, поиски истины, возможность сделать выбор, способный круто изменить всю (   Читать дальше...   )01. Пролог
-02. Проклятие
-03. Таинство древнего мира
-04. Последний рассвет(   Читать дальше...   )Жанр: Metal OperaПродолжительность: 01:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A31DA2D307FF2BD8B63EA320A09896B56104722
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201043   (794066) от 23.01.2018
-
-Der W - IV (2016) [MP3|320 Kbps] <Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neuland (Erinnerung Ist Sperrgepack)
-02. Mehr!
-03. Zeit
-04. Justitia(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24DC1EABE66F3F1FF9897F79132EA22369560FD6
 ```
 
 

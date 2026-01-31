@@ -1,3 +1,84 @@
+###  Публикация: 1463469   (1019967) от 21.04.2021
+
+Bonnie Tyler - Goodbye to the Island (1981) Reissue, 2010, 7T's Records [FLAC|Lossless|tracks + .cue] <Pop, Pop-Rock, Ballad, AOR>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019967.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I'm Just a Woman (5:08)
+2. We Danced on the Ceiling (4:56)
+3. Wild Love (4:36)
+4. The Closer You Get (3:49)(   Читать дальше...   )Жанр: Pop, Pop-Rock, Ballad, AORПродолжительность: 0:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACC4A5436984637A0675F8818FF59377D46779E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464010   (1019980) от 21.04.2021
+
+Imelda May - 11 Past The Hour (2021) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 11 Past The Hour (3:59)
+02. Breathe (3:39)
+03. feat. Ronnie Wood, Gina Martin & Dr. SholaMos-Shogbamimu - Made To Love (3:25)
+04. Different Kinds Of Love (3:01)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1306ACEC58C7DE10E4E60526C0F1C6408F677BFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464180   (1019988) от 21.04.2021
+
+Mantus - Midnight Energy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (Dance It) Freestyle Rhythm (9:33)
+02. Midnight Energy (5:22)
+03. Rock It To The Top (9:25)
+04. I'm So In Love With You (5:32)Жанр: Electronic, Disco, Hi-NRGПродолжительность: 00:29:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F721335EC81495AF8801FD061E3DBABB702119AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464225   (1019998) от 21.04.2021
 
 Citizen Gang - Citizen Gang (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -614,87 +695,6 @@ VA - Billboard - Top 500 Songs of the 90s (2021) [MP3|320 Kbps] <Pop, Rock, R&B,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02A0F0FA1CC42421D4AD1FD3BC46C0F229FF4175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462164   (1021284) от 13.04.2021
-
-VA - Лучшие танцевальные хиты (2003) [FLAC|Lossless|tracks + .cue]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дискотека Авария - ХХХИРНР
-02. Eminem - Without Me
-03. Drunkenmunky - E ( As In Eveline )
-04. Плазма - You'll Never Meet An Angel(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB48188B81A64F3A2C823ABE888C6E65FA961D63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462074   (1021297) от 13.04.2021
-
-SEVENROSE - 4 альбома (2020) [MP3|~245 Kbps (V0)] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Семь роз (4:03)
-02. Просто будь (3:55)
-03. Зима (4:08)
-04. Тополиный пух (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 02:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:954A38292ABA5FBD0039E6256E30746D3FFFA412
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462257   (1021310) от 13.04.2021
-
-VA - Profondo Nero (compiled by Cinema Royale) (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synthpop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louise Freeman - Mirage (6:44)
-02. Mark - Dreamland (6:23)
-03. Loukas Thanos - Jazzburger (4:06)
-04. Galvanica - Nightlights In Japan (6:17)(   Читать дальше...   )Жанр: Italo-Disco, SynthpopПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE8BD89E3FA69DB22DCA5A4A148CF5B86D58CD57
 ```
 
 

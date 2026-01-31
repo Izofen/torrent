@@ -1,3 +1,192 @@
+###  Публикация: 1116825   (821056) от 21.03.2017
+
+Shiva - Hand Of Fate (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Hand Of Fate (Reprise) [00:02:15]
+02 -  Cantara. Part 2 [00:06:18]
+03 -  Little Shiva [00:05:30]
+04 -  Hand Of Fate [00:06:20](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10809B03779A9F136EB9B20F4B801353C0694DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502978   (821223) от 18.10.2021
+
+Richard Clayderman - Tango Passion (1996) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он родился 28.12.1953 в Париже, его настоящее имя Philippe Pagès, но весь мир его знает, как Richard Clayderman. Он записал более 1300 мелодий, на 2006 год число его проданных альбомов составляло приблизительно 150 млн экземпляров, которые принесли 267 золотых и 70 платиновых сертификатов. Книга Рекордов Гиннесса отметила его, как "самый успешный пианист (   Читать дальше...   )01. La Cumparsita (3:16)
+02. Mano A Mano (3:17)
+03. El Choclo (3:05)
+04. Volver (2:55)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAC747DB086267D2534CCD90140EFAF33E948D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116427   (822217) от 20.03.2017
+
+Me and That Man - Songs Of Love And Death (2017) [MP3|320 Kbps] <Country Rock, Folk, Blues>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект Nergal'а - лидера группы BEHEMOTH01. My Church Is Black (02:58)
+02. Nightride (02:08)
+03. On The Road (04:17)
+04. Cross My Heart And Hope To Die (04:58)(   Читать дальше...   )Жанр: Country Rock, Folk, BluesПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934707621C1D0A37509F3D79B4118B7A4F5B379B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196497   (822302) от 03.01.2018
+
+VA - Latino 2018 [MP3|320 Kbps] <Dancehall, Flamenco, Salsa>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_822302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Fonsi - Despacito 3:49
+02. Nacho - Bailame 3:27
+03. Sebastian Yatra - Alguien Robo 3:44
+04. Cali Y El Dandee - La Estrategia 3:39(   Читать дальше...   )Жанр: Dancehall, Flamenco, SalsaПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1423E457BD8CA64E63E057B3D570789E1C00F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116767   (822340) от 20.03.2017
+
+VA - Acoustic Covers Playlist (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - All of Me
+02. Meg Birch - Rude - Acoustic Version
+03. Hannah Dorman - Human - Acoustic Version
+04. Thom Cooper - Buck Rogers - Acoustic Version(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3406C96A55C40F44D1D4A0E79A74C7C0D651EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116142   (822469) от 20.03.2017
+
+VA - Deep Level Yoga Relaxing Sound of Nature, Oriental Massage Yoga (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindfulness Meditation Music Spa Maestro - Deep Level Yoga
+02. Massage Wellness Moment - Slow Life (Nature Sounds)
+03. Soul Therapy Group - Stay Fit with Hatha Yoga
+04. Nature Sound Paradise - Open Your Mind(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE07DB75CDA8CA17A8F46F320DEA8EB1CC8F736
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115382   (822475) от 20.03.2017
+
+Alan Menken & VA - Beauty and the Beast / Красавица и чудовище (Original Motion Picture Soundtrack) (2017) Deluxe Edition [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_822475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Menken - Overture (03:06)
+02. Alan Menken - Main Title: Prologue Pt. 1 (00:43)
+03. Audra McDonald - Aria (01:03)
+04. Alan Menken - Main Title: Prologue Pt. 2 (02:22)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:11:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32F18EFAF754743095426E6FDD9CED03DB5E05F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116501   (822476) от 20.03.2017
 
 Болот Байрышев - 2 альбома (2012) [FLAC|Lossless|tracks + .cue] <World Music, Ethno, Throat Singing, Altai Горловое пение>
@@ -505,192 +694,6 @@ James Bay - Chaos And The Calm (2015) [FLAC|Lossless]<Indie Pop, Indie Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9332A0865A94EF484B0D8F4F3EFFF351CEDB2440
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114707   (826060) от 18.03.2017
-
-Voez (2016) [FLAC 2.0|24/44|WEB-DL|tracks] <OST, Pop, Instrumental>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colorful Voice (2:49)
-02. Give (4:25)
-03. Half Way (3:15)
-04. Hope (3:37)(   Читать дальше...   )Тип издания: CommercialПроизводство: Rayark Inc.Жанр: Pop, InstrumentalПродолжительность: 00:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D72F2BBE9A7C4552BB15484BF09D55C4B5BFA8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381434   (826145) от 07.05.2020
-
-Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 02:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A33BC7A98B0EEFBF1B3C8F67F946FEC0E24C5AD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115193   (826167) от 18.03.2017
-
-VA - Acoustic Covers 90s (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo – Wicked Game
-02. Ginnie – I Can’t Make You Love Me – Acoustic Version
-03. Thom Cooper – Don’t Look Back in Anger – Acoustic Version
-04. Anjali Joseph – Angel(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07AD4569EDB3493B86E57CDB8EE3B5DB8D79CE15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 880093   (826190) от 24.03.2015
-
-Paul Ruskay - Homeworld 2 Remastered Soundtrack (2015) [FLAC|Lossless]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening
-02. The Pride of Hiigara
-03. Tanis Base
-04. Vaygr Bombers Approaching(   Читать дальше...   )Жанр: OSTПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A20285804D89E0ED8B3570F16F9BB2BEF7CB6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115223   (826452) от 18.03.2017
-
-Equador - Bones Of Man (2016) [MP3|320 Kbps] <Ambient, Electronic, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bones Of Man
-02. Avalon
-03. Symmetry
-04. Blood(   Читать дальше...   )Жанр: Ambient, Electronic, DowntempoПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A4BE6F9FA43F71C0765F31389DF21AD25D22B18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006491   (826905) от 12.04.2016
-
-Motoi Sakuraba, Yuka Kitamura - Dark Souls III (Original Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_826905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premonition [02:05]
-02. DARK SOULS III [02:46]
-03. Prologue [03:07]
-04. Firelink Shrine [03:07](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585978F3326C588AAD67E13B66714393A67BE21A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381201   (827649) от 06.05.2020
-
-Power Glove - Far Cry 3 Blood Dragon OST (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_827649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rex Colt [1:47]
-02. Blood Dragon Theme [3:04]
-03. HELO-73 [1:17]
-04. Warzone [2:37](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 1:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE95613D43D82C93454FE6A4543623743EC659E4
 ```
 
 

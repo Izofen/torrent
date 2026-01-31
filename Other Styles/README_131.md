@@ -1,3 +1,192 @@
+###  Публикация: 1014389   (776486) от 07.05.2016
+
+Dagaz - Reflection Of The Soul (2014) [FLAC|Lossless|tracks] <New Age, Downtempo, Chill Out>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay With Me    03:38
+02. Silver Lights    04:42
+03. Philadelphia    04:34
+04. Reflection Of The Soul    03:41(   Читать дальше...   )Жанр: New Age, Downtempo, Chill OutПродолжительность: 00:01:20:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:023EAF47CA71B3DDD4A5A82F8F426F35ADF22367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014351   (776494) от 07.05.2016
+
+Orbis Mundi - Adia (2000) [FLAC|Lossless|tracks] <New Age, Folk Rock, Modern Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talking Violin    03:29
+02. Olushegun    03:43
+03. Orbis Mundi    03:54
+04. Theme from Orbis Mundi    03:32(   Читать дальше...   )Жанр: New Age, Folk Rock, Modern ClassicalПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C37661A547F453042E57E1395BD7A02B304CEE2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014533   (776530) от 07.05.2016
+
+Sverre Knut Johansen - Earth From Above (2016) [MP3|320 кб/с] <Ambient, New age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (Skymood)
+02. Flying Birds
+03. Lost
+04. Awakening(   Читать дальше...   )Жанр: Ambient, New age, ElectronicПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6FE63BA78E6EEAB3EA858572A2CD4C0DF8FFB1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014409   (776559) от 07.05.2016
+
+Michael Sheehan - Radiance (2004) [MP3|320 кб/с] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early Morning    08:42
+02. Sunrise    05:12
+03. A Walk On Forgotten Shores    03:59
+04. Radiance    09:03(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92910E2DD6AC7F9B7632D21D89727B18BB110712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211696   (776661) от 09.03.2018
+
+Audiomachine - Volturnus (2018) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical Crossover>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Protect and Defend [02:38]
+02. Redshift [03:54]
+03. Subversive Deed [03:14]
+04. Divine Hammer [02:32](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:08:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E73897B238AD9BF9B577EAF2869886F10AFFCBD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211695   (776673) от 09.03.2018
+
+Audiomachine - Life (2017) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical Crossover>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promises to Keep [02:17]
+02. Reunited [02:36]
+03. Remember Not to Forget [03:13]
+04. Try Again Tomorrow [03:09](   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 01:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34A199277BFC8C4759BE2EFCF713EB952B50E141
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211571   (776874) от 09.03.2018
+
+Jeff Grace - Cold in July (2014) [FLAC|Lossless] <Soundtrack, Electronic>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776874.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wait (2006 Remastered LP Version) – White Lion
+2. Intruder
+3. Whole Lot Like You
+4. Crank Call and Break-In(   Читать дальше...   )Жанр: Soundtrack, ElectronicПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA855CFCF7E72402BC0DD8A7C275699686673EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014176   (776889) от 06.05.2016
 
 Ani Yun Wiya - Indian Nation (2016) [MP3|320 кб/с] <World, Native American, Enigmatic, New Age>
@@ -506,195 +695,6 @@ Salvador Candel - Armonia (2016) [MP3|320 кб/с] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B908D78504836CDB5B03835EA78DEE93AADC7B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211108   (778069) от 05.03.2018
-
-ДиДюЛя & Chris Wonderful - Аквамарин (2017) [FLAC|Lossless|image + .cue] <Instrumental, Flamenco, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свадебное путешествие (4:16)
-02. Страна дураков (3:59)
-03. Белый месяц (3:41)
-04. Посох шамана (3:48)(   Читать дальше...   )Жанр: Instrumental, Flamenco, New AgeПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50895595C4F6B115FF169FE69F992B65446617D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210964   (778148) от 05.03.2018
-
-Guy Sweens - The Best of Guy Sweens (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Son of Krishna (6:50)
-02. Human Nature (7:25)
-03. In Search of the Truth (8:06)
-04. Dhamma (7:25)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EF6BD4B6D9259D011D4DC11260B5A9544DA28C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210916   (778166) от 05.03.2018
-
-Arthur Fieldler & The Boston Pops - Pop Concert Favorites (1992) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stars and Stripes Forever (Sousa) (3:27)
-02. The Syncopated Clock (2:21)
-03. Home On the Range (3:15)
-04. Yankee Doodle (2:33)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4944A80D033C4786762616683AD6799CAD6231DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012754   (778285) от 02.05.2016
-
-Андрей Данилко - После тебя... (2005) [FLAC|Lossless|image + .cue] <Pop, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Отрываясь от земли (5:40)
-02. Весна (4:00)
-03. Собирая жёлтые листья (3:53)
-04. 22 (4:50)(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B19A48762073533024599D9A7BC27FEEB39274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012796   (778332) от 02.05.2016
-
-Will Brady - 3 альбома (1997-2009) [MP3|192 кб/с] <Instrumental, Blues, New-age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental, Blues, New-ageПродолжительность: 00:24:55
-
-01. Mr Gibson
-02. La Llorona(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEF4A207FB9F5622E5A81E28605985B5EABC0801
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012703   (778361) от 02.05.2016
-
-Medwyn Goodall - Eagle Spirit (1996) [FLAC|Lossless|tracks] <New Age, Celtic, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagle Spirit    11:13
-02. Sacred Companion    07:46
-03. And Wings to Protect You    04:14
-04. Watcher of Heaven    07:57(   Читать дальше...   )Жанр: New Age, Celtic, InstrumentalПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE95D445FCB04063321E1FC57CA4EC0C9297559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210692   (778474) от 04.03.2018
-
-Francis Goya - Collection 2CD,  (2005) [FLAC|Lossless|image + .cue] <Acoustic Guitar, Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Story (3:33)
-02. El Condor Pasa (3:12)
-03. Those Were The Days (3:10)
-04. Zorba's Dance (4:31)(   Читать дальше...   )Жанр: Acoustic Guitar, Instrumental, FlamencoПродолжительность: 02:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D71B449632E79E20B436840030E489E74F6B818E
 ```
 
 

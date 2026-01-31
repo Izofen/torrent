@@ -1,3 +1,30 @@
+###  Публикация: 1103431   (885953) от 12.02.2017
+
+VA - Big Room Party Here (2017) [MP3|320 Kbps] <House, Electro House, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deugene - Deadliest Sound (Original Mix)  3:38
+02.  Aleo - Haribda (Original Mix)  4:27
+03.  Aho Andrian - Rain (Original Mix)  3:46
+04.  Batller - Beats On Fire (Extended Mix)  3:59(   Читать дальше...   )Жанр: House, Electro House, Big RoomПродолжительность: 04:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82DE1DD8D3DDB521337054FE4E1EE20F5CC08E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103143   (885972) от 12.02.2017
 
 VA - Vocal House Sessions Vol.14 (2017) [MP3|320 Kbps] <House, Vocal House>
@@ -667,33 +694,6 @@ Sundaze - Saturnia (2020) Melusine Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8136DCB37BDB8DC788266105017CB8DE9000812A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371712   (888573) от 01.04.2020
-
-VA - Armada Music - Decade (2010-2020) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loud Luxury feat. Brando - Body 2:43
-02. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like 3:24
-03. Lost Frequencies & Zonderling - Crazy 2:33
-04. Thomas Gold feat. Jillian Edwardss - Magic 2:51(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 03:15:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FBA697CA3D1F19012BB783991C1B40E883E29F
 ```
 
 

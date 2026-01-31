@@ -1,3 +1,30 @@
+###  Публикация: 1110560   (852274) от 03.03.2017
+
+VA - Electro Story Grounds (2017) [MP3|320 Kbps] <House, Trance, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blasterjaxx & Jonathan Mendelsohn - Black Rose (Blasterjaxx Club Mix)  3:47
+02.  Dimitri Vegas & Like Mike ft. Deb's Daughter vs. Diplo - Hey Baby (Blasterjaxx Remix)  5:40
+03.  Mark Edward Hilder - Bad Bitch (Original Mix)  4:17
+04.  Frontload & Nicci - Osiris (Original Club Mix)  4:33(   Читать дальше...   )Жанр: House, Trance, Club, DanceПродолжительность: 02:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3622A340FA909B4533CD98EFF33B811E515B71B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001677   (852284) от 29.03.2016
 
 Борис Рахлин - Для друга Миши (1970) [MP3|320 кб/с] <Shanson>
@@ -664,33 +691,6 @@ VA - Empire Records - ANDRS Parody 2 (2017) [MP3|320 Kbps] <Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D390C709B82CBB24375A46FCE507EA8CA7FC652
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001350   (853860) от 28.03.2016
-
-VA - Cookies With A Smile: Ibiza Deep House (2016) [MP3|320 кб/с] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853860.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Muovo - Green Granada 07:55
-002. Benny Camaro - Cуmo Suena 05:51
-003. Ernesto vs Bastian - Dark Side Of The Moon (Axwell & Sebastian Ingrosso Re-Mode) (feat. Susana) 05:46
-004. Hardwell - Storage 08:02(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096108DBCCCB88B2F2945E3DC96EC72922AD0772
 ```
 
 

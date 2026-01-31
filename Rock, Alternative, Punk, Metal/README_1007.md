@@ -1,3 +1,327 @@
+###  Публикация: 1016749   (769622) от 15.05.2016
+
+Jane Air - Unreleased'n'Live (2016) [MP3|320 кб/с] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Стёкла стекла
+02. Обрывки (Demo version)
+03. Не забывай меня
+04. Новый год одна(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D626344B57369EBB061DBBBC5F76F119F0208D66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016827   (769629) от 15.05.2016
+
+Joe Cocker - One Night Of Sin (1989) [FLAC|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Night Comes
+02. I Will Live For You
+03. Got To Use My Imagination
+04. Letting Go(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D32B767778A83A0AC68A83AB3574FAA5F815F8E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016806   (769632) от 15.05.2016
+
+Joe Cocker - Cocker (1986) [FLAC|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shelter Me
+02. A To Z
+03. Don't You Love Me Anymore
+04. Living Without Your Love(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E94BA782CD23F5C1A288760E6CC7D98B81C5D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016816   (769634) от 15.05.2016
+
+Joe Cocker - Unchain My Heart (1987) [APE|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain My Heart
+02. Two Wrongs
+03. I Stand In Wonder
+04. The River's Rising(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2882BBE137EEDE7806C2BBE707C562AAA07936C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016698   (769686) от 15.05.2016
+
+Joe Cocker - Civilized Man (1984) [FLAC|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Civilized Man
+02. There Goes My Baby
+03. Come On In
+04. Tempted(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1992253158365C41564DD10923C669F84682A315
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 689482   (769718) от 24.06.2020
+
+Blue October - Sway (2013) [MP3|320 кб/с]<Alternative, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe, It's Over 01:12
+02. Sway 04:45
+03. Angels In Everything 04:23
+04. Bleed Out 03:52(   Читать дальше...   )Жанр: Alternative, Modern RockПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A91190884245E7E7376F7B905E156A7123A80D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016943   (769743) от 15.05.2016
+
+Mindwarp - A Cold Black Day (2016) [MP3|320 кб/с] <MDM>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769743.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cold Analysis
+2. Black Day
+3. Descent To Hell
+4. A Current World(   Читать дальше...   )Жанр: MDMПродолжительность: 00:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF596A50F5F8A534A4EF1AA3A0C48A2C48891642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 885843   (769783) от 09.04.2015
+
+VA - The Ultimate History Of Rock 'N' Roll Collection (1997) 10CD, Box Set [MP3|320 кб/с]<Rock & Roll, Soul, Disco, Rhythm & Blues, Rockabilly, Doo Wop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Richard - Good Golly Miss Molly (2:08)
+02. Johnny Otis - Willie And The Hand Jive (2:41)
+03. The Diamonds - Little Darlin' (2:10)
+04. The Crests - 16 Candles (2:57)(   Читать дальше...   )Жанр: Rock & Roll, Soul, Disco, Rhythm & Blues, Rockabilly, Doo Wop|Продолжительность: 06:45:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFF24997D50AC0840A6954BD8153E55227D6019E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392141   (769875) от 24.06.2020
+
+Hum - Inlet (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waves (05:31)
+02. In the Den (06:45)
+03. Desert Rambler (09:02)
+04. Step Into You (04:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC6CC5BD69B06118168DF674CBAD73D8072923A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392195   (769892) от 24.06.2020
+
+Omar Rodriguez-Lopez - The Clouds Hill Tapes, Pt. I (2020) [MP3|320 Kbps] <Psychedelic Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769892.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roman Lips (02:35)
+ 2. Fishtank (03:15)
+ 3. Bitter Tears (04:52)
+ 4. Houses Full Of Hurt (03:22)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9931EFF8894025C255BDEE6E778127E160F6F981
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392081   (769894) от 24.06.2020
+
+Sports Team - Deep Down Happy (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lander (02:36)
+ 02. Here It Comes Again (02:17)
+ 03. Going Soft (03:23)
+ 04. Camel Crew (03:34)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6104E6F9DFCC2D0AEC5972ECFB411C8919A6A97D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016370   (770141) от 14.05.2016
+
+Бахыт-компот - Крепленый компот из молодильных яблок (2016) [MP3|320 кб/с] <Alternative Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_770141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Панк
+02. Ты
+03. Кладбищенская клубника
+04. Ежевика, бабье лето(   Читать дальше...   )Жанр: Alternative Rock, Punk RockПродолжительность: 01:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FCE01E36EB08267D2281CD3A1E57E80AEEB8D6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016381   (770144) от 14.05.2016
 
 Александр Ф. Скляр и Ва-Банкъ - Ястреб (2016) [MP3|320 кб/с] <Rock>
@@ -371,327 +695,6 @@ magnet:?xt=urn:btih:F74E6AA332BA2F1D6D2AF26AFCB9C0F08E17A4B6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B18DD127836EB16A5FC4BBED2D6763C90AA9F514
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016144   (771462) от 13.05.2016
-
-DevilDriver - Trust No One (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Melodic Death, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Testimony of Truth (4:42)
-02. Bad Deeds (3:46)
-03. My Night Sky (4:28)
-04. This Deception (3:47)(   Читать дальше...   )Жанр: Melodic Death, Groove MetalПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031710F55CC5B2CE80B15502DF155333BEB8C371
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016208   (771466) от 13.05.2016
-
-DevilDriver - Trust No One (2016) Special Edition [MP3|320 кб/с] <Groove, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Testimony Of Truth (4:44)
-02. Bad Deeds (3:47)
-03. My Night Sky (4:29)
-04. This Deception (3:48)(   Читать дальше...   )Жанр: Groove, Melodic Death MetalПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B02ABB0AA378B938B9B826E6837C4AD65C3AE29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016026   (771484) от 13.05.2016
-
-Hatebreed - The Concrete Confessional (2016) [MP3|320 кб/с] <Thrash Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A.D.
-02. Looking Down The Barrel Of Today
-03. Seven Enemies
-04. In The Walls(   Читать дальше...   )Жанр: Thrash Metal, HardcoreПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943C49A185B59B2D54684E5A2720DE31D28A9F5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016190   (771486) от 13.05.2016
-
-Hatebreed - The Concrete Confessional (2016) [FLAC|tracks|WEB-DL]<Hardcore, Thrash Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771486.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:50] 01. A.D.
-[02:41] 02. Looking Down The Barrel Of Today
-[02:05] 03. Seven Enemies
-[02:10] 04. In The Walls(   Читать дальше...   )Жанр: Hardcore, Thrash Metal, MetalcoreПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FA7DCAC31FA2ADC6BCEEFF342FA967957B9A85
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278508   (771582) от 25.01.2019
-
-Калинов Мост - Даурия (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даурия – это старинное название Забайкалья, где-то век XVI-XVII. Всё, что находилось за Байкалом – называлось Даурия, по названию одного из племен – Дауров. Царские посланники шли за Байкал, искали серебро и олово – по этим речкам сплавлялись, добирались туда, и потом начиналось заселение Забайкалья.1. Летят Вороны
-2. Даурия
-3. До Улет
-4. Только Здесь(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A47599C4A297C13F55F5F40F20EB4F211EC10288
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016283   (771612) от 13.05.2016
-
-Exmagician - Scan The Blue (2016) [MP3|320 кб/с] <Psychedelic Rock, Psychedelic Pop, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss That Wealth Goodbye
-02. Bend With The Wind
-03. Place Your Bets
-04. Desperado(   Читать дальше...   )Жанр: Psychedelic Rock, Psychedelic Pop, Indie RockПродолжительность: 00:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8868B318828AAFC7AA98302B98AE27E8EDF9525F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213433   (771624) от 16.03.2018
-
-Lumen - Забытое и найденное (2018) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Домой
-02. Пули
-03. Вечность
-04. Самый главный человек(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6495F9C46CA0EDF3159EE8A34FF53AFFDDC2820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278388   (771711) от 25.01.2019
-
-Santana - In Search of Mona Lisa (2019) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771711.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Do You Remember Me
-2. In Search Of Mona Lisa
-3. Lovers From Another Time
-4. Do You Remember Me (Edit Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA5C7B4C00333647A3D5103F47F0D7332751283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211262   (771760) от 16.03.2018
-
-Возвращение - Глубина (2018) [MP3|320 Kbps] <Acoustic Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Уходил по ягоды
-02. Кукла (feat. Ольга Надеждина)
-03. Айно (feat. Роман Ломов)
-04. Фиолент(   Читать дальше...   )Жанр: Acoustic Folk RockПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623B1CECB82795E188BA68058A288A009419AB1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885481   (771805) от 07.04.2015
-
-VA - A Tribute To Iron Maiden (1997 - 2011) [MP3|192-320 кб/с]<NWOBHM, Heavy, Death, Thrash, String>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: NWOBHM, Heavy, Death, Thrash, StringПродолжительность: 24:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF48A7D86E3D4CD3C9869586A094AD57DC4A435C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278364   (771827) от 25.01.2019
-
-Alice Merton - MINT (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Learn to Live (03:56)
-02. 2 Kids (03:31)
-03. No Roots (03:57)
-04. Funny Business (03:06)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5222F3ACD1F563A121EB512478E6919E98F1D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213416   (771935) от 16.03.2018
-
-Miсhael Sсhenker - А Decade Оf The Mad Aхеmаn (2018) 2CD, Compilation, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_771935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный немецкий гитарист Михаэль Шенкер (Michael Schenker), немецкий хард-рок и хэви-метал гитарист, бывший участник групп Scorpions и UFO и основатель группы Michael Schenker Group выпустил сборник “A Decade Of The Mad Axeman”, куда вошло лучшее из его студийных и концертных записей 2007-2016 годов. Двойной CD охватывает период от корней MSG до проектов Temple (   Читать дальше...   )01. Welcome Howl (Tokyo' 2010)
-02. Let Sleeping Dogs Lie (Tokyo' 2010)
-03. Rock My Nights Away (Tokyo' 2010)
-04. Attack Of The Mad Axeman (Tokyo' 2010)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:33:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADEE7F7C3347574EB90610399103715437A14374
 ```
 
 

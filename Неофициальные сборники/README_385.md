@@ -1,3 +1,36 @@
+###  Публикация: 518398   (631726) от 09.07.2012
+
+VA - Furious Dubstep Attacks From Evolinte (2012) [MP3|320 кб/с]<Dubstep, Drumstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 1Up - Thundergun
+2. Bare - The Gate
+3. Barron - Bambatta
+4. Bratkilla - Betrayal
+5. Bratkilla - Prepare For Annihilation
+6. Cenobite - Onslaught
+7. Chrispy & Point.Blank - Move Bitch
+8. Downlink - Station Seven
+9. Figure - God Slay The Fiend
+10. Friction & Nu Balance - Robocop (Taxman Robostep VIP)(   Читать дальше...   )Жанр: Dubstep, DrumstepПродолжительность: 02:17:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C9FEEA1F36E57AED5E938B7D3BED986EF19DF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520664   (631740) от 09.07.2012
 
 VA - Radio Dance Show (2012) [MP3|320 кб/с]<Pop,Dance>
@@ -680,39 +713,6 @@ VA - Back To The Future (Mixed by DJ Peretse) (2017) [MP3|320 Kbps] <House, Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6C8F8DF9AC8474A14D608C4965806F77146C0CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519141   (633314) от 08.07.2012
-
-VA - Сборник хороших хитов - Позитивный заряд - Версия 2 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633314.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Борис Шварцман - Мадемуазель
-002. Oksi - Made in China (Andi Vax remix)
-003. Лена Катина (Ex. T.A.T.U) - Never Forget You (Radio Version)
-004. Sebastian Ingrosso & Alesso - Calling (Original Instrumental Mix)
-005. Лион Feat. Макс Лоренс - Мой Милый Ангел
-006. 25-17 Feat. Дмитрий Ревякин - Корабль
-007. Virtual Vault Feat. Ice Mc - Think About The Way
-008. Митя Фомин - Хорошая Песня
-009. Ак$иС - Танцуй
-010. Денис Майданов - Ничего Не Жаль(   Читать дальше...   )Жанр: PopПродолжительность: 06:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C40F00B3D1D11131D81503BED8EBE07B19F436
 ```
 
 

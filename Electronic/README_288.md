@@ -1,3 +1,29 @@
+###  Публикация: 1152936   (561622) от 25.07.2017
+
+RecFrag - Discography 5 Releases (2011-2016) Solanic, Aliens Production [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient, Noise>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mercury Arrows (02:58)
+ 02. Proto-D (03:36)
+ 03. MembraneТип издания: WebЖанр: IDM/Industrial/AmbientПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7FE944AE122A85C9780088EBA62ACC2AF1F7275
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045164   (561664) от 22.08.2016
 
 Roman Messer - New Life (Chillout Edition) (2016) [MP3|320 Kbps] <Electronic, Chillout>
@@ -662,33 +688,6 @@ Onuka - Vidlik (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic, Folk, Ethno,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D09E75E26D43F19A88C47C6A9DB392BE1D8A5224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152733   (563282) от 24.07.2017
-
-VA - Get Physical Presents: Words Don't Come Easy, Pt. 5 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzuelle & Lars Behrenroth - Fall Into You (feat Tamara Dey - Deetron remix)[07:19]
-02. Nico Stojan - OD 30 (feat JAW) [08:45]
-03. Bedouin - Turn The Tides (12" mix) [07:53]
-04. WhoMadeWho - Hi & Low (Konstantin Sibold Alternative remix)[06:49](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E30F08DBE2D952CF1F182CB7422639130904128
 ```
 
 

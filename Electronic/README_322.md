@@ -1,3 +1,36 @@
+###  Публикация: 519115   (635626) от 07.07.2012
+
+VA - 5 Years Of Claremont 56 Compiled Edited & Mixed By The Idjut Boys (2012) [MP3|320 кб/с]<House, Disco, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635626.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: 01:09:42
+01. Bison - Way To La (Day)
+02. Fist Of Facts - Fugitive Vesco (Idjut Work Out)
+03. Mudd & Pollard - Vincent
+04. Mudd & Ahmed Fakroun - Drago (Idjut Edit)
+05. Smith & Mudd - Le Suivant
+06. Smith & Mudd - Hvala (Version Idjut)
+07. Mudd & Pollard - Scaffold
+08. Smith & Mudd - Shulme
+09. The Popes - Bastards (Idjut Edit)(   Читать дальше...   )Жанр: House, Disco, Nu DiscoПродолжительность: 03:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D82941522116EB2ED1689DFE6FD454B4B7C67F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293413   (635657) от 04.04.2019
 
 Chris van Buren - Tierra Del Fuego (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
@@ -671,33 +704,6 @@ VA - Chillout Music For Cafes (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81D0F90220225B99C5FFBC50D6CC60C9365239F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907624   (638202) от 12.06.2015
-
-VA - Brightness of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Sweet Fragrances (06:15)
-02. Collective Sound Members - Make Love to the Night (05:09)
-03. Gerald Peklar - Zwei Flocken Tanz (03:58)
-04. Pusteblume - Cold as Ice - Wonderful Lounge Mix (07:21)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D889BB33F6F1484DDDD608F731B7D21C407387
 ```
 
 

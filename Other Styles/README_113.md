@@ -1,3 +1,188 @@
+###  Публикация: 1134553   (687429) от 16.05.2017
+
+Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original National Geographic Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watts (01:14)
+02. Opening (02:54)
+03. Titles (02:30)
+04. LA 1991 (01:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:32:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B11B9ABBF47E778CA6CBC7E1FB778E979C287C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 551974   (688238) от 23.06.2016
+
+Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]<Indie Folk, Alternative Rock, British Folk, Folk rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative/Indie Rock, British Folk, Indie Folk, Indie Pop, Alternative Pop/RockФормат: Deluxe EditionПродолжительность: 00:20:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C265B41CA9F1833C697020BAFD9CD19603DB2536
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028678   (688246) от 23.06.2016
+
+Marcin Przybylowicz, Mikolai Stroinski & Piotr Musial - The Witcher 3 Wild Hunt - Blood and Wine (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcin Przybylowicz - Blood and Wine (02:57)
+02. Mikolai Stroinski - Fanfares and Flowers (03:11)
+03. Piotr Musial - For Honor! for Toussaint! (02:04)
+04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F688084F44105D9D556DE23B30CBC0C8ACFF55A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289335   (688278) от 15.03.2019
+
+АЛЁNA - ЧАС (2019) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688278.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Час по часу
+2. Зародила меня матушка
+3. Эх, молодой
+4. Лежу я в больнице(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:656997ACFECE84400AA9CDC1AAFAECC847352167
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028665   (688392) от 23.06.2016
+
+Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original Soundtrack) (2015) (Extended Edition) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcin Przybylowicz - The Trail (02:50)
+02. Marcin Przybylowicz - Geralt of Rivia (02:22)
+03. Marcin Przybylowicz - Eredin, King of the Hunt (02:27)
+04. Mikolai Stroinski - Wake Up, Ciri (01:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CE68DDC81912008F612950CDD209F523916EE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028669   (688506) от 23.06.2016
+
+Marcin Przybylowicz - The Witcher 3 Wild Hunt - Hearts Of Stone (Original Soundtrack) (2015) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts of Stone (02:54)
+02. Go Back Whence You Came (01:45)
+03. You're... Immortal? (02:54)
+04. Evil's Soft First Touches (02:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5E594E28C7C75E42DAB1DBB063761FDC3A9AF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028479   (688688) от 23.06.2016
+
+Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Nature>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_688688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Healing Sound of the Rain [00:30:07]
+02. Rain Song [00:08:00]
+03. The Sound of the Rain (with Thunder) [00:31:10]Жанр: New Age, NatureПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F415FC1A7FFD4B8EE59B25B49778DBCAA793E5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028435   (688743) от 23.06.2016
 
 Llewellyn - Native American Gold (2016) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax, Meditative>
@@ -508,212 +693,6 @@ Montgomery Gentry - Here's To You (2018) [FLAC|Lossless|tracks + .cue] <Folk, Co
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC778595E97BC036E41EBB4003CCAA2E06F4A9C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288907   (690228) от 14.03.2019
-
-Ashley McBryde - Girl Going Nowhere (2018) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Girl Goin’ Nowhere (03:25)
-2. Radioland (03:05)
-3. American Scandal (04:02)
-4. Southern Babylon (04:05)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52655093183FD8E5219EBDA3021F7B53BDBD9984
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288919   (690230) от 14.03.2019
-
-LeAnn Rimes - Unchained Melody: The Early Years (1997) [FLAC|Lossless|tracks + .cue] <Folk, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690230.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 	Cowboy's Sweetheart 	2:32
-2 	I Will Always Love You 	4:38
-3 	Blue Moon Of Kentucky 	3:17
-4 	River Of Love 	3:19(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2D0C8B896F71EF3B6BD1F0178A8917D488EF2A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506158   (690278) от 05.06.2012
-
-George Skaroulis - Reunion (2007) [FLAC|Lossless]<New Age, Piano solo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragile (6:44)
-02. Evangelia (5:33)
-03. Reunion (4:26)
-04. Numinous (5:05)
-05. Hopes And Dreams (3:23)
-06. Into The Light (2:12)
-07. Tree Of Life (5:08)
-08. On Friendship's Wings (4:18)
-09. The Calling (5:00)
-10. Snow (3:01)Жанр: New Age, Piano soloПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288698   (690377) от 14.03.2019
-
-Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Red Dirt (02:20)
-2. Too Hot To Just Quit (03:29)
-3. Met My Match (02:35)
-4. The River & the Gum (04:05)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEBD3B018A92761C354F1CC52C6E9BD87EA6EC8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 505416   (690583) от 05.06.2012
-
-Vitaliy Baldych - The Seagull (2011) [FLAC|Lossless]<Relax,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Island
-02. The Seagull
-03. Song of a girl, who stand on the cliff
-04. Presentiment of a storm
-05. After the rain
-06. Traces on sand
-07. Dreams about the argo
-08. Lunar Path
-09. New LifeЖанр: Relax,New AgeПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506265   (690589) от 05.06.2012
-
-Big City Indians - Uncle Peyote (1999) [MP3|128 кб/с]<Native American, New Age, Flute, Rock, Tribal, Blues, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wise Man 4:41
-02. Uncle Peyote 4:31
-03. Fighting without Fear 7:10
-04. Prayin for the Rain 5:19
-05. Big City Indian 5:14
-06. Thunderbird 5:27
-07. West North South East 6:28
-08. Follow Sitting Bull 5:42
-09. Sweet Illusion 4:02
-10. Fire Spirit (long version) 7:28(   Читать дальше...   )Жанр: Native American, New Age, Flute, Rock, Tribal, Blues, PopПродолжительность: 01:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3CF860F936287B384D7B4802EA7D31263F447F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028344   (690649) от 22.06.2016
-
-Paul Mauriat - L'avventura & Le Lac Majeur (1972) Remaster, 2016, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690649.jpg" />
-</div>
-
-
-###  Подробнее
-
-L'avventura
-01. Jesus Cristo
-02. Il Fait Beau, Il Fait Bon
-03. La Decadanse(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1584CEB4EE6BDF9BD710ED785758A38C098AEF4
 ```
 
 

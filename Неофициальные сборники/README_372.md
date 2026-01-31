@@ -1,3 +1,30 @@
+###  Публикация: 1037864   (611911) от 25.07.2016
+
+VA - Ballads for Lovers Vol.2 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - All The Man I Need
+02. Curtis Stigers - I Wonder Why
+03. Phil Collins & Marilyn Martin - Separate Lives
+04. Ten Sharp - You(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F21F10097F13C35804D109D344B5BA15243D35B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037693   (612121) от 25.07.2016
 
 VA - Kizomba All Stars (2016) [MP3|320 Kbps] <World, Zouk, Kizomba>
@@ -683,33 +710,6 @@ VA - Радио Мелодия (январь-июнь) (2016) [MP3|320 Kbps] <П
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CAD7D24EBFF31CA118B822993D1580B9E6EEA86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037405   (613568) от 24.07.2016
-
-VA - Бомба Года Выпуск 50+50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medina - By Your Side
- 02. Alekseev - Пьяное Солнце
-03. Elvira T - Дежавю
-04. Dreezy Feat. Jeremih - Body(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F781560F7B2F8C7139DB07FD7E8158BB6BA1EC
 ```
 
 

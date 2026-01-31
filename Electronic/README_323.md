@@ -1,3 +1,30 @@
+###  Публикация: 907624   (638202) от 12.06.2015
+
+VA - Brightness of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_638202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Sweet Fragrances (06:15)
+02. Collective Sound Members - Make Love to the Night (05:09)
+03. Gerald Peklar - Zwei Flocken Tanz (03:58)
+04. Pusteblume - Cold as Ice - Wonderful Lounge Mix (07:21)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D889BB33F6F1484DDDD608F731B7D21C407387
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033654   (638228) от 11.07.2016
 
 VA - Be Spa EP (2016) [MP3|320 Kbps] <Electronic, Disco, Nu-Disco>
@@ -668,33 +695,6 @@ VA - Chill House Ibiza 2017 (Finest Chill House Music) (2017) [MP3|320 Kbps] <Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36F5C9C0FFF121B0CEC09236B16862EBFDADF00C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142579   (641065) от 15.06.2017
-
-VA - Champagne Lounge Deep House (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Microwave Monkeys - Twist in My Sobriety - Radio Edit
-02. Mykel Mars - L.A. Nights - Eddy Chrome Marina Del Rey Remix
-03. Klangkubik - Sumbesi
-04. Michael Ruland - Dreamer - Ibiza Dub Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D539D7855285C071C80405B412B06963EE40926
 ```
 
 

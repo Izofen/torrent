@@ -1,3 +1,36 @@
+###  Публикация: 518967   (639601) от 05.07.2012
+
+VA - Trance Maniacs Party - Trancefer Wave #104 (2012) [MP3|320 кб/с]<Trance, uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hydrogenio - 777 (Ben Gold Remix)
+002. Marcus Maison & Will Dragen - Another Dimension (Original)
+003. Lunar Motion - Aozora (Original Mix)
+004. MilamDo & Iris - Behind The Curtains (Steve Haines Remix)
+005. Koele Vaten - Boom (Michael Paterson & Warner Powers Remix)
+006. Michael Jay Parker - Canberra
+007. Juventa - City On Clouds (Original Mix)
+008. Maguire - Face Yesterday (Original Mix)
+009. John Askew - Fade To Black (Sean Tyas Remix)
+010. Mat Zo - Frequency Flyer (Original Mix)(   Читать дальше...   )Жанр: Trance, uplifting TranceПродолжительность: 03:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430FBC4F08312CFC1BD085588A2F333875F4E26B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907389   (639735) от 11.06.2015
 
 VA - Душа Шансона. Только лучшее (2015) [MP3|256 кб/с]<Шансон>
@@ -677,33 +710,6 @@ VA - Urban Groundz (2018) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CB270A676CD4C0EA9B74215CC3610F49BA2B7A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227962   (641202) от 29.05.2018
-
-VA - Deep House Superstyle (2018) [MP3|256-320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641202.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Clark Funspace - Inca (Cut Version)
-002. Misha G, Mixline - All About House Music
-003. Adisyn - Departure  (Original Mix)
-004. Francesco Sambero - Uoy (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484B5AA946F21884A16F7EEBB1B5638489379C8B
 ```
 
 

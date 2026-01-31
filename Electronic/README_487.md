@@ -1,3 +1,30 @@
+###  Публикация: 1358856   (967236) от 09.02.2020
+
+Pet Shop Boys - Monkey Business (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Dance-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Monkey Business (Radio Edit) [3:10]
+ 02 - Monkey Business (Prins Thomas Discomiks) [8:46]
+ 03 - At Rock Bottom [3:17]
+ 04 - Monkey Business (Friend Within Remix) [5:45]Жанр: Synthpop, Dance-popПродолжительность: 00:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4000C8E667651E09A386B47424F3844205125785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358450   (967309) от 09.02.2020
 
 VA - Bodybuilding 2020: 100 Motivational Tracks [MP3|320 Kbps] <Melodic House, Techno>
@@ -679,33 +706,6 @@ Stars Crusaders - Welcome To Hydra (2017) [FLAC|Lossless|image + .cue] <Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F390D61CD3DD6AF6DC7A00107F53424A2B9CCBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358272   (969767) от 07.02.2020
-
-Rupesh Cartel - Contract (2005) [FLAC|Lossless|image + .cue] <Synth-pop, Trance>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Contract 3:22
-2 One Pair Of Hands 4:04
-3 Contract (Breach Mix) 7:10
-4 Childhood's Faith 3:44(   Читать дальше...   )Жанр: Synth-pop, TranceПродолжительность: 00:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844B995AF886B00A65497B2A1BE28C9F2F8C0307
 ```
 
 

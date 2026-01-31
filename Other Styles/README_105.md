@@ -1,3 +1,198 @@
+###  Публикация: 1032833   (642004) от 09.07.2016
+
+VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип сделан на основе образа игры, музыка была извлечена из самого образа игры, были добавлены 2 трека (Которые были в русской версии игры)01. Jungle 1
+02. Jungle 2
+03. Jungle 3
+04. Jungle 4(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 01:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772F9DE3D19AC1A9C2E856E106BAC0CB7A24D2A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032698   (642101) от 09.07.2016
+
+Jim Brickman - Blessings (2014) [MP3|320 Kbps] <New Age, Piano, Christian & Gospel>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  How Great Thou Art    04:04
+02.  Were You There    02:58
+03.  Abide With Me    03:16
+04.  Come You Thankful People    03:11(   Читать дальше...   )Жанр: New Age, Piano, Christian & GospelПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEE4AD081B45F930CA63AADE88E55BD0B4CE68F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541659   (642606) от 04.04.2022
+
+Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 RimWorld Trailer Music.mp3 - 1:47
+02 Entry Screen.mp3 - 3:48
+03 Terraformer.mp3 - 3:03
+04 Moving On.mp3 - 4:45(   Читать дальше...   )Жанр: light guitar instrumentalПродолжительность: 02:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3BA866691D3606E91E145AD1AE0E3482EAEC7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142580   (642704) от 14.06.2017
+
+Johnny Cash - The Real... Johnny Cash (2011) 3CD [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+The Fabulous Johnny Cash
+01. Run Softly, Blue River
+02. Frankie's Man, Johnny(   Читать дальше...   )Жанр: CountryПродолжительность: 03:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA35FB8CDE25DDF7CD0951908836C7E94641CE04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518255   (642881) от 03.07.2012
+
+VA - Золотые Хиты Советского Кино - 2 Альбома (2011) [MP3|256 кб/с]<Soundtrack, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642881.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песенка о шпаге (Достояние республики) (2:49)
+ 2. Ночной разговор (3:04)
+ 3. Синема (Человек с бульвара Капуцинов) (4:02)
+ 4. Разговор со счастьем (Иван Васильевич меняет профессию) (2:41)
+ 5. У природы нет плохой погоды - Служебный роман (3:00)
+ 6. Я пережил и многое, и многих ("О бедном гусасре замолвите слово") (3:16)
+ 7. Жалобы Марселлы ("Собака на сене") (2:07)
+ 8. Ветер перемен (3:56)
+ 9. Блиндажи той войны... (2:10)
+ 10. Берег Моря (Вперед Гардемарины) (2:31)(   Читать дальше...   )Жанр: Soundtrack, OSTПродолжительность: 05:20:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4988B1C8155DF6751FDF9C72B712AC20DE6968E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227868   (642902) от 28.05.2018
+
+Loreena McKennitt - Lost Souls (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_642902.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Spanish Guitars and Night Plazas (06:41)
+2. A Hundred Wishes (04:34)
+3. Ages Past, Ages Hence (05:27)
+4. The Ballad of the Fox Hunter (05:48)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF54873E889E9CC7D6309EE38FA80EB79D37289D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292820   (643184) от 31.03.2019
+
+Андрей Дергачев - Возвращение (2004) [FLAC|Lossless|tracks + .cue] <Soundtrack, Ambient, Non-Music>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Под водой (2:04)
+02. Старик (1:43)
+03. Мелкий (0:13)
+04. В спальне (5:04)(   Читать дальше...   )Жанр: Soundtrack, Ambient, Non-MusicПродолжительность: 0:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB21847BF950E16EE6EBE34EDF84286E22FB88D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518135   (643313) от 03.07.2012
 
 VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Classical Guitar>
@@ -536,198 +731,6 @@ Xavier Rudd - Storm Boy (2018) [MP3|320 Kbps] <Folk, Singer-songwriter>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ECF3743EAB6E77EF98917463810E71D7672C71F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227290   (646708) от 26.05.2018
-
-Anne Trenning - Beautiful Song (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Beautiful Song
-02 – Helpless
-03 – You Will Know My Love
-04 – El Farol(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05F3397C370A18E81ED5BA95E8E3DA19B8BF3C60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292486   (646807) от 29.03.2019
-
-Reggie Young - Session Guitar Star (2019) [FLAC|Lossless|tracks + .cue] <Eclectic, Guitar Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slip, Slip, Slippin' In (feat. Eddie Bond & The Stompers)
-02. Carol (feat. Bill Black's Combo)
-03. A Touch of the Blues (feat. Bobby "Blue" Bland)
-04. Dream Baby (feat. Jerry Lee Lewis)(   Читать дальше...   )Жанр: Eclectic, Guitar RockПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CF37E6D103E01D1693D09C90A77BB2043E9D38
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292148   (646812) от 29.03.2019
-
-Andrew Bird - My Finest Work Yet (2019) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Indie-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisyphus (04:06)
-02. Bloodless (06:29)
-03. Olympians (04:00)
-04. Cracking Codes (03:12)(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2AF44E579ABC6D8A0009E27A2DB009B3B5765A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517024   (646868) от 01.07.2012
-
-VA - 599 фраз из нашего кино и мультфильмов (2009) [MP3|32-64 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23E720A56E93C50D5DF44F2CFA24AE188A00927B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517279   (647264) от 01.07.2012
-
-Новый Человек-паук / The Amazing Spider-Man (2012) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647264.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Main Title (Young Peter)
-2. Becoming Spider-Man
-3. Playing Basketball
-4. Hunting For Information
-5. The Briefcase
-6. The Spider Room (Rumble In The Subway)
-7. Secrets
-8. The Equation
-9. The Ganali Device
-10. Ben`s Death(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E788B6D257EEE668CD77C4ED1D71F8B047BDA24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905612   (647307) от 07.06.2015
-
-VA - Romantic Collection. Country (2000) [FLAC|Lossless]<County>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean-Luc Ponty - New Country (3:15)
-02. John Fogerty - Big Train (3:04)
-03. Reba McFutire - Cumb That Mountain High (3:01)
-04. S.Buono - Ode To 33 (2:42)(   Читать дальше...   )Жанр: CountyПродолжительность: 01:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8D5E09BE8F6F7915333F80564DB0D958085ACF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905944   (647540) от 07.06.2015
-
-Kerani - Equilibrium (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium
-02. Fragrant Mountain
-03. Anchoress
-04. Bouddica, Heart On Fire(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DECE6D817D7ADEAE2E08FD930974BA9ABCD9E39
 ```
 
 

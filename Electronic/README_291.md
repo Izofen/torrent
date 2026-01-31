@@ -1,3 +1,30 @@
+###  Публикация: 1043935   (568545) от 18.08.2016
+
+Crystal Castles - Amnesty (I) (2016) [MP3|320 Kbps] <Experimental, Electronic>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Femen
+02. Fleece
+03. Char
+04. Enth(   Читать дальше...   )Жанр: Experimental, ElectronicПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638BC3B12838BC794272A8B087D84B845B7D7834
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151813   (568792) от 21.07.2017
 
 VA - Trance Energy 2017 (Mixed By ReOrder And Svenson & Gielen) (2017) [FLAC|Lossless|CD|Scene] <Trance>
@@ -665,33 +692,6 @@ VA - Best Sound of Chill & Lounge 2019 (33 Chillout Downbeat Songs with Ibiza Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA71AD656E4E261F1CF875D73B232A003DF87410
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234425   (571020) от 05.07.2018
-
-VA - Lounge Theme (25 Sofa Grooves), Vol. 2 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grand Hotel - Please Fasten Your Seatbelts (Original mix) 03:01
-02. Jazzamor - Fly Me to the Moon (Original mix) 03:15
-03. Mazelo Nostra - Walk Through The Streets (Original mix) 04:40
-04. Five Seasons - Une Rose (Original Mix) 03:51(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C246D30D22EB74B9FEBC8C7ADD790B356152C5
 ```
 
 

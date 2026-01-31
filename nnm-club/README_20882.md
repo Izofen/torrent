@@ -1,674 +1,689 @@
-###  Публикация: 1198200   (810113) от 10.01.2018
+###  Публикация: 1010354   (804498) от 24.04.2016
 
-Slimjet 17.0.4.0 + Portable [Multi/Ru]
+Хоккей. НХЛ 2015-2016. Плей-офф. 1/4 финала. Запад. Чикаго - Сент Луис. 6-й матч (23.04.2016) WEB-DL [H.264/720p-LQ] [EN]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810113.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
+24 апреля 2016, воскресенье. 03:00 МСК
+1/4 финала - Запад. 6-й матч
+
+Стадион: Юнайтед-центр (Чикаго, США) , 22 260 зрителей (99 % при вместимости 22 428)(   Читать дальше...   )Телекомпания: NBCЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 01:47:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB8CE80969C9A4D55B5E1702A0CCEA54DC0B52F2
+magnet:?xt=urn:btih:B2354C348615B78E6286FC60E9BB9450B0F3DF5E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383734   (810114) от 16.05.2020
+###  Публикация: 1010287   (804499) от 24.04.2016
 
-Слава КПСС & Djigli - RARE GODS 4 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+Футбол. Чемпионат Испании 2015-2016. 35 тур. Эйбар - Депортиво (23.04.2016) HDTVRip [H.264/720p-LQ]
 
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810114.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DROP INTRO [02:09]
-02. PHNOM PENH [03:02]
-03. SHUGARMAN [02:54]
-04. JOSEPH BRODSKY [03:13](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:23:00
+23 апреля 2016, суббота. 23:05 МСК
+35-й тур
+
+Стадион: Мунисипаль де Ипуруа (Эйбар, Испания) , 4 606 зрителей (88 % при вместимости 5 250)(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортПродолжительность: 01:38:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:330EAA0ACAE7FCA1742E27227EB06181E92CC76A
+magnet:?xt=urn:btih:1EA8CFA0A4EF644710CFA649A45FD7BF93D21B7D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198105   (810115) от 10.01.2018
+###  Публикация: 1198771   (804500) от 13.01.2018
 
-Журнал | Наука и техника №12 (139) (декабрь 2017) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810115.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Наука и Техника» - журнал широкопрофильный. Здесь можно найти интереснейшую информацию о развитии авиации, кораблестроения, бронетехники, средств связи, космонавтики, точных, естественных и социальных наук.Жанр: Научно-популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEA6219E027D43D531F5B43AB49663CACFE86AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383461   (810116) от 16.05.2020
-
-А.М. Воронов | На берегу пустынных вод (2012) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Старая Деревня. Благовещенская церковь.
-При Петре Великом хозяином земли стал Андрей Иванович Остерман. После того, как он оказался в опале и был сослан Елизаветой Петровной, владельцем участка стал гофмейстер двора императрицы Анны Иоанновны, Петр Михайлович Бестужев-Рюмин. Позднее мыза «Каменный нос»принадлежала его сыну канцлеру, графу Алексею Петровичу. Для благоустройства (   Читать дальше...   )Жанр: Исторический,РелигиозныйФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F57F919FDACE4F902871F23E3EBBD1B217E7DA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198068   (810117) от 10.01.2018
-
-VA - New Italo Disco: Greatest Hits & Remix (2017) [MP3|320 Kbps] <Disco, Italo Disco, Remix>
+VA - Hits Cocktail vol.15 (2018) [MP3|320 Kbps] <Club, Dance, House>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810117.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Italove - We Don't Care
-002. Emy Care - Once in a Lifetime (Radio Mix)
-003. Limelight - Falling in Love (Radio Beach Club Remix)
-004. Mr.Zivago - Tell By Your Eyes (Den Airy disco remix)(   Читать дальше...   )Жанр: Disco, Italo Disco, RemixПродолжительность: 10:38:11
+Треклист:
+01. Nikita Ferra Ft. Tony B - For You (Original Mix)
+02. Hazel & CJ Stone - Beautiful (Hazel RMX)
+03. 3LAU - Star Crossed (CraZy M0NKeYs Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 05:21:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44BFD6C992F6205ADB6584F071680540F1C3CBAD
+magnet:?xt=urn:btih:E549D31B7FEC144F09CF3D3721678F80EABD9EFE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383624   (810118) от 16.05.2020
+###  Публикация: 1198927   (804501) от 13.01.2018
 
-Slimjet 26.0.8.0 + Portable [Multi/Ru]
+VA - The Official UK Top 40 Singles Chart 12.01.2018 [MP3|248-320 Kbps] <Electropop, Alternative, Other>
 
->>Архив торрентов
->>Архив Программ
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810118.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+01. Ed Sheeran – Perfect 4:23
+02. Eminem – River (Feat. Ed Sheeran) 3:41
+03. Rita Ora – Anywhere 3:35
+04. Ramz – Barking 3:21(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:26:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F01211AA4FB245FEB7D9795FBB2B663CEE8A6B8
+magnet:?xt=urn:btih:90A15BEDD743F02043046396F23A847E5D5C2690
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198282   (810119) от 10.01.2018
+###  Публикация: 1198798   (804502) от 13.01.2018
 
-Burzum - Filosofem (1996) Misanthropy Records [FLAC|Lossless|tracks+.cue] <Black Metal, Ambient>
+Translatium - translator 7.9.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Translatium - одно из самых мощных приложений перевода для macOS, с поддержкой боле чем 150 направлений перевода, проговаривания текста и несколько уникальных функций, таких, как - оптическое распознавание текста (используйте камеру) и рукописное распознавание текста.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2018Разработчик: Quang LamПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E688CB2E75DFE3BE15DF69D247E88B6640858596
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198531   (804503) от 13.01.2018
+
+VA - A State Of Trance Top 20: January (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Above & Beyond  -  Northern Soul (feat. Richard Bedford) (Extended Mix)  7:16
+02.  Super8 & Tab  -  Pressure (Extended Mix)  4:07
+03.  ARTY  -  Twilight Tonight (Steve Brian Extended Mix)  5:30
+04.  Sultan + Shepard  -  Almost Home (feat. Nadia Ali & IRO) (Mark Sixma Extended Remix)  5:48(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88A984FB33BF1E879AA2824D3699C7809BF7966
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198402   (804504) от 13.01.2018
+
+VA - Lounge Vanilla (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Side  -  Final Word  3:15
+02.  Momylove  -  Bedroom Nine  2:39
+03.  Vintage Bullet  -  Club 80  2:40
+04.  Roben Bucks  -  Shallow  2:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9652C668B7B411B1A5F870DCBB042894EEE74089
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198408   (804505) от 13.01.2018
+
+VA - Coffee Lounge Tunes Vol.1 (Lean Back & Relax With Wonderful Electronic Lounge Pearls) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  James Butler  -  The Good Old Times (Original Mix)  3:39
+02.  Casablanca Project  -  Mystic Vibraphone (Original Mix)  2:15
+03.  Artur Bayramgalin  -  Just Say Goodbye (Original Mix)  4:20
+04.  Breezz Studio  -  Mantra (feat. Alina Aminova) (Original Mix)  5:07(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE1B14AFB2D944456BB4EF8814914C5CED1F62BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198881   (804506) от 13.01.2018
+
+Журнал | Дом в саду №2 (февраль 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804506.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание освещает все аспекты садово-огородной проблематики. Именно в этом издании люди находят полезные советы по выращиванию плодовых, декоративных и комнатных экзотических растений. Это толковый помощник по дому, саду, огороду, которому известны все тонкости выращивания, обрезки, поливки, ландшафтного дизайна. Для всех неравнодушных к своим дачным участкам.Жанр: Дом, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458603CD8F9BC3F5F6F5EE0A8C7CAC261867A54E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198844   (804507) от 13.01.2018
+
+VA - Symphony GOA: Sunstate Pure Compilation (2017) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804507.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tim Bourne - Sages Of Sivana (Original Mix) [8:18]
+002. Electit - Music Is The Universal Language [8:38]
+003. Perfectone - Shanti Dancer [8:24]
+004. Knock Out - Fascinating Place (Intro) (Original Mix) [2:30](   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37132A36BC4FA9F967DEB67B5C91B6D7038A52BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198878   (804508) от 13.01.2018
+
+Евгения Иванова | Александр Блок: последние годы жизни (2012) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Изучение послереволюционной судьбы Блока традиционно замыкается на поэме "Двенадцать" и истолковании выраженного в ней отношения к революции. Но поэма была написана в январе 1918-го, по следам горячих событий, после этого поэт прожил еще три с половиной года. Книга Е.Ивановой посвящена и обстоятельствам, способствовавшим рождению поэмы "Двенадцать", (   Читать дальше...   )Жанр: БиографияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED9959D68CF55AD9FAD8754E2B4C75B5D008D487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198812   (804509) от 13.01.2018
+
+Beth Garner - Snake Farm (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alright By Me (Mr. Fisher) (03:52)
+02. Backroads Freddie (03:02)
+03. Drop Down (03:43)
+04. Used To Be (03:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6367CE0229B6C501AFA6B4A9958CD966F5A699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198884   (804510) от 13.01.2018
+
+VA - The Best Of Trance 64 (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tranceye & Sam Laxton  -  Hornet (Original Mix)  6:31
+02.  Sean Mathews  -  Rise Again (Extended Mix)  6:40
+03.  PARITY  -  Illusion (Extended Mix)  5:24
+04.  Alan Morris & La Antonia  -  Nowhere Left To Hide (Dub)  6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E01EADF618DEDC7AA1F2ADE534D761AA0E5468E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198870   (804511) от 13.01.2018
+
+Morning, Noon & Night - Morning, Noon & Night (1977) LP [MP3|320 Kbps] <Funk-Soul, Disco, R&B>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Thought of Love (6:37)
+02. Bite Your Granny (3:45)
+03. Feelin' Strong (5:45)
+04. Movin' on Down the Line (4:27)(   Читать дальше...   )Жанр: Funk-Soul, Disco, R&BПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F848232EB1AA8DF20F8DA5D99BA4A789CD807EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198846   (804512) от 13.01.2018
+
+Cookie 5.7.6 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
+
+•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
+•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E77C26BF9378D28B4F844CD09AA8A849B30747F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198410   (804513) от 13.01.2018
+
+VA - Chillout Raising (Lounge Drama) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Micheal Artur Koner  -  Season (Original Mix)  3:12
+02.  Chillploy  -  Framework (Original Mix)  3:17
+03.  Blue Side  -  Swords (Original Mix)  3:30
+04.  Keyright  -  Punch (Original Mix)  2:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65ECF7D78E3F9CA7955C8B1781E4B0F302FE2A2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198710   (804514) от 13.01.2018
+
+Iron Fire - Among The Dead (2016) [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810119.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dunkelheit (07:05)
- 02. Jesus' Tod (08:39)
- 03. Erblicket Die Tochter Des Firmaments (07:53)
- 04. Gebrechlichkeit .I. (07:53)(   Читать дальше...   )Жанр: Black Metal, AmbientПродолжительность: 01:04:34
+01. Intro (The Lost City) (1:16)
+ 02. Among the Dead (4:11)
+ 03. Hammer of the Gods (3:53)
+ 04. Tornado of Sickness (4:04)(   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:45:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A582D8027B99CC4C8348E4A20D4D398E7801462D
+magnet:?xt=urn:btih:0FBB120122EEE71E9A95AD4E06F0345D333E797B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383587   (810120) от 16.05.2020
+###  Публикация: 1198552   (804515) от 13.01.2018
 
-Hazel English - Wake UP! (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Like (03:46)
-02. Shaking (03:33)
-03. Wake UP! (03:35)
-04. Off My Mind (03:38)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82640E2E8B396F581EDBE3BBE902AFDEF3275047
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198072   (810121) от 10.01.2018
-
-Julio Iglesias - En El Olympia (1976, 1997) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Introduccion: Vivencias
-02. Por el Amor De Una Mujer
-03. Dicen(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:06:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A92A890BD90B2D4D8FCAB8946D58D74085AB06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383549   (810122) от 16.05.2020
-
-Daniel Waples & Friends (Hang In Balance) - 'Lisn (2013) [FLAC|Lossless|Web-DL|tracks] <Experimental, Chillout, Hang Drum>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petit Son (5:59)
-02. Hang Out Back (featuring Martin Cradick) (3:50)
-03. Lago (5:29)
-04. Bello Revive (5:26)(   Читать дальше...   )Производство: Street RitualЖанр: Experimental, Chillout, World Music, Hang DrumПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1711633D528E741473BE0B76C11E50D93F6182
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198020   (810123) от 10.01.2018
-
-Danielle M & The Glory Junkies - All My Heroes Are Ghosts (2017) [FLAC|Lossless|WEB-DL|tracks] <Swamp Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Heroes Are Ghosts  (02:57) 
-02. All On Fire  (02:34) 
-03. Monster  (03:53) 
-04. Everybodys Wrong  (02:47) (   Читать дальше...   )Жанр: Swamp BluesПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B60A9E3E483AD6AD19E21F6CDA7C43B9FC5961D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198163   (810124) от 10.01.2018
-
-Владимир Медведев | Заххок (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из главных книг современной отечественной прозы.
-Таджикистан. Гражданская война 1990-х. Экзотический и страшный мир Центральной Азии. В центре детективного романа – судьба русской семьи, поневоле оставшейся в горах Памира и попавшей в руки к новым хозяевам страны.
-Заххок – имя змеерукого царя, жестокого тирана из поэмы «Шахнаме». Именно так назван и один из (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 21:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E64A0CDF7654BF78823215A34C7E12B3E74A52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198169   (810125) от 10.01.2018
-
-Герберт Уэллс | В дни кометы (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человечество на грани Первой мировой войны. Всюду царит разруха, голод и нищета. Каждый выживает, как может. На фоне этого новость о том, что к Земле приближается комета, привлекает внимание единиц. Но, как оказывается зря. Потому что комета несет с собой огромные перемены, которые затронут без преувеличения каждого. И мир никогда уже не будет прежним.Жанр: Научная фантастикаПродолжительность: 09:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71EEEF92AAEC99350FBA574D89EBDB1FB94E6F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383583   (810126) от 16.05.2020
-
-Miles Davis & Gil Evans - Quiet Nights 1962 - 1963 (1997) Sony Music [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song #2 [1:40]
-02. Once Upon a Summertime [3:28]
-03. Aos Pes da Cruz [4:19]
-04. Song #1 [4:37](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 00:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB4F6B825A316D24B37998D932E7DBCECD534FAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198090   (810127) от 10.01.2018
-
-VA - The Best Of Turbotronic: Mega Compilation Album (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Turbotronic  -  Big Dada (Extended Mix)  5:28
-02.  Clubhunter  -  Pump It! (Turbotronic Extended Mix)  3:56
-03.  Turbotronic  -  Bba Ra Bam (Extended Mix)  4:26
-04.  Turbotronic  -  Do It (Extended Mix)  5:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D9704510B7213FD389ABFE65CFEE120EBB6960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383548   (810128) от 16.05.2020
-
-Daniel Waples & Friends (Hang In Balance) - 'Lisn: The Remixes (2014) [FLAC|Lossless|Web-DL|tracks] <Experimental, Chillout, Hang Drum>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lago (Subaqueous Remix) (5:00)
-02. Cajon (Conscious Kalling Remix) (4:19)
-03. Einsof (Jnana Remix) (4:19)
-04. Bello Revive (Animatronix Remix) (9:09)(   Читать дальше...   )Производство: Street RitualЖанр: Experimental, Chillout, World Music, Hang DrumПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3819D3DB1C880EB2076F3EEF59C43878171371F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198212   (810129) от 10.01.2018
-
-NetWorker - Advanced Network Information App 4.6.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810129.jpg" />
-</div>
-
-
-###  Подробнее
-
-NetWorker отображает сетевую информацию в строке меню. В нем также есть окно, которое показывает дополнительную информацию о текущем активном сетевом адаптере.
-
- NetWorker: • Полностью настраиваемый вид. Вы можете просматривать следующие свойства (поддерживаются загрузка и выгрузка): • Скорость • Ежедневный, месячный и общий трафик • График • Текущий активный сетевой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.01.2018Разработчик: Sascha SimonПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8CA868DAD2394DE4AC8195C43E476CB80F80B01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383591   (810130) от 16.05.2020
-
-VA - German Top 100 Single Charts 15.05.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apache 207 - Fame
-02. Capital Bra x Loredana - Nicht verdient
-03. UFO361 - Emotions
-04. Haftbefehl x Shirin David - Conan x Xenia(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB97FD928AE58038227AA8465A6A85D4EAA92D18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198102   (810131) от 10.01.2018
-
-VA - Cyber World: Synthspace Mix (2017) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zynic - Neon Oblivion
-02. Haggeman - Spacevillage Kragom
-03. Brian Bennett - Voyage
-04. LEVEL 2.0 - Savior(   Читать дальше...   )Жанр: Synthspace, Synthwave, Electronic DiscoПродолжительность: 05:22:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580E3C3CFF26D9FE1C372534A2BCA2624669688A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198075   (810132) от 10.01.2018
-
-Nai Palm - Needle Paw (2017) [FLAC|Lossless|tracks + .cue] <Soul, Female Vocal>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wititj (Lightning Snake), Pt. 1Жанр: Soul, Female VocalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC21D62385D6E9F26D96F50F5D2CE38FC0B533F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198035   (810133) от 10.01.2018
-
-VA - De Top 100 Aller Tijden 1975 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810133.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. George Baker Selection - Paloma Blanca (3:28)
-002. Kamahl - The Elephant Song (3:30)
-003. Roger Glover & Guests - Love Is All (3:16)
-004. Johnny & Orquestra Rodriguez - Hey Mal Yo (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E90C533710BCB36201F3B7139C54A8359ACFC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198231   (810134) от 10.01.2018
-
-Michael Reimann - Eine entspannende Reise (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linha Verde Highway Ride
-02. Bahia Freedom
-03. Firedance
-04. Valley of the Gods(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30C49F35AD059050027F34700F5391E434072FD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198245   (810135) от 10.01.2018
-
-end.user - Shut Down Remixes (2017) Sonicterror Recordings [FLAC|Lossless|WEB-DL|tracks] <Breakcore, Drum n Bass, Acid>
+VA - Poland Does It Better (2018) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810135.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. BetweenЖанр: Breakcore, Drum n Bass, AcidПродолжительность: 00:36:02
+01.  Robbie Seed & Dave Shifting  -  Mentha (Original Mix)  8:00
+02.  Paul Rigel  -  Never Look Back (Original Mix)  6:56
+03.  Mike Van Fabio & Araya  -  Naama Bay (Original Mix)  8:17
+04.  A.R.D.I.  -  Nevermore (feat. Allam) (Original Mix)  7:40(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:17:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:953D1E2010AEF34861BD20033F4A2FD5C4F7D759
+magnet:?xt=urn:btih:B93E14CDE87D86C1A45E7763355931AF178260B7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 777916   (810140) от 16.04.2014
+###  Публикация: 1198825   (804516) от 13.01.2018
 
-KAMI v2.0 (2014) [En] [App Store]
+Joe Henderson - Quiet Now: Lovesome Things (1999) Verve [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
 
->>Игры для macOS
->>Casual Games, Other для macOS
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810140.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Описание: Kami - очень приятная и стильная игра, в которой вы, перебирая различные цвета лоскутов бумаги, пытаетесь заполнить весь экран одним цветом, за определённое количество ходов.
-
-Особенности игры:
-► 36 уровней
-► Приятный японский стиль, созданный из настоящей бумаги
-► Успокаивающая и элегантная мелодияТип издания: App StoreРелиз состоялся: 2014Разработчик: © State of Play Games LtdПоддерживаемая ОС: OS X 10.6 или более поздняя версияЖанр: Casual Games, Puzzle GamesЯзык интерфейса: Английский, и другие
+01. Happy Madness [03:14]
+02. Flamenco Sketches [09:39]
+03. Isfahan [06:00]
+04. I Love You, Porgy [04:21](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:53:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5C65912187D0EE24F7AA128982C32E834DC1B6A
+magnet:?xt=urn:btih:733F32BF7885A58A49AEEB760901F245224CE703
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 777890   (810141) от 16.04.2014
+###  Публикация: 1198394   (804517) от 13.01.2018
 
-Андрей Алексеевич Усачёв | Собрание сочинений [59 книг и публикации из журналов] (1988 - 2013) [PDF, DJVU, FB2]
+VA - Uplifting Only Top 15: January (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810141.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Книга Черного щенка», «Книга Белого щенка» и «Книга Рыжего щенка» - так были озаглавлены сборники стихотворений и рисунков Сесила Алдина, вышедшие в Великобритании в 1909-1910 гг. Новая книга Андрея Усачева «Черный, Белый и Рыжий» написана по мотивам произведений известного англичанина.Формат: PDF
+01.  Carl Daylim  -  Stay With Me (Intro Mix)  6:40
+02.  Maratone  -  Sunrise (Asteroid Remix)  5:30
+03.  Night Sky  -  To Be Who We Truly Are (feat. Sonia Suvagau) (Afternova Dub Remix)  7:14
+04.  Luke Warner & Lewis Duggleby  -  I See The Light (feat. Katherine Amy) (Vocal Mix)  7:12(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:45:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EBECB3F16B31D131582FC7A55D0D56815C5B831
+magnet:?xt=urn:btih:47C0F3B32AA65FD1715C4A79C20ADD05687B74F4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 777818   (810147) от 16.04.2014
+###  Публикация: 1198830   (804518) от 13.01.2018
 
-Final Fantasy XIII-2 / The Movie / (2012) HDTV [H.264]
+Биатлон. Кубок Мира 2017-2018. 4-й Этап. Рупольдинг (Германия). Мужчины. Индивидуальная гонка (10.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Остальное
->>Игровое видео
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_810147.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Боевик, ФантастикаПеревод: Двуголосый закадровыйПродолжительность: 01:00:00
+10 января 2018 года, среда. 16:20 МСК
+5-й этап Кубка Мира по биатлону 2017-2018. Рупольдинг (Германия)
+Мужчины. Индивидуальная гонка 20 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:32:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23A9F31AD279F0E801BB094E03B494AF5B42A6A9
+magnet:?xt=urn:btih:032F9A3153FD40C7EB94EDEDAE1441958724256A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198823   (804519) от 13.01.2018
+
+Биатлон. Кубок Мира 2017-2018. 5-й Этап. Рупольдинг (Германия). Мужчины. Эстафета (12.01.2018) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804519.jpg" />
+</div>
+
+
+###  Подробнее
+
+12 января 2018 года, пятница. 16:30 МСК
+5-й этап Кубка Мира по биатлону 2017-2018. Рупольдинг (Германия)
+Мужчины. Эстафета 4x7,5 кмТелекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DF57E63DAB7378A5C312FD8CD046A15014D516
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505262   (804540) от 27.10.2021
+
+September Son - Risen (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Desert Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Desert Song (00:05:23)
+02 - Lost At Sea (00:07:41)
+03 - Beep Beep (00:04:11)
+04 - Thunder (00:06:13)(   Читать дальше...   )Жанр: Psychedelic, Desert RockПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58D05DA35F94FAC22F9C794C2D9D1E351E5B0C22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505401   (804541) от 27.10.2021
+
+The Barettas - All Is Fair In Love And Rock & Roll (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alley (00:02:49)
+02 - Smoke-Filled Baretta (00:03:59)
+03 - Crooked Hearts (00:02:11)
+04 - I Bet You Look Good on the Dance Floor (00:02:56)(   Читать дальше...   )Жанр: Alternative Rock, Rock & RollПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEE86850D83DDA57ECC70188C498F2404496D24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505386   (804542) от 27.10.2021
+
+Fausto Papetti - Musicals (1990) [AAC|~338 Kbps] <Jazz, Easy Listening>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aquarius (3:40)
+02. Over the Rainbow (2:19)
+03. Don't Cry for Me Argentina (3:21)
+04. Cabaret (2:43)(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4D952C0D498C9BCADFC9DCC09603BD61AE9CA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504847   (804543) от 27.10.2021
+
+Sepultura - Dante XXI (2006) Remaster, 2021, BMG Rights Management [FLAC|Lossless|WEB-DL|tracks] <Groove metal, Thrash metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost (Intro) (0:59)
+02. Dark Wood of Error (2:19)
+03. Convicted in Life (3:09)
+04. City of Dis (3:27)(   Читать дальше...   )Жанр: Groove metal, Thrash metalПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9340077E7E37B91F1AA14D1454F813DDD88752C
 ```
 
 

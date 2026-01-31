@@ -1,3 +1,30 @@
+###  Публикация: 1007178   (823389) от 14.04.2016
+
+VA - Psychedelic Goa Trance 2016 Vol 1 (40 Best Of Top Hits) (2016) [MP3|320 кб/с] <Psy, Goa Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_823389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trinodia - Brutus Softus [06:55]
+02. Declaration of Unity - Prime Consciousness [07:27]
+03. Rony Melo - Let's Go [07:55]
+04. Elegy - Strangers [08:08](   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 05:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D575985807B2943C02664C4B604809D2B5E6ABD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007180   (823633) от 14.04.2016
 
 VA - Electronic Positivity Dance Plus Vol.2 (2016) [MP3|320 кб/с] <House, Club House>
@@ -667,33 +694,6 @@ VA - Future House Elements Vol.1 (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF055F6A0D6C4D54109FA141C7D8FF2596975F4E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006838   (825584) от 13.04.2016
-
-VA - Progressive Nation Vol.31 (2016) [MP3|320 кб/с] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_825584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Chang - Hybrid 05:23
-02. Tim Horten - Suva 04:45
-03. Roy Dest, Kaj Melsen, Alicia Madison - Avalanche (Baha Remix) 05:53
-04. Michael White - Superheroes 05:00(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46248163ED85F5065631139D6898EC599B7C0B58
 ```
 
 

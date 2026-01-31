@@ -1,3 +1,30 @@
+###  Публикация: 935722   (481721) от 18.09.2015
+
+VA - Vocal Dubstep - Dubstep Light#6 (2015) [MP3|320 кб/с]<Dubstep, UKG, Grime, Brostep, Chillstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond Feat. Zoe Johns - You Got To Go (Noise Killerz Remix)
+02. Adventure Club & Yuna - Gold (TBMA Remix)
+03. Aether - Stargazer
+04. Bebe Rexha - I Cant Stop Drinking About You(   Читать дальше...   )Жанр: Dubstep, UKG, Grime, Brostep, ChillstepПродолжительность: 02:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846CFAFE98D88F2710120EE639714CD838D44B0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056324   (481762) от 25.09.2016
 
 VA - SpaceSynth & ItaloDisco Hits Vol.16 (2016) [MP3|320 Kbps] <Pop, Synthpop, Italo Disco>
@@ -707,33 +734,6 @@ VA - Record Super Chart 651 (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3394C2FF2B9DDCD91DAF28DF4294CEC200522EE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405584   (483552) от 30.08.2020
-
-VA - German Top 100 Single Charts 28.08.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Capital Bra - Frühstück in Paris (feat. Cro)
-02. Bausa & Juju - 2012
-03. Die Ärzte - MORGENS PAUKEN
-04. KitschKrieg & Jamule - Unterwegs(   Читать дальше...   )Жанр: PopПродолжительность: 05:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CB0F61874A8853676E03E109E436661EEEF2825
 ```
 
 

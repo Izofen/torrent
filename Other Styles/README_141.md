@@ -1,3 +1,192 @@
+###  Публикация: 1119772   (803268) от 30.03.2017
+
+Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okinawa Battlefield (03:59)
+02. I could Have Killed Him (02:20)
+03. A Calling (02:42)
+04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:546D0AD7B232BF85D77BF682CA8F9DEC572F56EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119779   (803281) от 30.03.2017
+
+Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rusalka (04:52)
+02. Portrait (02:57)
+03. Lake Ritual (01:08)
+04. Red Star (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54071F9EC1A3D68F0285239369D663A9BE0694D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119675   (803351) от 30.03.2017
+
+Людмила Николаева и ансамбль "Русская душа" - Нетронутая ягода (2003) [APE|Lossless|image + .cue] <Folk-Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_803351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рыжая метелица
+02. В тихую лунную ночку
+03. Нетронутая ягода
+04. Ухарь купец(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B93FCD8BBDCED06B48BD07D2BA89A201D79876
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119688   (804922) от 29.03.2017
+
+Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nada - Senza un perchè (02:46)
+02. Andrew Bird - Logan's Loop (01:11)
+03. Jefferson Airplane - Blues from an Airplane (02:13)
+04. Lele Marchitelli - The Knowledge (01:59)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:35:14 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4BAC570095984EA6DA9DE30A5EEDDA6F944EB6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119710   (804999) от 29.03.2017
+
+Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title Terminator 2 Theme (01:57)
+02. Sarah On The Run (02:33)
+03. Escape From The Hospital (04:36)
+04. Desert Suite (03:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE23A795F013FD854A89C5998CDDFACB105042B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119709   (805005) от 29.03.2017
+
+Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title Terminator 2 Theme (01:57)
+02. Sarah On The Run (02:33)
+03. Escape From The Hospital (04:36)
+04. Desert Suite (03:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599F7DA1C0FE4B50D09778150BF6ED5C8285500E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119784   (805006) от 29.03.2017
+
+Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildlands (04:05)
+02. Night Encounters (05:35)
+03. Koani Salt Flats (00:53)
+04. Hunting La Santera (03:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB40C1AF89EF560FC9072B84A1BA72631F28F15B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119978   (805013) от 29.03.2017
 
 VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundtrack) (2017) [MP3|320 кб/с]<Rock, Rock & Roll, Jazz>
@@ -505,195 +694,6 @@ Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF20CA73360F5BEA378156984F1DAFEA5AFF8467
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198499   (806178) от 12.01.2018
-
-Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Season 7 (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806178.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Main Titles (1:54)
- 2. Dragonstone (5:06)
- 3. Shall We Begin? (1:24)
- 4. The Queen's Justice (1:22)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B4F7FB27668A82DEA609C3CD27E15EE07C6625
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504729   (806312) от 26.10.2021
-
-John Tesh - Tour De France-The Early Years (1990) [FLAC|Lossless|tracks + .cue]<New Age>>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headclobbers 5:40
-02. Roubaix 5:59
-03. On American Shores 3:50
-04. Dijon Strut	4:11(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD16E0671300A20765FCA35792F6A6F006CBCE0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884522   (806913) от 03.04.2015
-
-Yanni - Inspirato (2014) [FLAC|Lossless]<New Age, Classical crossover>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Genitori
-02. Come Un Sospiro
-03. Ode Alla Grecia
-04. L'Ombra Dell'Angelo(   Читать дальше...   )Жанр: New Age, Classical crossoverПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35B6BF94B826EBF07F728DFFD337F0DC7C06C28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119325   (807091) от 28.03.2017
-
-Paul Mauriat - Too Much Heaven & Bonus Tracks (1979) Remastered, 2017 [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Too Much Heaven
-01. Copacabana (At the Copa) (3:12)
- 02. Too Much Heaven (3:09)
- 03. Les Uns Contre Les Autres (3:02)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9776F60F2104D98612C77B9EB2835E94910F89C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119358   (807215) от 28.03.2017
-
-Pianochocolate - Blueberry (2016) [MP3|320 Kbps] <Instrumental, Chillout>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Analemma (4:53)
-02. Lake Baikal (3:55)
-03. Romance (3:28)
-04. Sunshower (3:39)(   Читать дальше...   )Жанр: Instrumental, ChilloutПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10D7FA46C1C74413477045F321D12230BDDE290B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119439   (807489) от 28.03.2017
-
-VA - Cafe India Lounge (Retail 2006) (2006) [MP3|~190 Kbps (V2)] <New Age, Lo-Fi, Lounge>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maitreya - Tibet
-02. Frederic Dubois & Shan Di - Aman
-03. Nelson - Registan
-04. Maitreya - Translucent Dreams(   Читать дальше...   )Жанр: New Age, Lo-Fi, LoungeПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C85B1E18318FCDD3D61F0C2D07BB6D6EDE92E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 732511   (807566) от 17.05.2020
-
-The Greatest Saxophone Hits Ever - Golden Saxophone (1994) [FLAC|Lossless] <Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Y Volvere 			(04:11)
-02. Senora Bonita		(02:31)
-03. Sombras 			(02:32)
-04. Sin Ti 			(03:56)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDA68C6341FB0F27A5E4FB08F1FCC7FFCE787B4
 ```
 
 

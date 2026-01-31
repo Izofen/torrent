@@ -1,3 +1,30 @@
+###  Публикация: 1107396   (868331) от 22.02.2017
+
+VA - Fantastic Lounge (Deep And Chillhouse Hit's) (2017) [MP3|320 Kbps] <Lounge, Deep, Chillhouse>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ephemeral - Ordinary Day (Alma Mix)  3:01
+02.  Blue Side - Swords (Soave Rebuild Version)  3:31
+03.  Playgate - Rome Boulevard (Radio Cut)  3:11
+04.  Shangly Joe - Cycling (Cut Ball)  2:59(   Читать дальше...   )Жанр: Lounge, Deep, ChillhouseПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10C3AEEAF86D2899E4DEFD1A4D0CEB14B93FA31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107608   (868332) от 22.02.2017
 
 VA - Harmony Lounge: Music for Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -661,33 +688,6 @@ VA - Melbourne Bounce Sound Selection Vol.2 (2017) [MP3|320 Kbps] <House, Melbou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79DB3BC640E79BD8200DF5F16F6B244827327A07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057669   (870429) от 11.04.2020
-
-Cell - Discography 7 Releases (2005-2020) Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Psybient, Downtempo, Psychill, Ambient, Progressive Trance>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevation (Live Edit) (09:03)
- 02. Over The Roof (Live Edit) (06:07)
- 03. Pulse (Live Edit) (08:03)
- 04. Traffic (Live Edit) (09:00)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psybient, Downtempo, Psychill, Ambient, Progressive Trance •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD49AA0FB88F1362D4D5C089D6665BD159FED55
 ```
 
 

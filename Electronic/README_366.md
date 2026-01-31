@@ -1,3 +1,30 @@
+###  Публикация: 1128245   (728893) от 24.04.2017
+
+VA - Femme Fatale (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deeper Sublime & Samiran Saharia - Nelumbo  5:44
+02.  Mystical Plants - Where's The Love  3:46
+03.  Luis Hermandez - Mi Amor  3:37
+04.  MarkOne & Kevin Shawn - Between The Lines  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63FD4A0272F29DC8782FF88CA7D82348D54E1F46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128215   (728898) от 24.04.2017
 
 VA - Universal Language Lounge Anthems Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Progressive Trance Vol.6 (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FEDE601170FA4F0069055EDF3A7860435BAAB41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127683   (730443) от 22.04.2017
-
-VA - Nothing But... Pure Progressive House Vol.01 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Foxt - Pulsar (Original Mix)  7:05
-02.  Leoo Eco - Flying Away (Original Mix)  6:24
-03.  Platunoff - Global Connection (Phase Difference Remix)  6:28
-04.  Yearzwalker - The Night (Original Mix)  4:59(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED8C285D13CA62CBDA5E4E065F7D28F291956BC0
 ```
 
 

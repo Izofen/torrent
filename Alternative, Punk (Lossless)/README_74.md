@@ -1,3 +1,30 @@
+###  Публикация: 1450332   (1029024) от 26.02.2021
+
+Nick Cave & Warren Ellis - Carnage (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hand of God [00:05:16]
+02. Old Time [00:05:16]
+03. Carnage [00:04:47]
+04. White Elephant [00:06:08](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98443B75E60FA8CA7AF1D6BD0F3E899154FB7EC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450310   (1029036) от 26.02.2021
 
 Architects (UK) - For Those That Wish To Exist (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -669,33 +696,6 @@ Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB45587248770F76C7EF0FD8C03BB5AEB040EDF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442320   (1036939) от 24.01.2021
-
-Goo Goo Dolls - It's Christmas All Over (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas All Over Again (04:20)
-02. Shake Hands With Santa Claus (02:42)
-03. This Is Christmas (03:43)
-04. Christmas Don’t Be Late (01:59)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517740B514A4D007C64146B329672F30B302E142
 ```
 
 

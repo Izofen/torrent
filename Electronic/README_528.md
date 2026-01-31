@@ -1,3 +1,30 @@
+###  Публикация: 1442168   (1036929) от 24.01.2021
+
+ROÜGE - Ultimatum (2021) [MP3|320 Kbps] <EBM, Industrial, Techno>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036929.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome to Agartha (2:18)
+2. Potential Danger (5:26)
+3. Nuclear (4:14)
+4. Invasion (4:04)(   Читать дальше...   )Жанр: EBM, Industrial, TechnoПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF0C004FF2C8579B0CC778682A1D44AA01E8C735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442132   (1036947) от 24.01.2021
 
 VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
@@ -660,33 +687,6 @@ VA - The Essential Downtempo Vol.4: Chillout Your Mind (2023) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E84985078EA768598A64391F26E6BFF2B66E814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615428   (1037863) от 25.02.2023
-
-Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2023-01-03) [MP3|320 Kbps] <Progressive House, House, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture & Fideles ft. Be No Rain - Let You Go
-02. ID - ID
-03. TouchTalk - Domo
-04. George Kwali - Feel The Heat(   Читать дальше...   )Жанр: Progressive House, House, Melodic HouseПродолжительность: 03:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E84C8D501E6EB231E23C40B93FB2A244BF39AA
 ```
 
 

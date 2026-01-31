@@ -1,3 +1,30 @@
+###  Публикация: 1133773   (693023) от 13.05.2017
+
+Jean-Pierre Decerf - Space Oddities 1975-1979 (2015) CD, Compilations [MP3|320 Kbps] <Electronic, Space Rock, Experimental>
+
+>>Electronic
+>>Experimental Electronic
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_693023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrounding Seas (3:12)
+02. Light Fligt (3:21)
+03. Blazing Skyline (3:27)
+04. Leavin' My Place (4:14)(   Читать дальше...   )Жанр: Electronic, Space Rock, Ambient, Synth-pop, ExperimentalПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:756EE74F9219C6B7D9B4DF588A10E42EAC284333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221560   (693178) от 25.04.2018
 
 VA - Twilight Jazz - Chillout Vocal Tracks For Lounging & Good Time (2018) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -665,33 +692,6 @@ VA - Elite Lounge – Chillout Music For Bars & Hotel Lobbies (2018) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:844E63EE0116E1AFDB443BB665CCA308E592F208
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221437   (695107) от 24.04.2018
-
-Niklas Paschburg - Tuur mang Welten (2016) Unperceived Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient, Contemporary>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ulenflucht (03:59)
- 02. Holtnevel (03:35)
- 03. Tuur Mang Welten (04:38)
- 04. Dawn (03:45)(   Читать дальше...   )Жанр: Modern Classical, Downtempo, Ambient, ContemporaryПродолжительность: 00:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BA96E2645A41495E2C970C622B1C310DECB262F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1028201   (692759) от 21.06.2016
+
+VA - Jazz Lounge: Beautiful Jazz Moments, Cool Piano, Jazz Friday Night, Smooth Jazz (2016) [MP3|320 кб/с] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz 2016 - Jazz Lounge
+02. New York Jazz Lounge - Romantic Jazz
+03. Coffee Shop Jazz - Bossa Scousa
+04. Chilled Jazz Masters - All That Jazz(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF63B5AE0E29F3D63577327F32309E577090C378
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221491   (692775) от 25.04.2018
 
 VA - Дискотека 2018 Dance Club Vol. 178 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
@@ -660,30 +687,6 @@ VA - German Top 50 Party Schlager Charts 11.03.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB105CA128060AB281513FD89A12295D9F46CCA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333196   (694461) от 07.05.2011
-
-VA - Хиты Под Водочку (2011) [MP3|256 kbps]<Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ШансонПродолжительность: 05:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1682C13ABC1F01A1E085905B9D542F303439FA8
 ```
 
 

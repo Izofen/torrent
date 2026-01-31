@@ -1,3 +1,30 @@
+###  Публикация: 988608   (920950) от 20.02.2016
+
+VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Phunk - Swept Away (Ibiza Workout Remix) 04:50
+02. We:Us - For The Night (Tropical House Fitness Edit) 04:20
+03. American Groove Junkies - Reach You (Sexy & Fit Mix) 03:34
+04. Summer Beats - Hold On (Dancefloor Fitness Mix) 04:06(   Читать дальше...   )Жанр: Club, Progressive, Future HouseПродолжительность: 02:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A3D70BDE58A7D47174480C97B51C62AEA2C025
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096268   (920980) от 23.01.2017
 
 VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House>
@@ -673,33 +700,6 @@ VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A571668C039C86E99CEC7060AAF2348CF1681F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988060   (922878) от 19.02.2016
-
-VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rich Smith & Kimberly Hale - When the Sun Comes Up (6:53)
-02. Para X - Love Train (Janina T Remix) (7:06)
-03. Almar & Danny Stubbs - Midnight Sun (7:13)
-04. Para X - Love Train (6:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6618C2B2F1D421D1F6C473F70C9CA1E44C392A03
 ```
 
 

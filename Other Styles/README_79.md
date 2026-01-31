@@ -1,3 +1,216 @@
+###  Публикация: 542373   (498048) от 03.09.2012
+
+Микаэл Таривердиев - Ночные забавы тихая музыка (2004) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. музыка к к-ф ''Ночные забавы'' (4:16)
+ 2. музыка к к-ф ''Летние люди'' (1:48)
+ 3. музыка к к-ф ''Я обещала-я уйду'' (3:41)
+ 4. музыка к к-ф ''Воровка'' (1:13)
+ 5. музыка к к-ф ''Летние люди'' (5:20)
+ 6. музыка к к-ф ''Я обещала-я уйду'' (4:38)
+ 7. музыка к к-ф ''Ночные забавы'' (2:56)
+ 8. музыка к к-ф ''Воровка'' (2:06)
+ 9. музыка к к-ф ''Русский регтайм'' (1:23)
+ 10. музыка к к-ф ''Русский регтайм'' (1:34)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24254D12651AC8D84477AC6071D43C413D7686D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 380943   (498067) от 29.08.2011
+
+Форсаж 5 Ремикс / Fast and Furious 5 Remix from AGR (2011) [MP3|320 kbps]<Dance>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Tyler - Assembling the Team (Short)
+02. Chiddy Bang - Under the Sheets (Chiddy Bang) Ellie Goulding
+03. Don Omar Feat. Lucenzo - Danza Kuduro (Blood Dance Project Electro Remix)
+04. Don Omar Feat. Lucenzo - Danza Kuduro (CJ LeRoY Remix)
+05. Don Omar Feat. Lucenzo - Danza Kuduro (club)
+06. Don Omar Feat. Lucenzo - Danza Kuduro (Dance remix)
+07. Don Omar Feat. Lucenzo - Danza Kuduro (Dave Dee! vs. DJ Harddanzor Bootleg Mix)
+08. Don Omar Feat. Lucenzo - Danza Kuduro (Dfm edit)
+09. Don Omar Feat. Lucenzo - Danza Kuduro (Dj Amor Remix)
+10. Don Omar Feat. Lucenzo - Danza Kuduro (Dj DupiC Mix)(   Читать дальше...   )2011Жанр: DanceПродолжительность: 05:50:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541284   (498090) от 03.09.2012
+
+Perry Wood - Chakra Balancing (2004) [MP3|320 кб/с]<New age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498090.jpg" />
+</div>
+
+
+###  Подробнее
+
+(9:48) 1. Root - Embodiment
+(9:21) 2. Sacral - Home of the Self
+(9:48) 3. Solar Plexus - Inner Sun
+(6:42) 4. Heart - Compassion
+(6:07) 5. Throath - Stillness
+(9:16) 6. Brow - Perception
+(7:20) 7. Crown - OnenessЖанр: New age, Meditative, RelaxПродолжительность: 00:58:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B45B0D68A23EDF409BDA9AA5DDF3D5D57F96FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542568   (498148) от 03.09.2012
+
+VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498148.jpg" />
+</div>
+
+
+###  Подробнее
+
+(7:37) 01. Chinmaya Dunster - Moonsong
+(8:00) 02. Terry Oldfield & Soraya - Om Shanti
+(5:23) 03. Cybertribe - Across The Magic Mountains
+(8:18) 04. Terry Oldfield - Earth And Sky
+(6:48) 05. Chinmaya Dunster & Niladri Kumar - Innergy
+(7:12) 06. Terry Oldfield - Aum
+(7:32) 07. Rasa - He Krishna
+(8:16) 08. Rasa - Jaya Radha
+(6:33) 09. Chinmaya Dunster & Niladri Kumar - Arunavachana (Promise of the Dawn)
+(7:59) 10. Rasa - Gayatri Mantra(   Читать дальше...   )Жанр: New ageПродолжительность: 01:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22AE69FF159AACF83E31669AAE9387E7BB50B1CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540755   (498149) от 03.09.2012
+
+Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Ropes, Ribbons And A Ball
+02. Far Behind The Skies
+03. Fly Away
+04. Shiva's Dance
+05. White Flower, Blue Flower
+06. We'll Be With The Stars Tonight
+07. Brahmane's Prayer
+08. Miracle Of Love
+09. Take Me Higher
+10. Karma(   Читать дальше...   )Жанр: New Age, Relax, ElectronicПродолжительность: 00:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E78617A3E99144E58C9A0C04DF9B0B649AFB89F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935765   (498441) от 09.09.2015
+
+Divine Matrix - Atmospheric Variations (2012) [MP3|320 кб/с]<Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1000 Light Years
+02. Jigokudani Springs
+03. Magnetic Disturbance
+04. Marine Forcast(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D1082088CFC1BCAD4B122B9DC5BE8186962DDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138501   (498763) от 04.09.2009
+
+Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_498763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New ageПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541946   (499121) от 02.09.2012
 
 David Hicken - 3 albums (2007-2008) [MP3|192, 320 кб/с]<New age, Instrumental, Relax, Piano>
@@ -530,226 +743,6 @@ magnet:?xt=urn:btih:7AA631367D74ECE1A1F6FF2953EA90B530BD5CA2
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538378   (504391) от 28.08.2012
-
-Lichtmond (Лунный свет) - Erwachen Fruhlingstanzerin (2010) [MP3|256 кб/с]<NewAge, Ambiente, Chill Out, Trance>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erwachen
-02. Morgenrot
-03. Philosophy of Love
-04. Frühlingstänzerin
-05. Wenn des Mondes Strahl
-06. Der Orangenzweig
-07. Ich und Du
-08. Sounds of Distance
-09. Sonnenlicht
-10. Shine on me(   Читать дальше...   )Жанр: NewAge, Ambiente, Chill Out, TranceПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7602585721B1D70C0F1CED62E1EE2509CDDEC22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539784   (504400) от 28.08.2012
-
-Mariza - 5 альбомов (2001 - 2010) [FLAC|Lossless]<Fado>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fado Vianinha (Fado Vianinha) [02:31]
-02. Promete, Jura (Fado Sergio) [03:53]
-03. As Meninas Dos Meus Olhos (Fado Alfacinha) [02:35]
-04. Mais Uma Lua (Fado Varela) [03:38]
-05. Dona Rosa (Fado Bailarico) [02:16]
-06. Ai, Esta Pena De Mim (Fado Ze Antonio) [02:33]
-07. Na Rua Do Silencio (Fado Alexandrino) [02:48]
-08. Rosa Da Madragoa (Fado Seixal) [01:54]
-09. Boa Noite Solidao (Fado Carlos Da Maia) [03:45]
-10. Desalma (Fado Alberto) [02:30](   Читать дальше...   )Жанр: FadoПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538422   (504499) от 28.08.2012
-
-Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.From Dawn
-2.Spirit of Silence
-3.Walking In The Air
-4.Dark Ages
-5.Signs of Love
-6.Paradise Lost
-7.Interlude
-8.Metamorphosis (Part 1)
-9.Inner World
-10.Metamorphosis (Part 2)(   Читать дальше...   )Жанр: Electronic, Enigmatic, New AgeПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933868   (504510) от 03.09.2015
-
-Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Within
-02. Dusty Rider
-03. Crying
-04. Fun Fare(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFA5421C642447A572A56612B12FF4EAFDCF7BE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540338   (504740) от 28.08.2012
-
-Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Ethereal Voices>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (01:06)
-02. Gloria (03:25)
-03. The Magic Will Return (03:36)
-04. By Morning Dawn (03:17)
-05. Hallelujah (03:36)
-06. A Stone Will Tell (04:05)
-07. Gone to Earth (04:33)
-08. World of Fantasy (03:22)
-09. Call of Immortality (04:04)
-10. Turn the Key (03:25)(   Читать дальше...   )Жанр: New Age,Celtic,World,Ethereal VoicesПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C8FF75E4A7C0F4876FAAD28F839CC36F6DCE057
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540217   (504743) от 28.08.2012
-
-Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция из 33 самых знаменитых песен (1947-1962)1. Diamonds are a girl's best friend (3:31)
- 2. When I fall in love (2:59)
- 3. One silver dollar (2:02)
- 4. Happy birthda Mr. President (2:01)
- 5. Do it again (3:12)Жанр: OSTПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFEE3EFB60D7D3930D3961DCBFB4B8332E57042B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538006   (504839) от 28.08.2012
-
-Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In Pacific Ocean (Ethereal)
-02.Breath underwater (Ethereal)
-03.Flying in the deep blue (Ethereal)
-04.Across the Lagoon Nebula
-05.Son of the Sun
-06.Sailing the river Styx
-07.From the Beginning Till the End
-08.Touch of Blue light
-09.Ganymede
-10.K'ank'in(   Читать дальше...   )Жанр: New Age, Enigmatic, AmbientПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2622E9CA068BE2A2BAE908E3567827A0D89437C2
 ```
 
 

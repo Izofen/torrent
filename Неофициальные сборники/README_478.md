@@ -1,3 +1,30 @@
+###  Публикация: 1216273   (751226) от 30.03.2018
+
+VA - Deep House Collection Vol.162 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751226.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7even (GR) - Have It All  (RAFO Remix)
+002. Aeron Aether - Release the Kraken (Erdi Irmak Remix)
+003. Akio Imai & Claudio Giordano - Enigma (Original Mix)
+004. al l bo - Walls Of Tears (De Graal' Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:23:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FF7F93016197FB9A4EF00247927899D5632323
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216234   (751240) от 30.03.2018
 
 VA - Deep House Collection Vol.160 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -669,33 +696,6 @@ VA - German Top 100 Single Charts 02.04.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBDD0689BA6D7B86AFEF5494AEED146AD9ECE2B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216070   (752943) от 29.03.2018
-
-VA - Girls Romances vol.3 (2018) [MP3|192-320 Kbps] <Pop, Ballad, Blues-Rock, Chillout, Deep House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julia Samoylova - Flame Is Burning
-02. Beth Hart - Picture In A Frame
-03. The Cranberries - Why
-04. Bonnie McKee - Stars In Your Heart(   Читать дальше...   )Жанр: Pop, Ballad, Blues-RockПродолжительность: 02:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87AEB9C32244648232228DCFAC380A8FA1E56B7C
 ```
 
 

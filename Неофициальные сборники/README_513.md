@@ -1,3 +1,30 @@
+###  Публикация: 1512352   (787406) от 24.11.2021
+
+VA - Synthspace Electronic Music (2021) [MP3|320 Kbps] <Synthspace, Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787406.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vindata - Already Home
+002. Dany Dz - Retrospective
+003. Boom Bip - Aplomb
+004. Diego Alvarado - Running Against Time(   Читать дальше...   )Жанр: Synthspace, Synthwave, ElectronicПродолжительность: 09:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67E69AEF0BA3B8776F6AFA9687577F9C6598C8F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512298   (787464) от 24.11.2021
 
 VA - Beatport Tech House: Sound Pack #372 (2021) [MP3|320 Kbps] <Tech House, Electro>
@@ -665,33 +692,6 @@ VA - New Music Releases Week 2 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC5AF8E6125CDBB3EB30CACB17E7056080F63082
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203595   (788200) от 02.02.2018
-
-VA - Elite Driving Trance Anthem (2018) [MP3|320 Kbps] <Uplifting, Vocal, Progressive, Emotional, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Van Gale - Mumbai Taxi (Original Mix) 4:36
-02. Activeblaze - Last Day 5:47
-03. Maarten De Jong & Katty Heath - Free To Feel Again (Extended Mix) 5:47
-04. Nolans Stenemberg ft. Jennifer Lauren - The Winter (R3dub Remix) 7:35(   Читать дальше...   )Жанр: Uplifting, Vocal, Progressive, Emotional, MelodicПродолжительность: 07:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:636854DA400720FCFFEDA648ACACEDD3874ADEAA
 ```
 
 

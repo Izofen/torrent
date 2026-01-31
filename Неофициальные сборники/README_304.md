@@ -1,3 +1,30 @@
+###  Публикация: 931392   (511838) от 26.08.2015
+
+VA - Acoustic Chill Songs (2015) [MP3|320 кб/с]<Instrumental, Acoustic, Guitar>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_511838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - I'm Gonna Be (500 Miles)
+02. Dean Dyson - Mrs. Robinson
+03. Luchia - Desperado
+04. Zara James - In the Air Tonight(   Читать дальше...   )Жанр: Instrumental, Acoustic, GuitarПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EDDCE3591DC64FF33AC6CC28E07F642DF1B53B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 230025   (511859) от 28.08.2010
 
 VA - Наше радио - Чартова дюжина ТОП-13  (24.08.2010)  [MP3|320 kbps] <Rock>
@@ -695,33 +722,6 @@ VA - Ibiza Beach House Party (2018) [MP3|320 Kbps] <Electro House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75EA54CA4FD3ED27F6D395E071462B7533FB3B1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242808   (513057) от 24.08.2018
-
-VA - SunState Trance Nation (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513057.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Protoculture - Superhuman (Original Mix)
-002. ARTY - Tim
-003. Elevven - Heartbeat Tonight
-004. Heatbeat - Supersaw(   Читать дальше...   )Жанр: TranceПродолжительность: 10:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B5467543549FF7668F78A49455696B636626639
 ```
 
 

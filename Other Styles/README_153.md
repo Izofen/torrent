@@ -1,3 +1,189 @@
+###  Публикация: 1108332   (864270) от 24.02.2017
+
+Mairead Nesbitt - Hibernia (2016) [MP3|320 Kbps] <Instrumental,  Celtic,  Folk>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallowed Fire
+02. The First Sheaf
+03. Becoming
+04. Seán Ó Duibhir A' Ghleanna(   Читать дальше...   )Жанр: Instrumental,  Celtic,  FolkПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0606489F9193C0AE69FC5FB0BA792E12061F99
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108123   (864529) от 24.02.2017
+
+Deva Premal - Password (2011) [FLAC|Lossless|tracks + .cue] <New Age, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mangalam (10:16)
+02. Shyam! (7:06)
+03. Sri Nanda- Nandanastakam (7:41)
+04. Narasimha (7:12)(   Читать дальше...   )Жанр: New Age, MantrasПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529E93E9C7AB8A17EC706E30A216B702FBAD11CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108159   (864533) от 24.02.2017
+
+Blonker - Zeitreise-25 Jahre Gitarrenmusik (2003) [MP3|320 Kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864533.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Sidewalk Cafe (3:13)
+02. Cape Ladiko (3:25)
+03. Zeitreise (2:54)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:16:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C40728459FDF0EA0C11A6B25718FCE6842E9A5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108207   (864544) от 24.02.2017
+
+VA - Bedouin Nights (2015) [MP3|320 Kbps] <Arabic, Arabic Pop, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancienne S. - Koubba
+02. Aqualife - Colours of Life
+03. Audio P - After Hours
+04. Ayra - Sweet Smoke(   Читать дальше...   )Жанр: Arabic, Arabic Pop, New Age, WorldПродолжительность: 02:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEB37F6B93B98000A57877C783110731F964E6D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189104   (864561) от 04.04.2010
+
+VA - Музыка и песни из к/ф Л.Гайдая (2003) [MP3|320 kbps]<OST | Эстрада>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OST | Эстрада
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108251   (864641) от 24.02.2017
+
+Govannen - Celtic Air (2016) [MP3|320 Kbps] <New Age, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sea Air
+02. The New Land. Hyp Noz Fest
+03. Give Me Your Hand
+04. Open Air. Pachpi Kozh(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70329CE8EE8B360BAC7F98B77D634FE1A48B398F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497510   (864785) от 22.09.2021
+
+VA - Sirtaki Planet: The Best Of Sirtaki (1998) [FLAC|Lossless|image + .cue] <Folk, Country, Laiko>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M. Teodorakis - Zorba's Dance (2:55)
+02. Various Artists - Trici, Trici (2:29)
+03. Various Artists - Mia Parentesis Ke Mono (3:10)
+04. Various Artists - Pira Luludia (2:25)(   Читать дальше...   )Жанр: Folk, Country, LaikoПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F3F73335E62E28B94CBAE4D535A8F4DEBF4C63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375666   (865391) от 14.04.2020
 
 Slowgold - Aska (2020) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Folk, Indie Rock>
@@ -560,204 +746,6 @@ Mike Rowland - 24 albums (1982-2006) [MP3|192-320 kbps]<New age, Neoclassical, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAA78EA324471661B90919695399E96BCB306ABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375242   (866934) от 13.04.2020
-
-Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turning
-02. Sun Dappled
-03. Ripples
-04. New Hope(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:833A3495829665121E0ED0BD4F6FF8A3FFD0BF69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375118   (866936) от 13.04.2020
-
-Danny Wright - Unwind: Peaceful Piano Relaxation (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пианист с академическим образованием Дэнни Райт пришёл к new age из классической музыки. Начал обучаться игре на фортепиано в 4 года. В течение 10 лет обучался у Dr. Harris Cavender. В процессе обучения Райт проявлял способности к импровизации. Свою собственную музыку Райт начал писать в 1985 году. Дебютный альбом Райта "Black and White" вышел в 1986 году. (   Читать дальше...   )1. Time Windows	03:36
-2. Innocence	03:53
-3. As the Years Pass	03:52
-4. October	04:26(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498918D2B7B0DD9A2099C7CF12D0CA5A23F4D730
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 664507   (866939) от 13.04.2020
-
-Stephan Micus - 18 Альбомов (1977-2013) [FLAC|Lossless|tracks + .cue] <New Age; Ethnic Fusion; Contemporary Jazz; Meditative; Experimental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выдающийся немецкий композитор и мультиинструменталист Стефан Микус родился в 1953 г. в Германии. Совершил свою первую поездку на восток в возрасте шестнадцати лет. Очарованный разнообразием музыкальных культур всего мира, Микус побывал практически в каждой азиатской и европейской стране, так же как и в Африке и обеих Америках. Учась у мастеров музыкального искусства, (   Читать дальше...   )Список альбомов:
-1977 Implosions
-1978 Till The End Of Time
-1982 Wings Over Water(   Читать дальше...   )Жанр: New Age; Ethnic Fusion; Contemporary Jazz; Meditative; ExperimentalПродолжительность: 14:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB162A1D48F2049A2D806BE9CEF9D43241E1DBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645083   (867140) от 17.04.2013
-
-Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: World, New AgeПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188780   (867803) от 02.04.2010
-
-Благословенная Оптина - Песнопения братии древней обители (2006) [MP3|320 kbps]<(Духовные песнопения)>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01-Благослови, душе моя, Господа
-02-Блажен муж
-03-Свете тихий
-04-Богородице Дево, радуйся!
-05-Честнейшую херувим
-06-Херувимская
-07-Первый псалом
-08-Второй псалом
-09-Третий псалом
-10-Четвертый псалом(   Читать дальше...)Жанр: (Духовные песнопения)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188659   (867944) от 02.04.2010
-
-VA - Пионерские песни (2005) [MP3|320 kbps]<Retro>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Орлята Учатся Летать (02:33)
-02. Ленинская Правда (01:41)
-03. Марш Пионерских Дружин (02:14)
-04. Песня О Пионерах - Героях (03:08)
-05. Школьная Полька (02:15)
-06. Песня О Пионерской Дружбе (02:36)
-07. Песня О Первом Пионерском Отряде (03:13)
-08. Замечательный Вожатый (01:54)
-09. Гайдар Шагает Впереди (02:40)
-10. Здравствуй, Морозов (02:19)(   Читать дальше...)Жанр: Retro
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107114   (868003) от 22.02.2017
-
-Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New Wave>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Last
-02. Walk On By
-03. Stay
-04. La Vie En Rose(   Читать дальше...   )Жанр: Pop, Pop Rock, New WaveПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
 ```
 
 

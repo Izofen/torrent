@@ -1,3 +1,30 @@
+###  Публикация: 1004590   (838528) от 06.04.2016
+
+VA - Goa Session by X-Noize (2016) [MP3|320 кб/с] <Trance, Progressive Trance, PsyTrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X-NoiZe vs. SpaceCat - No Rules 06:43
+02. Iliuchina - Lucid Dream 06:47
+03. X-NoiZe & Volcano - Volcanoize 06:49
+04. Capital Monkey vs. Burn in Noise - Capital Noise 06:41(   Читать дальше...   )Жанр: Trance, Progressive Trance, PsyTranceПродолжительность: 02:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773ECCB049A39917609393B113962705CE1DFC59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113240   (838539) от 11.03.2017
 
 VA - Козырная песня на радио Шансон выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
@@ -662,33 +689,6 @@ Willie May - Moon Blues Positive (2009-2015) Compilation Album [MP3|320 Kbps] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E14B940BAA84F36C3CA884842DCDED9E365290BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112967   (839650) от 10.03.2017
-
-VA - Unknown 80's (part V) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B - Movie - Forever Running - 1985
-02. Luna Twist - Look Out (You're Falling In Love Again) - 1983
-03. The Explorers - Lorelei - 1985
-04. Re-Flex - Hurt - 1983(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2662983AEDFDB4AD8B15DBA998AD6C6A2E01577
 ```
 
 

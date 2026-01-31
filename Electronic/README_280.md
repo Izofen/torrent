@@ -1,3 +1,30 @@
+###  Публикация: 1309708   (549604) от 21.06.2019
+
+VA - Chill House Ibiza 2019 (2019) [MP3|320 Kbps] <House, Chill House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adonai - Say (Edit Mix)
+02. Guilhem Mariposa & Idiocrate - Dawn (Original Mix)
+03. Takticals feat. Simply Oktaver - Just For One Day (Beach Mix)
+04. Ben Brummitt - A Story To Be Told (Edit Mix)(   Читать дальше...   )Жанр: House, Chill House, Deep HouseПродолжительность: 02:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A50C4D714B593A02F92900F98CC4E85987532E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237824   (549642) от 26.07.2018
 
 VA - Ibiza Cocktail Time (50 Deep-House Warm Ups) Vol.4 (2018) [MP3|320 Kbps] <Deep House, Progressive>
@@ -668,33 +695,6 @@ VA - Advanced Modern Mood Music Vol.5 (2016) [MP3|320 Kbps] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41F332CCF3D23620114879A1058F90E8C0C9B3A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046785   (551178) от 28.08.2016
-
-VA - Advanced Modern Mood Music Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Lovers - Analogamente [04:30]
-02. Dee Lice - Derize - Chill Groovers Mix [05:45]
-03. The Global Lounge - Deeper and Deeper [02:31]
-04. Eddy J - Make Those Eyes [03:16](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A2730CC2FEDB35C8B6F491612B1C5A7CDEC48F
 ```
 
 

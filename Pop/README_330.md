@@ -1,3 +1,84 @@
+###  Публикация: 982022   (948136) от 03.02.2016
+
+VA - Ultimate Love • 4CDs Of Great Love Songs (2015) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Pop, Soul, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greatest Love All Of All (Whitney Houston) [04:51]
+02. She's Always A Woman (Billy Joel) [03:21]
+03. Brown Eyed Girl (Van Morrison) [03:05]
+04. All Of Me (John Legend) [04:31](   Читать дальше...   )Жанр: Pop, Soul, R&B, BalladПродолжительность: 04:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDEE974BB612930E8486F829ACD0520D95C2FA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362637   (948317) от 24.02.2020
+
+Frank Lozano - The Album (2018) [FLAC|Lossless|image + .cue] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948317.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Fotonovela 5:56
+2 Las Manos Quietas 5:08
+3 Vuela Vuela (Classic Mix) 4:17
+4 I Wanna Fly 3:44(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751D43C883C1EB9AC65515BF47168BD033EFA183
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 277611   (948700) от 11.01.2011
+
+Ace Of Base - 37 альбомов (1993-2010) [FLAC|Lossless]<Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_948700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «Ace of Base» основана была в Швеции в начале 90-х годов. Ее родоначальниками считаются Йонас Берггрен и Ульф Экберг, которые стали пробовать свои силы в музыке, первоначально работая в стиле техно. Название коллектив менял несколько раз, пока не появилось самое удачное, под которым коллектив и добился мировой известности.Albums
+1993 - Happy Nation
+1993 - Happy Nation (U.S. Version)
+1993 - The Sign(   Читать дальше...   )Жанр: EurodanceПродолжительность: 19:37:21
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362315   (949340) от 23.02.2020
 
 Мираж - Звездная галерея (2002) [FLAC|Lossless|image + .cue] <Pop, Eurodisco>
@@ -622,84 +703,6 @@ VA - 80s Movie Hits (2006) 2CD [FLAC|Lossless|image + .cue] <Pop, Soul, Pop Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A79B18CCFB737F63EBE7476754469763F68412
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981681   (951404) от 01.02.2016
-
-Celine Dion - Celine Une Seule Fois / Live 2013 (2014) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All By MyselfЖанр: Pop, Vocal, BalladПродолжительность: 02:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD22E5A811F4AC9CF0D47B26DE0A1A7298E2A6A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858018   (951638) от 09.01.2015
-
-VA - Best Pop Ballads (1999) 2CD /Polymedia, LC 00136/ [FLAC|Lossless]<Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_951638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник от не очень известной фирмы Polymedia вобрал в себя наиболее известные лирические поп-произведения на момент своего издания (1999 год). Сегодня некоторые из них уже подзабыты, но большинство по прежнему звучат на многих поп и рок радиостанциях. Да и в личных коллекциях занимают не последнее место.CD2:
-01. Black - Wonderful Life  (4:48)
-02. Bonnie Bianco - Miss You  (4:54)
-03. Glenn Medeiros - Nothing's Gonna Change My Love For You  (3:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C675C19F59FA6E9B45DF630E51435F601D797905
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361893   (952178) от 21.02.2020
-
-IOWA - #людимаяки (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_952178.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Маякни мне
-2. Росток
-3. В танце
-4. Почему так?!(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FDDE1CA2CC0EC33B2EACB1205B8FF2104250CFF
 ```
 
 

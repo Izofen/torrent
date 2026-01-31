@@ -1,3 +1,30 @@
+###  Публикация: 1030118   (676397) от 29.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 25 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laser Cowboys - Radioactivity ( From The Ukraine 1986 )
+02. Fancy - Chinese Eyes ( 1984 )
+03. Monte Kristo - Sherry Mi-Sai ( 1988 )
+04. Nero - A. E. I. O. U. ( Special DJ Version 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 1:13:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA3517B8FCBD8E296EA4CCE6A085881D6B2F69B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536304   (676447) от 11.03.2022
 
 VA - Громкие новинки Марта (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -683,33 +710,6 @@ VA - Coastlines 100 Workout Hits (2018) [MP3|320 Kbps] <Electro, Indie, Reggae>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEE50C8D8F1BEA72EBF2080C0224CDEB1C6FBA3E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223149   (677389) от 03.05.2018
-
-VA - Danced Our May Day (2018) [MP3|320 Kbps] <Tropical, House, Future Bass>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charming Horses ft. Karlyn - Freak On (Extended Mix)
-02. Sigrid - Strangers (R3hab Remix)
-03. MAUII - This Ain't Wrong (feat. Adana)
-04. Rock Stalone - Rockstar (BBop & Rocksteadi Radio Edit)(   Читать дальше...   )Жанр: Tropical, House, Future BassПродолжительность: 03:32:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E3CDA30CFE359316A7BF2CE60E9BC029721BECF
 ```
 
 

@@ -1,3 +1,327 @@
+###  Публикация: 1217132   (744525) от 03.04.2018
+
+System Of A Down - Toxicity (2001) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toxicity - второй альбом американской рок-группы System of a Down, выпущенный 4 сентября 2001 года Columbia Records. В отличии от более агрессивного дебютного альбома группы, Toxicity более мелодичен и гармоничен. Несмотря на то, что жанр альбома классифицируется главным образом как альтернативный метал или ню-метал, Toxicity также включает в себя элементы некоторых (   Читать дальше...   )01. Prison Song (3:21)
+02. Needles (3:14)
+03. Deer Dance (2:55)
+04. Jet Pilot (2:06)(   Читать дальше...   )Жанр: Alternative Nu MetalПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987EB3863A14788CEC68CB96BF8B45DC90CD58FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217120   (744620) от 03.04.2018
+
+VA - Rock Covers (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nickelback - Saturday Night's Alright (For Fighting)
+02. Opeth - Would
+03. P.O.D. - Bullet The Blue Sky
+04. Rise To Remain - Enter Sandman(   Читать дальше...   )Жанр: RockПродолжительность: 01:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED754F77A8792729D976D93F2595FCF405DFEFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217138   (744629) от 03.04.2018
+
+System Of A Down - Mezmerize (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Alternative Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mezmerize - четвёртый студийный альбом группы «System of a Down», выпущен 17 мая 2005 года. Первая часть концептуальной дилогии "Mezmerize/Hypnotize". Mezmerize примечателен тем, что гитарист и до этого бэк-вокалист группы Дарон Малакян отныне сам стал исполнять многие написанные им вокальные партии наряду с основным вокалистом группы Сержем Танкяном.01. Soldier Side - Intro (1:04)
+02. B.Y.O.B. (4:15)
+03. Revenga (3:48)
+04. Cigaro (2:12)(   Читать дальше...   )Жанр: Alternative Nu MetalПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DD2DE0C278699D48EED18CE52B231B21BA20050
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217256   (744763) от 03.04.2018
+
+7000$ - Цена победы (2018) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цена победы
+02. Человек человеку волк
+03. Королевство теней
+04. Голоса звучат(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208075A344DF22974623EAB6494AB9F7DF103273
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020240   (744854) от 26.05.2016
+
+Би-2 - ... и корабль плывёт (2000) 2xCD, 2016, Мистерия звука [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_744854.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. И корабль плывет... (3:53)
+02. Восток (3:54)
+03. Сердце (5:10)(   Читать дальше...   )Жанр: RockПродолжительность: 00:54:16 + 00:29:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E4196CBFBAC53A54471587DFECF78F8102D63BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282517   (745047) от 12.02.2019
+
+Electric Light Orchestra - ELO's Greatest Hits (1994) Unofficial Release [FLAC|Lossless|image + .cue] <Pop Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock'n Roll Is King
+02. Hold On Tight
+03. Don't Bring Me Down
+04. Rockaria(   Читать дальше...   )Жанр: Pop Rock, Symphonic RockПродолжительность: 01:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3AB1538B0083315526A2C1E1E838BB47DE55119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524279   (745066) от 15.01.2022
+
+Nestor - Kids In A Ghost Town (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745066.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Nestor" впервые собрались в 1989 году. Пять друзей детства, как и большинство подростков, мечтали стать рок-звездами, их мечта со временем угасла - но дружба, как и их любовь к музыке - осталась. И вот, спустя более трех десятилетий, участники воспользовались возможностью воссоединить группу и выпустить дебютный альбом. Название группы взято от имени дворецкого (   Читать дальше...   )01. A Fanfare For The Reliable Rebel (Intro)
+02. On The Run
+03. Kids In A Ghost Town
+04. Stone Cold Eyes(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3883E89226D68D4352F0371970E743405AA90E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020603   (745128) от 26.05.2016
+
+Lacuna Coil - Delirium (2016) [MP3|320 кб/с] <Gothic Metal, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The House Of Shame
+02. Broken Things
+03. Delirium
+04. Blood, Tears, Dust(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EFABD4E34560B6182A8F9EFEAF453CA6F02857
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020634   (745137) от 26.05.2016
+
+Тайм-Аут - Всё лучшее в одном (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Люди как люди
+02. Я люблю кататься
+03. Осколки зла
+04. Буратино(   Читать дальше...   )Жанр: RockПродолжительность: 01:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53506E4FA604E96686304A9D0526C4A8A105AB57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282438   (745152) от 12.02.2019
+
+Roger Waters - Live In Rome July 14 2018 (2019) Bootleg [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pre-Show / Intro
+02. Speak to Me
+03. Breathe
+04. One of These Days(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F6228C7AFCC6A581A8CF526E4CA9C6E6020AF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282429   (745158) от 12.02.2019
+
+7Б - Атмосфера (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всем уру-ру! Вот и пришло время подытожить полувековой итог моего земного пути этим Атмосферным музыкальным альбомом и представить его вам в качестве подарка и ответов на всё! Хочу выразить огромное спасибо и низкий поклон всем моим любимым и родным людям и дорогим уважаемым коллегам, друзьям и поклонникам. СПАСИБО за вашу Любовь, Музу, безграничное терпение, заботу, (   Читать дальше...   )1. Рок жив! (feat. Влад Демьян)
+2. ВПЭН (Верный пёс этого неба)
+3. Сны весны
+4. Ночное лето(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E441C4A940D3E09CB31A849997360B911B6232D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1524293   (745206) от 15.01.2022
+
+Peter H Nilsson - Sign Of Myself (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher Ground
+02. Fire and Thunder
+03. Time To Remember
+04. Can't Get Over You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1B1E723C63139BFB2D9DD6CBB4206B80F1F3B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1524285   (745267) от 15.01.2022
 
 Eliminator - Ancient Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -369,328 +693,6 @@ Faith No More - Angel Dust (1992) London [FLAC|Lossless|image + .cue] <Alt.Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943CDEE949197DE2B7658FFD3BA2C5F352955EF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020526   (745528) от 26.05.2016
-
-Blizzen - Genesis Reversed (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Anthem To A Distant Star
-02. Trumpets Of The Gods
-03. Masters Of Lightning
-04. The Beast Is On Your Back(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC20B3E7C4FE937B5E0868EB5A0E103506AB2A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217044   (745895) от 02.04.2018
-
-Океан Ельзи - Без тебе (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Без Тебе (4:20)Жанр: RockПродолжительность: 00:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4B0F2E14CA1B5E991D3533D9940CE976EFB5A4A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216984   (746124) от 02.04.2018
-
-Lake of Tears - Forever Autumn (1999) Japanese Edition [FLAC|Lossless|image + .cue] <Goth Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forever Autumn (с англ. — «Вечная осень») — студийный альбом группы Lake of Tears, вышедший в 1999 году.
-Forever Autumn записан в Стокгольме в период между январём и мартом 1999 года. Почти весь материал к альбому написан фронтменом группы — Даниэлем Бреннаром, переживавшим один из труднейших периодов в жизни — расставание с любимой девушкой. Альбому (   Читать дальше...   )01. So Fell Autumn Rain (5:23)
-02. Hold On Tight (4:06)
-03. Forever Autumn (5:56)
-04. Pagan Wish (4:24)(   Читать дальше...   )Жанр: Goth Rock, Doom MetalПродолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73A2501816EAF0E76A594A2E65ACF2FA52E8DC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216855   (746133) от 02.04.2018
-
-Mantus - Refugium (2016) [FLAC|Lossless|image + .cue] <Darkwave, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture (2:46)
-02. Zwischen Den Nachten (4:07)
-03. Niemals Genug (4:35)
-04. Das Wunder Des Lebens (4:06)(   Читать дальше...   )Жанр: Darkwave, Gothic MetalПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687AE8BDFEE4DCAFC56645BD37B2BF356552E412
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216814   (746134) от 02.04.2018
-
-Memoriam - The Silent Vigil (2018) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulless Parasite
-02. Nothing Remains
-03. From the Flames
-04. The Silent Vigil(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF0AB18A629911CB861B8F301B07A5A37DFB4912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216990   (746135) от 02.04.2018
-
-Lake of Tears - Headstones (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Goth Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foreign Road (4:08)
-02. Raven Land (5:42)
-03. Dreamdemons (5:15)
-04. Sweetwater (4:33)(   Читать дальше...   )Жанр: Goth Rock, Doom MetalПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCD6D57BBAFF556DDBC9A354AF6C9E9E3EE9680
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216833   (746136) от 02.04.2018
-
-Alterbeast - Immortal (2014) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Flesh Bound Text  (5:55)
-02 - Of Decimus Divine  (2:36)
-03 - Vile Remnants  (5:06)
-04 - Ancient's Retribution  (3:35)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CC0DF796BF7739EA9BC56BE6E3112A0D733F2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216826   (746238) от 02.04.2018
-
-Alterbeast - Feast (2018) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Welcome to Your Doom (3:09)
-02 - The Maggot's Ascension (3:41)
-03 - Black Flame Illumination (3:08)
-04 - Feast (4:12)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53EBD50E3120DB1A128547FA66D313AD5AB24136
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216881   (746239) от 02.04.2018
-
-Vokodlok - Mass Murder Genesis (2003) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murder Introduction
-02. Blestem
-03. Silent Disturbance
-04. Conjurer Of Suffocation(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23DE34D3D19E8B22E72CC908373C50F694F854D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120800   (746271) от 14.01.2022
-
-Enterprise Earth - 4 альбома + 2 EP + 2 сингла (2014-2022) [MP3|320 Kbps] <Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Dreams Are Broken
-02. Reanimate // Disintegrate
-03. Unleash Hell
-04. I Have to Escape(   Читать дальше...   )Жанр: Deathcore, MetalcoreПродолжительность: 04:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:980754B166D4FA2A7593440BF1E95AC49B0B9349
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282025   (746309) от 11.02.2019
-
-AC / DC - The Best (1997) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jack
-02. Highway To Hell
-03. Touch Too Much
-04. Back In Black(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6B760A8B0C22D14BD7284DE0C2EA77EF6CC1A48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020151   (746494) от 25.05.2016
-
-VA - Ultimate... Guitar Legends (4CD) Box Set (2015) [FLAC|Lossless|image + .cue] <Rock, Blues-Rock, Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746494.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Boston - More Than A Feeling 3:30
-02. Ram Jam - Black Betty 3:59(   Читать дальше...   )Жанр: Rock, Blues-Rock, Hard-RockПродолжительность: 04:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A419EA7E81FCB61324D3FFFC51EE67D172B9710E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1275078   (790961) от 10.01.2019
+
+VA - Empire Records - Red Star (2019) [MP3|320 Kbps] <Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Protector 101 - Lost Scene 3
+02. Apoxyz - Centurion Report (Reprise)
+03. Danger Mode - Final lap pt. 2 - Race of no return
+04. Hypnosis - Argonauts (Album Version)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:42:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA3B1746C64CA0CACAA01BC3A2C1F5D99641B2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201706   (790984) от 27.01.2018
 
 VA - Популярный бикини микс (2018) [MP3|256-320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ Rus:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4A4A62EA491EADE8FD0B94D5397C49368B02B49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387467   (791814) от 01.06.2020
-
-VA - Music News vol.13 (2020) [MP3|320 Kbps] <Pop, Hip - Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AlphaLove - Call Me Up (02:47)
- 02. Animal ДжаZ - О Хлебе И Воде (02:44)
- 03. Anivar - Новый Рассвет (04:03)
- 04. Belty - Море (04:26)(   Читать дальше...   )Жанр: Pop, Hip - HopПродолжительность: 04:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA14D410F37ABC6650A8CE7BE932E4D763912D76
 ```
 
 

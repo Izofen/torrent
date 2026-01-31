@@ -1,3 +1,30 @@
+###  Публикация: 1321313   (461214) от 23.08.2019
+
+The Fray - Through the Years: The Best of The Fray (2016) Epic Records [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over My Head (Cable Car) (3:58)
+ 02. How To Save A Life (4:24)
+ 03. Look After You (4:28)
+ 04. All At Once (3:49)(   Читать дальше...   )Жанр: Indie Rock, Pop RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3DF5F958E7347ABDCAB28CB2F66064D27B820B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321207   (461217) от 23.08.2019
 
 Oso Oso - basking in the glow (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie, Pop Punk, Emo>
@@ -668,33 +695,6 @@ Blisses B - Tell Your Friends You Love Them And Why (2019) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE6C9883B9AD28D7522D130C796F4C4F8C7ABB99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319423   (484798) от 11.08.2019
-
-Hawksley Workman - Median Age Wasteland (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds in Train Stations (04:58)
-02. Lazy (04:35)
-03. Battlefords (05:16)
-04. Italy (03:58)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00: 51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594FA6F5FF4F95E84DCBD0E3C776729383C1AB9B
 ```
 
 

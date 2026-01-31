@@ -1,3 +1,209 @@
+###  Публикация: 993977   (893973) от 06.03.2016
+
+Stephen Rhodes - Indian Meditation (2016) [MP3|320 кб/с] <New age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Go. Loslassen
+02. Mindfulness. Achtsamkeit
+03. Serenity. Gelassenheit
+04. Inner Freedom. Innere Freiheit(   Читать дальше...   )Жанр: New age, MeditationПродолжительность: 01:01:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4D5E8AF0017F80AA4402857067A30071363481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993880   (893979) от 06.03.2016
+
+Marco Beltrami - Gods Of Egypt (Music From The Motion Picture) (2016) [FLAC|Lossless|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gods Of Egypt Prologue (02:39)
+02. Bek And Zaya (00:45)
+03. Market Chase (00:29)
+04. Coronation (02:25)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B662776492F8B395285C708CC8A9F9F1D3C283
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 183917   (894035) от 17.03.2010
+
+Faun - Acoustic - Buch Der Balladen (2009) [MP3|320 kbps]<Medieval Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Prolog
+02. Sigurdlied
+03. Herr Heinerich
+04. Sen Polska
+05. Tanz Uber Die Brucke
+06. Brynhildur Tattur
+07. Nahtegal
+08. Jahrtausendalt
+09. Der Wilde Wassermann
+10. Belle Dame Sans Merci(   Читать дальше...   )Жанр: Medieval FolkПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761844   (894073) от 01.03.2014
+
+Сергей Хмелевский - World of Tanks (2014) [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 - По машинам!
+ 02 - Выдвигаемся на позицию
+ 03 - Марш стали
+ 04 - Руины Химмельсдорфа
+ 05 - "Эй, ухнем!"
+ 06 - Уличный бой
+ 07 - Заря над Перевалом
+ 08 - Горная тропа
+ 09 - Читая "Звёзды и полосы"
+ 10 - Воины Нового Света(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E460C931835F3B472A5E82B9FB20E82584053DD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101514   (894440) от 07.02.2017
+
+VA - Blade / Блэйд (1998) Unofficial [MP3|127-320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creedence Clearwater Revival - Bad Moon Rising
+02. Polygon Window - UT1 - Dot
+03. Shonen Knife - Ah Singapore
+04. DJ Krush - Yeah(   Читать дальше...   )Жанр: Unofficial SoundtrackПродолжительность: 02:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0F4C100B5900CABAAE9C6280FDDAD3AF7EFC1C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761643   (894496) от 01.03.2014
+
+Randall McClellan - The Healing Music of Rana (2014) /Limited Edition/ [FLAC|Lossless]<Ambient, Meditation, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Vol. I
+01. Sirius (41:50)
+02. Celestial Lake (41:36)
+Vol. II
+01. Mountain Frangrance (20:42)
+02. Across Clouds of Distance Past (20:30)
+Vol.III
+01. Solarwindplay (26:55)
+02. Crystal Morning (26:24)Жанр: Ambient, Meditation, New AgeПродолжительность: 04:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA29EFB4C29E70FB6776573FEEB7022E2BF8D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100094   (894629) от 07.02.2017
+
+Pryapisme - Diabolicus Felinae Pandemonium (2017) [MP3|320 Kbps] <Instrumental Avant-garde Metal, Electronic, Experimental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894629.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Un Max De Croco
+2. La Boetie Stochastic Process
+3. 100 % Babines, Pur Molossoïde!
+4. A La Zheuleuleu(   Читать дальше...   )Жанр: Instrumental Avant-garde Metal, Electronic, ExperimentalПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71253919298C4B275E65A9DA846078567F8527DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636697   (894967) от 03.04.2013
 
 Павел Маркелов | Русская колокольная мистерия "Светлояр" (2006) [MP3|320 кб/с]<Колокольный звон>
@@ -514,228 +720,6 @@ ABBAЖанр: Easy Listening, InstrumentalПродолжительность: 00
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:354C78FE2E39B91A5C4815019983540B109616D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636854   (899744) от 31.03.2013
-
-Мужской камерный хор п/у Вадима Байкова | Акафист Божественным Страстем Христовым (Пассия) (2007) [MP3|320 кб/с]<Церковное пение>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Тебе, одеющагося (7:07)
-02. Кондак и Икос 1 (3:57)
-03. Кондак и Икос 2 (2:09)
-04. Кондак и Икос 3 (2:18)
-05. Кондак и Икос 4 (2:13)
-06. Кондак и Икос 5 (2:08)
-07. Кондак и Икос 6 (2:00)
-08. Кондак и Икос 7 (1:57)
-09. Кондак и Икос 8 (2:13)
-10. Кондак и Икос 9 (2:07)(   Читать дальше...   )Жанр: Церковное пениеПродолжительность: 01:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C54EE7629B0598890B28E1500F767690A19072
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 293201   (899810) от 11.02.2011
-
-Dandelium - Дискография (2006-2008) [MP3|256 kbps]<Instrumental symphonic melodic metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental symphonic melodic metalПродолжительность: 03:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CD029545E338494370D7B58917034DAD5D8EAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636971   (899969) от 31.03.2013
-
-VA - Классика русского романса (2008) [MP3|320 кб/с]<Романс>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Бубна звон - Лариса Луста
-02. Судьба-рулетка - Сергей Савченко
-03. Моя гитара - Наталья Корнилова
-04. Дворянский вальс - Александр Богданов
-05. Отцвели хризантемы в саду - Елена Васильева
-06. Возвращение ангела - Дмитрий Юрич
-07. Заграница - Юлия Ласкина
-08. Эй, зима... - Владимир Мичурин
-09. Мадемуазель - Станислав Слуцкер
-10. Совсем чужие - Лариса Луста(   Читать дальше...   )Жанр: РомансПродолжительность: 03:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF2330E34150416881F279E0BE953B4AD0B29B44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760793   (899999) от 26.02.2014
-
-New Bums - Voices in a Rented Room (2014) [FLAC|Lossless]<Lo-Fi, Indie Pop, Acoustic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Black Bough (04:52)
- 02. Pigeon Town (03:20)
- 03. Your Girlfriend Might Be a Cop (02:46)
- 04. Sometimes You Crash (02:18)
- 05. The Killers and Me (02:50)
- 06. Your Bullshit (03:50)
- 07. It's the Way (03:51)
- 08. Welcome to the Navy (01:57)
- 09. Burned (03:43)
- 10. Town on the Water (03:29)(   Читать дальше...   )Жанр: Lo-Fi, Indie Pop, AcousticПродолжительность: 00:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB940D8AE523040387ADF4A56A5BD8795080112E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474245   (900142) от 31.03.2013
-
-Buedi Siebert - 3 albums (1995-2003) [MP3|320 кб/с]<New age, Relax, Meditative, Mantras>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(5:56) 01. Awakening Chi
-(4:41) 02. Celebrating Silence
-(2:20) 03. Water Course Way
-(5:19) 04. Dancing with the Water
-(1:52) 05. A Breath of Joy
-(5:38) 06. Turning Turning
-(2:26) 07. Finding the Quiet
-(6:43) 08. The Light Dance
-(2:26) 09. Gentle Breeze
-(5:23) 10. Riding the Dragon(   Читать дальше...   )Жанр: New age, Relax, Meditative, MantrasПродолжительность: 00:59:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68D2066557F98C68CB361A06E3C478922EBE100
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636189   (900543) от 31.03.2013
-
-VA - В ритме страсти (3СD) (2012) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-CD1Жанр: InstrumentalПродолжительность: 01:10:05
-
-1. Angel Robledo - Son de la loma (3:02)
-2. Ritmo de Cuba - Marinero (4:12)
-3. Elmer Ferreira - Ni chicha ni limona (4:02)
-4. Miguel-Angel Gamarra - La Camisa negra (3:40)
-5. Tlen Huicani - La Bamba (4:25)
-6. Tlen Huicani - El Jarabe loco (4:19)
-7. Mariachi Vargas de Tecalitlan - La Adelita (2:38)
-8. Voces - El Cumbanchero (1:54)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079C1C1666C6C6FE2F9C6DC9A6A6883AFD3121F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637335   (900675) от 31.03.2013
-
-Ara Dinkjian - Peace on Earth (2008) [MP3|112-320 кб/с]<Instrumental, Ethnic, World>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(03:57) 01. Urfa Divan
-(06:16) 02. Bir Gun Olacak
-(03:25) 03. Mandilatos
-(03:29) 04. Erangi
-(03:10) 05. Kamancha - Yis Kou Ghimetn Chim Giti
-(03:40) 06. Ferafeza Longa
-(07:06) 07. Mahur Saz Semai
-(10:34) 08. Bint El Balad
-(03:36) 09. Vart Kaghelen Goukas Yar - Al Ayloughus Gorav
-(12:01) 10. Beyati Saz Semai(   Читать дальше...   )Жанр: Instrumental, Ethnic, WorldПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6304F59BDA8A3F1A5C0D36F2152BCBBD08B54F80
 ```
 
 

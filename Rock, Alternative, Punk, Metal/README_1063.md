@@ -1,3 +1,328 @@
+###  Публикация: 1504653   (810471) от 24.10.2021
+
+Gengis Khan - 3 Albums (2013-2021) [MP3|320 Kbps] <Classic Speed Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Surrender [00:04:56]
+02. Colder Than Heaven [00:05:34]
+03. He's the King [00:05:14]
+04. Reinventing the Fire [00:04:14](   Читать дальше...   )Жанр: Classic Speed Heavy MetalПродолжительность: 3CD, 01:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9B241611AD4986FD02891A783B2197EC996EA02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504502   (810473) от 24.10.2021
+
+Cradle Of Filth - Existence Is Futile (2021) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fate of the World on Our Shoulders (1:37)
+02. Existential Terror (6:17)
+03. Necromantic Fantasies (5:40)
+04. Crawling King Chaos (5:27)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068179F9CA0F9E2751F57BAB985FDFE5852BBE6D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504266   (810474) от 24.10.2021
+
+Kaelis - Far Galaxy (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation (04:23)
+02. Far Galaxy (04:23)
+03. Prophecy (04:37)
+04. Barren Land (05:54)(   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC83B05902925F47BE1141C1FD4D67AA8958EC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504482   (810476) от 24.10.2021
+
+Zornheym - The Zornheim Sleep Experiment (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corpus Vile
+02. An Evil Within
+03. Dead Silence
+04. Keep The Devil Away(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:37:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1465251BCB83B0DEBDDB41315BBD846F419522D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504311   (810477) от 24.10.2021
+
+Seven Sisters - Shadow of a Fallen Star, Pt. 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda Rising (2:43)
+02. Beyond The Black Stars (3:56)
+03. The Artifice (4:53)
+04. Whispers In The Dark (4:43)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:087C7FD2E62DD6D3B0937D0EFAD6380765B259D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883702   (810860) от 01.04.2015
+
+Hollywood Undead - Day Of The Dead (2015) Best Buy Edition [MP3|320 кб/с]<Alternative Rock, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Usual Suspects
+02. How We Roll
+03. Day Of The Dead
+04. War Child(   Читать дальше...   )Жанр: Alternative Rock, RapcoreПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC3363D11C6ECB75D57C35DBC70B09F19A08F8F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883789   (811041) от 01.04.2015
+
+Jane Air - Чёрная гавань (2015) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По первому снегу
+ 02. Чёрная гавань
+ 03. Небеса
+ 04. Держим фарватер(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9504FAEAB5060371E00BDCD00DA8053D3F3E317
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118433   (811073) от 26.03.2017
+
+Paul McCartney - Flowers In The Dirt (1989) 2CD, Remastered, 2017 [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811073.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1.
+01. My Brave Face (Remastered 2017) (3:21)
+ 02. Rough Ride (Remastered 2017) (4:45)
+ 03. You Want Her Too (Remastered 2017) (3:15)(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03B1BBB1B25E40D618EF3EC667E5200443A8CF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009064   (811475) от 20.04.2016
+
+Батюшка (Batushka) - Литоургиiа (Litourgiya) (2015) [FLAC|Lossless|image + .cue] <Black/Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ектениiя I - Очищение
+02. Ектениiя II - Благословение
+03. Ектениiя II - Премудрость
+04. Ектениiя IV - Милость(   Читать дальше...   )Жанр: Black/Doom MetalПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC23D136D7FD3588651A3A5A2E0EE563BE6885CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118399   (811482) от 26.03.2017
+
+Barock Project - Detachment (2017) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Neo-Prog, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811482.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Driving Rain (1:02)
+2. Promises (5:05)
+3. Happy to See You (7:37)
+4. One Day (7:23)(   Читать дальше...   )Жанр: Progressive Rock, Neo-Prog, Classic Rock, Art Rock, Symphonic RockПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF1FB94CDF7E0C8B9369D414C4FE6E02FC8C2F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118914   (811489) от 26.03.2017
+
+VA - Охота 72 (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Скворцы Степанова - Ж*па 2.0
+02. Свободный полёт/Павел Пиковский - Не ждал
+03. CL.EVER - Стены
+04. Fast-mo - Beat(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFB46F139D40BC426F0A3EA324A9DA9B41E98AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314857   (811527) от 23.10.2021
+
+Santana - 54 albums, 5 Box sets, 137 CD (1968-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Latin Rock, Blues Rock, Jazz Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Карлос Сантана – американский гитарист мексиканского происхождения, многократный лауреат музыкальной премии «Грэмми». Стиль игры композиций в альбоме «Santana» стал визитной карточкой гитариста, его неповторимой изюминкой, отличающей Карлоса Сантану от других музыкантов. По мнению музыкального сайта AllMusic, «Santana является основополагающим и ярчайшим представителем (   Читать дальше...   )--------------------------
+
+01. Jingo (9:39)
+02. Persuasion (7:06)(   Читать дальше...   )Жанр: Latin Rock, Rock, Jazz Fusion |Продолжительность: 121:28:15
+ |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47855A411620B1F3B42994FE9004DF9E53B1564E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504596   (811542) от 23.10.2021
 
 ДДТ (DDT) - Творчество в пустоте (2021) [MP3|320 Kbps] <Rock>
@@ -365,329 +690,6 @@ Stuart Smith - Heaven & Earth (1999) [FLAC|Lossless|image + .cue] <Hard Rock, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39A7FC8213596D7ECFB7FA0D1FB8538BF0170B57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118447   (811818) от 26.03.2017
-
-Helion Prime - Helion Prime (2016) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Alien Terrain
-02. The Drake Equation
-03. Life Finds a Way
-04. Into the Black Hole(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED5D7206A2059E4B943DB2E1E1BF07B7BE2E7BF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118423   (811821) от 26.03.2017
-
-Ofard - Words From The Dead (2012) Reissued, 2013 [FLAC|Lossless|image + .cue] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Words From The Dead (The Living Won't Listen)
-02. Völvans spådom
-03. Man Of Iron (Bathory cover)Жанр: Folk MetalПродолжительность: 00:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:477BEE8E9BD276D503462AF03B2BBD1D4D5A5A9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118440   (811822) от 26.03.2017
-
-Poltergeist - Back to Haunt (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to Haunt
-02. Gone and Forgotten
-03. Patterns in the Sky
-04. And So It Has Begun(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB092398D779236660E5B4C1243F539A5957A41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118417   (811824) от 26.03.2017
-
-Sacrificium Carmen - Ikuisen tulen kammiossa (2015) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucifer
-02. Öisen haahkan liekeissä
-03. Pimeän silmän goetia
-04. Kaaoksen käärme(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE7386AE83AB409F612A57257C9E686C69E65B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118412   (811825) от 26.03.2017
-
-Sad - Utter Nihil Worship (2016) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tricked by the Light
-02. Immerse into Submission
-03. Apophenia
-04. Extended Lysergic Perception(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B06A070EE84A4373CC22B5F82FBBD63B0BDDE2DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009019   (811928) от 20.04.2016
-
-Imperium - Dreamhunter (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamhunter [05:18]
-02. Heaven Is Falling [04:43]
-03. Wasted Years [04:36]
-04. Always Forever [05:00](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22B40F4ACD9A34F18AC60E9C2F4D5045DF0D1C12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118437   (811933) от 26.03.2017
-
-Master's Hammer - Formulae (2016) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Den nicoty 03:40
-02. Maso z kosmu 04:13
-03. Votava 03:29
-04. Shy Gecko 03:18(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6197D1D2CA133BDCE4E9881C90FD1AF63B0DFC31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118735   (811934) от 26.03.2017
-
-Nekrokrist SS - Nekrokrist SS (2009) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knife
-02. Divine Light
-03. There's no Place for You
-04. Cremation(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6449A7BD55381EA77B7FD129BFC85EE3441AB44E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118407   (811935) от 26.03.2017
-
-Sarkrista - The Acheronian Worship (2013) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. Grim Satanic Vengeance
-03. Funerals and Flaring Torches
-04. Ruthless Winter(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FA26E9C5B8C452652F7415F14F448955A0448A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118732   (811938) от 26.03.2017
-
-Svartrit - III (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Till eder ära
-03. De mörka gudarna
-04. Den inre svarta flamman(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA34F22A7BF94CD39245D7A27AF696A2FFB07E73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118730   (811939) от 26.03.2017
-
-Svartrit - II (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Black Stars of Death and Wisdom
-03. A Labyrinth of Death
-04. Domedagens tid (Ragnarök)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE7DD35A21925E81F91CFF4FE84DE19D3FBEEE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118363   (811940) от 26.03.2017
-
-Svartrit - I (2010) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Svartrit
-03. Svarthetens ridå
-04. Mänsklighetens fall(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C19AEDEC48292B59C75606D2A122142257E37E00
 ```
 
 

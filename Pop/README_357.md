@@ -1,3 +1,84 @@
+###  Публикация: 1447994   (1031389) от 15.02.2021
+
+Roxy Robinson - Silence And Other Sounds (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On (5:14)
+02. Let The Love Like Shine (3:09)
+03. Lonely Is The Night (4:12)
+04. Nice And Easy (4:02)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC26119A8F8D237D12526341DD1F442B6DDC7459
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447797   (1031544) от 14.02.2021
+
+Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (3:04)
+02. Don't Start Now (3:03)
+03. Cool (3:29)
+04. Physical (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F94B268CCA8F6FAB69CE555063C6AFA8D33169
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447693   (1031624) от 14.02.2021
+
+VA - The Best Love Songs Album In the World...Ever! (2021) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved (3:02)
+02. Calum Scott - Dancing On My Own (4:20)
+03. Justin Bieber - Love Yourself (3:52)
+04. Alessia Cara - Scars To Your Beautiful (3:50)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FE821D9FE66A493A7D183864ABBB73E862F9DD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620812   (1031633) от 22.03.2023
 
 VA - Italo Dance Classics Volume 3 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop, 	Italo-Disco>
@@ -614,87 +695,6 @@ VA - 80s Finest Hits (2023) [MP3|320 Kbps] <Pop, Rock, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFF1A1FF9E9EF37C69E6980217C53CDF0964AFFC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619870   (1032535) от 18.03.2023
-
-VA - Disco No.1 (2023) [MP3|320 Kbps] <Disco, Nu-Disco, Indie Dance, Chicago House>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trujillo - Looking up through you (Original Mix)
-02. Andres Vegas x Gota Rai - La Isla Blanca (Remastered 2023)
-03. Joseph Terruel - Tryin To Be Me (Original Mix)
-04. Mathieu Cle - To Begin With (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu-Disco, Indie Dance, Chicago HouseПродолжительность: 01:21:05 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B51CB9BEDD28BD89F343CC61F051A2DFFC88E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619872   (1032539) от 18.03.2023
-
-VA - The 100 Collection: 00s – Top Up 1 (2023) [MP3|320 Kbps] <Synthpop, Post-Disco, Hard Rock, Gangsta Rap>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 50 Cent - In Da Club (Clean)
-02. Afroman - Because I Got High
-03. Alexandra Burke - Hallelujah
-04. Amy Winehouse - Back To Black (Radio Edit)(   Читать дальше...   )Жанр: Synthpop, Post-Disco, Hard Rock, Gangsta RapПродолжительность: 03:06:30 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6E60E12297F1394205A46E1A3D3E2CB269011B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446680   (1032554) от 10.02.2021
-
-Триши - Лунная ночь (2006) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лунная ночь
-02. Я стала звездой
-03. Прощай!
-04. Стоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C4F035DD9A160CF529DED2D353F2DC03B4B2D9
 ```
 
 

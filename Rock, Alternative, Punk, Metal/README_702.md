@@ -1,3 +1,30 @@
+###  Публикация: 1410670   (431984) от 23.09.2020
+
+En Minor - When The Cold Truth Has Worn Its Miserable Welcome Out (2020) [FLAC|Lossless|image + .cue] <Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mausoleums (4:57)
+02. Blue (5:07)
+03. On The Floor (5:22)
+04. Dead Can't Dance (2:38)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40D696C86D98E2836264872167D0CADC214EA76C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410793   (431985) от 23.09.2020
 
 Mysthicon - Silva - Oculis - Corvi (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Death Metal, Doom Metal>
@@ -665,34 +692,6 @@ Shores of Ladon - Eindringling (2013) [FLAC|Lossless|image + .cue] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41F5FBBFA23649A8DCA91E583CBACA74796D2DBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602262   (433102) от 10.10.2015
-
-Antimatter - 6 альбомов + компиляция (2001 - 2015) Discography [FLAC, APE |Lossless]<Psychedelic Atmospheric Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Eyed Man
-02. Killer
-03. Comrades
-04. Stillborn Empires(   Читать дальше...   )Жанр: Psychedelic Atmospheric Rock |Продолжительность: 08:44:27
-Есть группы, музыка которых способна удивительным образом отражать состояние души. Она чарует и умиротворяет, восхищает и заставляет мечтать, она – союзник в грусти и путешествии по собственному внутреннему миру. Музыка Antimatter настолько многогранна, что порой кажется непостижимой до конца.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:834EA70A42C389829A0E77B3A240C61F5908CBF1
 ```
 
 

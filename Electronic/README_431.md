@@ -1,3 +1,30 @@
+###  Публикация: 1382748   (817381) от 12.05.2020
+
+VA - Joyful Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Grooves - Secrets (Original Mix) (04:21)
+02. Mission Brown - Same Old Temptations (Original Mix) (04:33)
+03. Ingo Herrmann - A New Day Is Dawning (Original Mix) (03:37)
+04. Luis Hermandez - A Tu Lado (Original Mix) (04:06)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:26:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1277179523A522BEEDB24CEF8C2234C1BB5239
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008211   (817464) от 17.04.2016
 
 Data Rebel - Angular (2016) [FLAC|Lossless|WEB-DL|24Bit|tracks] <IDM, Ambient>
@@ -666,33 +693,6 @@ VA - Ihu Records: Best Of (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:044D04AA4E8036629FA6F363FED3E17C3DEE8623
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117323   (819269) от 22.03.2017
-
-VA - Ibiza-Unique Pres. Fairy Tails Vol.1 (Mixed By Nightmosphere) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_819269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oscar Salguero - Jack  3:47
-02.  Ticane - On The Beach  5:57
-03.  York - This World Is So Amazing  4:29
-04.  Trillian Miles - Force Of Love  5:06(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1660C2AFF98F0880C99069C2ED92BE1E153D7A1C
 ```
 
 

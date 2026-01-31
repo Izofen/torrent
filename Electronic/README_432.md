@@ -1,3 +1,30 @@
+###  Публикация: 1117323   (819269) от 22.03.2017
+
+VA - Ibiza-Unique Pres. Fairy Tails Vol.1 (Mixed By Nightmosphere) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oscar Salguero - Jack  3:47
+02.  Ticane - On The Beach  5:57
+03.  York - This World Is So Amazing  4:29
+04.  Trillian Miles - Force Of Love  5:06(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1660C2AFF98F0880C99069C2ED92BE1E153D7A1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382491   (819282) от 11.05.2020
 
 VA - Tropical & Future House Workout (2020) [MP3|320 Kbps] <Progressive House>
@@ -663,33 +690,6 @@ The New Deal - Live: Portland Me 12.17.99 (2000) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B046D12EC8D1457BC5DEFD8787C1F3DA01B0AD87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007457   (821703) от 15.04.2016
-
-VA - The Big Ones Vol.8 (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_821703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johan Purl - Riba Noche (Stereosoulz Remix) 07:23
-02. Nico Heinz, Max Kuhn & Fabio de Magistris - Sounds of Island (Robert Fell Remix) 06:23
-03. Jaques Le Noir - Gold Coast (Morsy Remix) 04:57
-04. Nic & Peter - Shakin' (Kevin Prise Remix) 06:52(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93758F9C92D7E307ACEC42D43BF287EDFC9758C2
 ```
 
 

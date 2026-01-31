@@ -1,3 +1,30 @@
+###  Публикация: 1239789   (535245) от 07.08.2018
+
+VA - Best Of Trance 2018 Vol.05 (2018) [MP3|320 Kbps] <Trance, Progresive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mango & Astroleaf - We Tried (Talamanca Vocal Remix) 7:29
+02. Andromedha - Purple Skies (Original Mix) 4:38
+03. Sound Quelle - Orlaz (Original Mix) 5:17
+04. Airdraw & Jo.E feat. Aaren - Bryde's Whale (New Ordinance Edit) 7:06(   Читать дальше...   )Жанр: Trance, Progresive TranceПродолжительность: 02:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4A6A4569039B1B3B92C270DAC6CA8D8846202E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239791   (535249) от 07.08.2018
 
 VA - The Best 50 Drops [Summer'18] (2018) [MP3|320 Kbps] <House, Future House, Funky>
@@ -662,33 +689,6 @@ S'apex (Daniel Myer) - Audiodesign (1998/2015) Remastered [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B8C6489E87D41C233A194CB75746DED696B38A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239382   (538985) от 05.08.2018
-
-Node - Node Live (2018) DiN [FLAC|Lossless|WEB-DL|tracks] <Ambient, Berlin-School>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shinkansen North (14:16)
- 02. Perpetuum Mobile 1 (13:22)
- 03. Arrival (12:16)
- 04. Shinkansen South (13:38)(   Читать дальше...   )Жанр: Ambient, Berlin-SchoolПродолжительность: 01:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC8B35000BE06C066BEACE5DD62B023F5A1A9AC0
 ```
 
 

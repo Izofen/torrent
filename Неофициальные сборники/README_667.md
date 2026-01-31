@@ -1,3 +1,30 @@
+###  Публикация: 1462442   (1021224) от 14.04.2021
+
+VA - Vocal Synthwave Retrowave 1 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Color Theory - This Whole Nothing (4:02)
+02. Modeling - Nothing Unexpected (5:54)
+03. Space March - It's Not Over Yet (4:53)
+04. Primo - Do It Again (3:17)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 05:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC92FC50AD7E47E98F3AD711A9D8D73A02A3AD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462545   (1021228) от 14.04.2021
 
 Gruро Altо Pоdеr - Zona Rossa (2021) [MP3|320 Kbps] <Latino, Folk Pop>
@@ -668,33 +695,6 @@ VA - ЕвроХит Топ 40 Europa Plus 09.04.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFA91EEF1C851A876EB727FE786BF3855F198A39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461468   (1021764) от 10.04.2021
-
-VA - Music News vol.90 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021764.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zolita feat. Kailee Morgue - Bedspell (02:50)
- 002. ЯD - Катим-Катим Со Дворов (02:29)
- 003. Alana O. - Пока Ты Спишь (02:46)
- 004. Aly & AJ - Symptom of Your Touch (03:15)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:40:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B1B67E11A569AA158C797E22FBFA6886073FBFF
 ```
 
 

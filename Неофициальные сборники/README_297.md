@@ -1,3 +1,34 @@
+###  Публикация: 541104   (499178) от 02.09.2012
+
+VA - Enigmatic History (2010) [MP3|256 кб/с]<World music, World beat, New Age, Ethnic Fusion>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_499178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wychazel
+
+01. Rite of the Rainmaker
+02. The Heart of the Cloudforest
+03. The Lost Path
+04. Tears from the Moon
+05. The Soulfinder's Quest
+06. After the RainЖанр: World music, World beat, New Age, Ethnic FusionПродолжительность: 05:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF282E04BE84C9D6C549C477EFA0E30367DC6DD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 935179   (499247) от 08.09.2015
 
 Jacob Gurevitsch - Lovers in Paris (2015) [MP3|320 кб/с]<new age>
@@ -746,33 +777,6 @@ VA - Trance Desire Volume 54 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29D6FA8902D6C37401E96EF7CD85B5B3D1E564BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564198   (500579) от 18.07.2022
-
-VA - Music News vol.203 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BikaBreezy - Демон (02:50)
- 002. Ad Voca feat. Exlls - Don't You Know (02:55)
- 003. Alaki feat. DronGo - Муки Тантала (03:30)
- 004. Alan Walker & K-391 feat. Emelie Hollow - Lily (Slowed) (04:00)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0174382862B0421B48C6850EBD0EB9ECBEC1665
 ```
 
 

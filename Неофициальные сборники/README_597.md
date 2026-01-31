@@ -1,3 +1,36 @@
+###  Публикация: 637305   (900391) от 31.03.2013
+
+VA - Хит парад русских Ди Джеев (2013) [MP3|224 кб/с]<Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_900391.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ALika Korol Lir feat. Dj Pomeha - Cпешу К Тебе (Radio Edit) (3:53)
+2. Anna Fox & Dj Val - Хочу Кричать (Dj Virus Remix) (5:03)
+3. Dj Niki feat. Ika - Так Люблю (Radio Edit) (3:17)
+4. Катя Чехова - Мечтая (Dj Slider & Dj Magnit Radio Record Mix) (2:59)
+5. Оксана Почепа - Стаи Птиц (Dj Audiophil Remix) (6:29)
+6. Dj Boyko & Dj Noiz Feat. Katy Queen - Между Нами (Radio Mix) (2:50)
+7. Dj Glushkov & Zimin feat. York - Улетаю (Radio Edit) (3:57)
+8. Lena Volna - Улететь (Dj Musagitoff Remix) (3:50)
+9. Ксения Суворова - Это Стоп (Dj Shamoff Remix) (5:09)
+10. Слава - Люди Любят (Dj Vengerov Remix) (3:19)Жанр: Dance, Club, PopПродолжительность: 06:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F7C6DB7383AA1035C96E9F304319C045BC06AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369889   (900425) от 25.03.2020
 
 VA - La Cabana R&B Jam Mixtape (2020) [MP3|320 Kbps] <R&B, Soul>
@@ -671,33 +704,6 @@ VA - Взрывной хит-парад Выпуск № 10 (2017) [MP3|256 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA2B5051AB144776D8003DE5B77EC9E8A4B24378
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369563   (901641) от 24.03.2020
-
-VA - Beatport Electro House: Sound Pack #36 (2020) [MP3|257-320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901641.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Orsen - Before The Storm
-002. Fabri Lopez - Divine Air
-003. Dorian Craft - Avila (Original Mix)
-004. Yeophis - Another Beach(   Читать дальше...   )Жанр: HouseПродолжительность: 13:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CCB13CC9F5788CA79A47CF9E32FE5FC8A1329C8
 ```
 
 

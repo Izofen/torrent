@@ -1,3 +1,30 @@
+###  Публикация: 1556682   (557129) от 11.06.2022
+
+Abrade The Earth - The Essence of Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557129.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Connections
+2. The Cycle
+3. Ebb & Flow
+4. Restitution(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA8298B261CDAA17DCD25390200D3A6F82CC6CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556694   (557177) от 11.06.2022
 
 Lowhill - Concept of Grief (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
@@ -668,33 +695,6 @@ PJ Harvey - The Hope Six Demolition Project (2016) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46F0CAB4B05B56D2D137BB848BD338A3EE51AABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303590   (570965) от 22.05.2019
-
-Faye Webster - Atlanta Millionaires Club (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Room Temperature
-02. Right Side of My Neck
-03. Hurts Me Too
-04. Pigeon(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE2121D4DF38DB43F59435519F958C8EA531CAC
 ```
 
 

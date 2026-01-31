@@ -1,3 +1,30 @@
+###  Публикация: 1016157   (771120) от 13.05.2016
+
+VA - Зайцев.Нет: Лучшие Новинки Мая (2016) [MP3|192-320 кб/с] <Рор, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - One Dance (Ft. Wizkid & Kyla)
+02. Imany - No Reason No Rhyme
+03. Radiohead - Burn The Witch
+04. Дима Билан - Романс(   Читать дальше...   )Жанр: Рор, Dance, Rock, R&B, RapПродолжительность: 03:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D55A25571A070E64953F6829A1108271E40478
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1391844   (771184) от 22.06.2020
 
 VA - Romantic 80s (2020) [MP3|320 Kbps] <Pop>
@@ -668,33 +695,6 @@ Barcode Brothers - Sms (2018) Remix [MP3|320 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12584F2EF1A8A87E9DD7E96D93BD5F79762CBFDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015897   (772567) от 12.05.2016
-
-VA - Новая Клубная Сборка лето 2016. 50 хитов (2016) [MP3|320 кб/с] <Club, Dance, Deep House, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_772567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adele - Hello (Astero Radio Remix)
- 2. Alekseev vs Modernator - Пьяное Солнце (Denis Denisoff Mash Up)
- 3. Alex Kafer - Так говорят во сне (Dj Denis Rublev remix)
- 4. Andrey Keyton Feat. Irina Gi - Everlasting Pictures (Mr. DJ.Monj Remix)(   Читать дальше...   )Жанр: Club, Dance, Deep House, RemixПродолжительность: 03:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD67BA691B5F2E243B6556062B7088053E6B3869
 ```
 
 

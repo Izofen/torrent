@@ -1,3 +1,30 @@
+###  Публикация: 1454302   (1026418) от 14.03.2021
+
+Paradox Obscur - Singles & Rarities (2021) [MP3|320 Kbps] <Darkwave, Alternative>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1026418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Existence (3:11)
+2. Visions (3:39)
+3. Boulevard Voltaire (3:44)
+4. Fatal (4:00)(   Читать дальше...   )Жанр: Darkwave, AlternativeПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B646F47A0279AAD3CF44AB8C645F515A9EF4494E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454136   (1026419) от 14.03.2021
 
 VA - Synthwave Dreams, Vol. 10 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -661,33 +688,6 @@ maximum movement theatre - songs from the shed (2021) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A28EA1A3F9B27D0EFA52699AB88AC61111583F64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188374   (1027820) от 05.03.2021
-
-Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems Silently Moving, A601-2) - Discography (1996-2019) [FLAC|Lossless] <Dub Techno, Ambient, Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1027820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Octal 6 (B1) “Part 9” (03:54)
- 02. Octal 6 (B1) “Part 4” (07:29)
- 03. Octal 6 (B1) “Part 3” (09:18)
- 04. Octal 6 (B1) “Part 7” (04:48)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Dub Techno, Ambient, Techno, Experimental •Продолжительность: 70:06:45 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6576D4B73CDC00B3F3D0630883CE48183A6D119D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1545564   (607460) от 23.04.2022
+
+VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите окунуться в ретро-атмосферу и на несколько десятков лет перенестись назад в прошлое? В этом вам прекрасно поможет подборка популярнейших песен 70-80х годов. Истерики фанаток и восторженные крики толпы. До отказа заполненные стадионы и концертные залы. Миллионы поклонников по всему миру. Беспрерывные гастроли и несмолкающие овации.001. Patsy Gallant - From New York To L.A.
+002. Soft Cell - Tainted Love
+003. Andrea True Connection - What's Your Name
+004. Siouxsie And The Banshees - The Staircase(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 10:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147800   (607522) от 03.07.2017
 
 VA - The Human League SynthSpace Thesis Party (2017) [MP3|192-320 Kbps] <Synthspace, Synthwave, Electronic>
@@ -689,33 +716,6 @@ VA - Дискотека забытых хитов (зарубежная) - 13 (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3437F3E34DDBB9E2E7087BC4A8332EEBD49137CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038199   (608699) от 27.07.2016
-
-VA - TOP Non-Stop 2010-2015 - Lounge, Chillout, Ambient. Vol.3 Classic 2000-2009 (2015) [MP3|112-320 Kbps] <Chillout, Lounge, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_608699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 | Ydille, E. Smidt | Meeting The Unexpected | 05:00min
-002 | Naomi | Anybody Here (Album Version) | 04:37min
-003 | Kinema | Katia | 05:05min
-004 | Neotropic | Beached | 05:33min(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 06:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95910B3F60878396134092DFB53ED8C43705A67D
 ```
 
 

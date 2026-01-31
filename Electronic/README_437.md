@@ -1,3 +1,30 @@
+###  Публикация: 1380814   (831363) от 04.05.2020
+
+VA - Summer Deephouse Megamix 2020 (2020) [MP3|320 Kbps] <House, Deep House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Summer Deephouse Megamix 2020 Pt. 1 1:15:12
+02. DJ Mix - Summer Deephouse Megamix 2020 Pt. 2 1:18:13
+03. Ben Delay - Something Special (Extended Mix) 4:49
+04. Carlisle - On Your Skin (Original Club Mix) 3:37(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive, Electronic, DanceПродолжительность: 09:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9DFDACB21F14A8FCDE66B38CB9507F94998C33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380772   (831579) от 04.05.2020
 
 VA - SUB-07 To SUB-11 - The A-Sides (2009) Drone Records [FLAC|Lossless|tracks+.cue] <Dark Ambient, Drone>
@@ -668,33 +695,6 @@ VA - Progressive Hits Vol 1 (2017) [MP3|320 Kbps] <Progressive House,House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59185F261AC47E5D701ED8DB48709E6E46EC3D76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380202   (834793) от 02.05.2020
-
-VA - Padla (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Emotion - Horseman [05:01]
-02. Bad Massa - Malfunction [05:06]
-03. X Company - Labyrinth [03:41]
-04. Oxit - Attack [03:23](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AECB4F29775F4D697D76835C29377207CF4EE6E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 987875   (924399) от 18.02.2016
+
+VA - Супер хит зимний от Европы Плюс. Часть 9 (2016) [MP3|256 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924399.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dante & Udalin Project - Под Кожу
+002. Alex Dee Jay Feat. Lokka Vox - Your Love
+003. Тимур Рахманов - Возьми Меня В Свой Плен
+004. The Pierces - Must Be Something(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CABE8C48D002BCEB71B2E6216E61BE235640F20F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095190   (924457) от 21.01.2017
 
 VA - Neon Lights Dance Club (2017) [MP3|224-320 Kbps] <Dance, Club, Electro House>
@@ -668,33 +695,6 @@ VA - Beatport Deep House: Electro Sound Pack #20 (2020) [MP3|320 Kbps] <Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:384998411AE02A8A1874284406D85EFB267127B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987562   (925835) от 17.02.2016
-
-VA - Rock Blues: Gold Classic (2016) [MP3|320 кб/с] <Blues Rock, Country>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925835.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Danny Bryant - Razor Sharp (5:10)
-2. Tadeusz Nalepa - Musze dzis ciebie zabic (6:09)
-3. Eric McFadden - Til The Medicine Takes (2:19)
-4. Jared James Nichols - Get Down (2:18)(   Читать дальше...   )Жанр: Blues Rock, CountryПродолжительность: 06:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51C681BE3311F2219FED7638CEBF185BD830EE9
 ```
 
 

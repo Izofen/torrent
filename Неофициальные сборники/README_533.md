@@ -1,3 +1,30 @@
+###  Публикация: 1120606   (801611) от 31.03.2017
+
+VA - Старые песни по-новому. Русский выпуск (2017) [MP3|320 Kbps] <Pop , Disco , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801611.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Demo - Солнышко (DJ Jurbas Mix) 3:17
+002. Татьяна Штырёва - Видео (Prod. by Ayur Tsyrenov - Мираж Cover) 3:34
+003. Вирус - Ты меня не ищи (Pavel Velchev & Dmitriy RS Version) 3:47
+004. Евгений Белоусов - Вечерок ( Anton Pavlovsky Cover) 4:18(   Читать дальше...   )Жанр: Pop , Disco , DanceПродолжительность: 10:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C80D02801B333D9D93F6A363878DC84C1BA59F57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120603   (801614) от 31.03.2017
 
 VA - Discoteka Dance Club. Best Hits of Year (2017) [MP3|320 Kbps] <Dance , Club House , Electro House>
@@ -668,33 +695,6 @@ VA - Dr. Metal Presents: Vol.1 (2014) [MP3|224 кб/с]<Heavy, Speed, Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA0B99435D309AC5914AC3B16CD584FB319AB88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120156   (802826) от 30.03.2017
-
-VA - Зажигательный Eurodance Vol.3 (2017) [MP3|256-320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fun Factory - Take Your Chance (Dennis Moskvin 2k16 M.Bounce Remix)  6:23
-02.  Barcode Brothers & Broken Heard - Dooh Dooh (DrBeat Perfect Mix)  4:16
-03.  Игорь Силевёрстов - Санта Лючия (Remix)  3:49
-04.  Maxx - Get-A-Way (Alexsey Style Remix)  3:29(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B434AFA5C4E0B07188690FF6CD3FE37CDF452381
 ```
 
 

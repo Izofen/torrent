@@ -1,3 +1,30 @@
+###  Публикация: 1134820   (685082) от 17.05.2017
+
+VA - Big Room EDM Anthems 2k17 (2017) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matic - Outta My Head 04:31
+02. Shytsee - Thrones (Radio Edit) 03:09
+03. Matty Menck - Rain (Frowin Von Boyen Remix) 06:13
+04. Axel Raven - Arena 05:05(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1DD7451C187CC925E6302D951133A86DB2F9B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134971   (685086) от 17.05.2017
 
 VA - Ibiza-Unique Presents Fairy Tails Vol.2 (Mixed by Nightmosphere) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -671,33 +698,6 @@ Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE5005471444A27D055DD11FC3845B53BCD3AA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535279   (686834) от 06.03.2022
-
-Alexander Som - Axtone House Party (2022-03-04) [MP3|~245 Kbps (V0)] <House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexander Som - On Me
-02. MistaJam - Rotate
-03. Wh0 - House Of Wh0
-04. David Penn ft. Max'C - Lovin U (Alexander Som 2018 Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594F38ACC46A2067B2CC36C81920F9648A1069CE
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 977356   (966572) от 20.01.2016
+
+VA - Nonplusultra: Pop 90er (2007) 5CD Box-Set [MP3|320 кб/с]<Pop, Rock>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник самых популярных песен 90-х годов прошлого столетия01. Bangles - Eternal flame (Album Version) (03:57)
+02. Crash Test Dummies - Mmm Mmm Mmm Mmm (03:54)
+03. Shabba Ranks feat. Chevelle Franklin - Mr. Loverman (Radio Mix) (03:39)
+04. TLC - Waterfalls (Single Edit) (04:12)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F13AB26C57E55E933484BEF8232FEEA3121CFA42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977225   (966633) от 20.01.2016
+
+VA - Nonplusultra: Pop 80er (2007) 5CD Box-Set [MP3|192 кб/с]<Pop, Rock>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_966633.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник самых популярных песен 80-х годов прошлого столетия01. Bangles - Eternal flame (La flama enternal) (Album Version) (03:55)
+02. Marvin Gaye - Sexual healing (Album Version) (03:58)
+03. Cyndi Lauper - True colors (Album Version) (03:49)
+04. Terence Trent D'Arby - Sign your name (Album Version) (04:38)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977C9C8D94A107BD4AED84E15979AACA270FEE48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358754   (967133) от 09.02.2020
+
+Al Bano & Romina Power - Raccogli l'attimo (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raccogli l’attimo
+02. Per troppo amore
+03. La luce che hai
+04. Fuori pericolo(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28967F9C1FE420EB4E3A9F20CEA7E0C75971640
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358673   (967225) от 09.02.2020
 
 VA - 100 Greatest One Hit Wonders (2020) [MP3|320 Kbps] <Pop, R&B, Other>
@@ -612,87 +693,6 @@ Richard Marx - Limitless (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BA40933B59414BAB679B56A1338EFD8D27A7B89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358155   (969701) от 07.02.2020
-
-VA - 100 Greatest Summer Songs (2020) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969701.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bob Marley & The Wailers - One Love / People Get Ready
-002. Madonna - Holiday
-003. Pharrell Williams - Happy
-004. DJ Jazzy Jeff & The Fresh Prince - Summertime(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 06:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBDFB13BC6B0D8CC636D48EBD3A3944394D9C4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976428   (969782) от 17.01.2016
-
-Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Lossless|image + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh, The Divorces! [04:15]
- 02. Long White Dress [03:53]
- 03. Hormones [03:07]
- 04. Kentish Town [03:29](   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97834C4BF5FD8E09DD2D8FA2D99CAAB906480457
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358038   (970460) от 06.02.2020
-
-Modern Talking - The 1st Album (1985) [FLAC|Lossless]<Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_970460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   You’re My Heart, You’re My Soul   [5:36]
-02.   You Can Win If You Want   [3:53]
-03.   There’s Too Much Blue in Missing You   [4:45]
-04.   Diamonds Never Made a Lady   [4:09](   Читать дальше...   )Жанр: DiscoПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07268526F9F6F87516A493383690B93BA0B594C
 ```
 
 

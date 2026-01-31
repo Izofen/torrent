@@ -1,3 +1,30 @@
+###  Публикация: 1495470   (880609) от 12.09.2021
+
+VA - Music News vol.131 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880609.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Xana - XXL (03:21)
+ 002. Akon feat. Tariku Gankisi - Dishtagina (03:32)
+ 003. Akris & Teddy - Жениться Не Хочу (02:04)
+ 004. Alsina - Стерва (02:10)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0AF13235A3AD34CD3521E59643F362E4EDE70F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495332   (880610) от 12.09.2021
 
 VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
@@ -656,33 +683,6 @@ VA - не Громкие новинки недели 62 (2020) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4F0A51D80E16997BF9FEF0137B7B79DA433BE0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373162   (882052) от 05.04.2020
-
-VA - Know What I Want: R&B Collection (2020) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882052.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abhi The Nomad - Sex N' Drugs
-002. 1Takeocho - Lowkey
-003. Al Mac - Know What I Want
-004. Anna Moore - The Light(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 06:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF262F74026BE7376D83F8799F38B0BF07A7D09
 ```
 
 

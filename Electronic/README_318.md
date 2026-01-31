@@ -1,3 +1,30 @@
+###  Публикация: 1144373   (627744) от 22.06.2017
+
+VA - House On My Soul: Summer Edition (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627744.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ultrasound - Energy (original mix) (08:23)
+2. Steve Mola - Tropical Hotel (Following Light remix) (07:25)
+3. Stergios - Regeneration (Sunshine mix) (08:15)
+4. J-Sevilla - Delphinus (Ivanshee remix) (07:01)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B0AF058AF36807F441724A53CE9B252AF5A7489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144529   (627745) от 22.06.2017
 
 VA - Relaxing Beach Chillout Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ Flava D - Fabriclive 88 (2016) [FLAC|Lossless|tracks] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:490E0E0336B4C4A98F9086F76820170AEF0FD90E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032920   (628623) от 16.07.2016
-
-VA - Best Of Vocal Trance 2016 Vol. 2 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_628623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Sarah Lynn & Yana Chernysheva -  This Imaginary Love (Edit) 4:13
-02. 4 Strings Vs Kaimo K & Sue Mclaren -  The Treasure Of Illumina (Edit) 3:24
-03. Rafael Frost & Neev Kennedy -  Call This Love (Edit) 3:42
-04. Yuri Kane & Ana Criado -  Running Wild (Edit) 3:35(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE869B4320A7361AC0DD6D7B089831995DD4AA59
 ```
 
 

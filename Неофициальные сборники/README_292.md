@@ -1,3 +1,30 @@
+###  Публикация: 1243557   (489973) от 28.08.2018
+
+VA - Зайцев.нет Музыкальные новинки 4 Август 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cher - SOS 3:22
+02. FTampa, Tom Kray & Oriente - Vibe Boa 3:39
+03. Nicky Romero & Stadiumx feat. Matluck - Rise 3:21
+04. DJ Kapral feat. Osya - Ты не верь слезам 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B1C0B4BBF5A591B0EC34324ADD76A57062FED9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243432   (489976) от 28.08.2018
 
 VA - And The Angels Sing (2018) [MP3|320 Kbps] <Rock and Roll, Classic Rock, Rock Jazz>
@@ -694,39 +721,6 @@ VA - Top 55 Tracks for Cars Vol.13 (2012) [MP3|320 кб/с]<Electronic, Breaks, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8BB198A43DF1AF6B8E271DC9C5E28BBBAF63CBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544332   (491835) от 07.09.2012
-
-VA - Number 1 Hits Of The 1950's (2008) [MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_491835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Laine - I Believe [02:10]
-02. Eddie Calvert - Cherry Pink and Apple Blossom White [02:24]
-03. Johnnie Ray - Yes Tonight, Josephine [02:31]
-04. Andy Williams - Butterflys [02:22]
-05. David Whitfield - Cara Mia [03:10]
-06. Tony Bennett - Strangers in Paradise [03:05]
-07. Tennessee Ernie Ford - Sixteen Tons [02:37]
-08. Doris Day - Que Sera Sera [02:05]
-09. Guy Mitchell - She Wears Red Feathers [03:08]
-10. Kitty Kallen - Little Things Mean Alot [03:00](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroПродолжительность: 01:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7B465C0C9BBA80A93B9F3DE7341203FFA156CF
 ```
 
 

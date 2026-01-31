@@ -1,3 +1,30 @@
+###  Публикация: 1530929   (726535) от 13.02.2022
+
+VA - Friday Vibes: Dance House Music (2022) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726535.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культура клубной музыки — явление довольно уникальное. Особенная атмосфера и, конечно, музыка — это то, что создаёт настроение тех, кто пришел отдохнуть на танцполе. Клубная музыка отличается от других музыкальных стилей прежде всего особым драйвом, заставляющим Вас снова и снова выплескивать бурю эмоций в энергичном танце.001. G-Prod - Let Me Feel
+002. Biz - Skyhigh
+003. Edy Marron - Do The Same
+004. Tilman - Make You Hot(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA1D4DECF87D2ADE621AFF2FE3D324BA4F872E3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284827   (726545) от 23.02.2019
 
 VA - Techno Red Fire (2019) [MP3|320 Kbps] <Techno, Tech House>
@@ -668,33 +695,6 @@ VA - Erotic Chill-Out and Lounge Music (2016) [MP3|320 кб/с] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D25A472733E9558387F75ECE975D723865FC1C08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022775   (727777) от 03.06.2016
-
-VA - Pregnancy Music: 2 hours relaxing music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_727777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toni Verde - Abstract - Piano Version
-02. Hans Overgraard - Suggestion
-03. Hans Overgraard - Impression
-04. Dominik Andersen - Seductive(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88306B8F081A99AABECCF33287CE2AE9AEB65007
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1020125   (746828) от 25.05.2016
+
+VA - Running Workout Moment Of Music (2016) [MP3|252-320 кб/с] <Club, House, Bigroom, Stadium Dutch, Bounce, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mattn & Futuristic Polar Bears - Cafe Del Mar 2016 (Dimitri Vegas & Like Mike Vocal Mix) 03:45
+02. D&W & Dan Dobson - Fringe (Original Mix) 05:54
+03. Haimss Van Vector - Z.O.N.G.O. Invasion (Original Mix) 04:48
+04. Ayhan Dogan - Drop The Bass 04:38(   Читать дальше...   )Жанр: Club, House, Bigroom, Stadium Dutch, Bounce, ElectroПродолжительность: 08:27:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D29AC975E4A0076D6223E1F1740B094E9719E78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020242   (746829) от 25.05.2016
 
 VA - : Весенний марафон от радио Шансон 9 (2016) [MP3|256 кб/с] <Chanson, Pop>
@@ -665,33 +692,6 @@ VA - NME: Best New Electro Hype (2022) [MP3|320 Kbps] <House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF96472454849D299F53EFC6428BCC67B9546255
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396187   (748261) от 14.07.2020
-
-VA - Mysterium Desert (2020) 2CD [MP3|320 Kbps] <Enigmatic, New age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Can Dance - Opium
-02. Musique De Film - Tubular Bells (Tire Du Film "L'exorciste")
-03. Johann Johannsson - It's Not Your Fault
-04. Danny Baranowsky - The Binding of Isaac(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 10:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7486126E44F72F57486A7C3B2F4A7C1874CDDB2F
 ```
 
 

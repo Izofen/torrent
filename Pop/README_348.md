@@ -1,3 +1,84 @@
+###  Публикация: 1469969   (1016155) от 14.05.2021
+
+VA - Rewind & Remixed Hits (2010) [MP3|~245 Kbps (V0)] <Dance, Electro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soft Cell - Tainted Love (DJ RAD Remix) (4:17)
+02. Frenchie Davis - Sweet Dreams (3:35)
+03. Shannon - Let The Music Play (2009 Club Crasher Remix) (6:40)
+04. J.J. Fad - Supersonic (Electrolicious Remix) (5:07)(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 03:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE28B8D8B60A396FC7AA9AC2735F0C6BC445957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469980   (1016160) от 14.05.2021
+
+VA - Ultimate NRG Party (2004) [MP3|320 Kbps] <Dance, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna M. - Diva (English Mix) (3:54)
+02. Boys In The Dark - Santa Maria (3:28)
+03. Inside<>Out - Believe (NRG Radio Mix) (4:01)
+04. Hanky Panky - Truly Madly Deeply (NRG Radio Mix) (3:16)(   Читать дальше...   )Жанр: Dance, Disco, Hi-NRGПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582546BECEA2320F4E0ACB80B74AEA6413B27EAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469544   (1016286) от 13.05.2021
+
+Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016286.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Break My Heart Myself (feat. Travis Barker) (02:31)
+2. Sabotage (02:56)
+3. Trust Fall (02:30)
+4. Better Mistakes (02:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:36:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCEF7A8137EEE29F345D1D844290DEFA53AFE2B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469436   (1016383) от 12.05.2021
 
 Digital Emotion - Greatest Hits and Remixes (2021) 2CD [FLAC|Lossless|image + .cue] <Italo Disco>
@@ -614,87 +695,6 @@ Modern Boots - Tell Me the Reason (2021) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39CFAB2EA04C090FAD3EF3DB1199B4897A0D5ADB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466998   (1018038) от 02.05.2021
-
-Adriano Celentano - Uh... Uh... (1982) Reissue, 1995, CLAN [FLAC|Lossless|image + .cue] <Disco, Pop, Soundtrack>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giornata nein (04:56)
-02. Niente di nuovo (05:01)
-03. Conto su di te (04:20)
-04. Solo (04:41)(   Читать дальше...   )Жанр: Disco, Pop, SoundtrackПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F453DA0799ADC212C63AC210DF16C17884F9E22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467042   (1018097) от 02.05.2021
-
-Strange Affair - Strange Affair (1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Connection (6:20)
-02. No, No, No (5:54)
-03. Love Is A Strange Affair (5:50)
-04. Medley - I'm Ready & Disco Star (6:53)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C164CAEC4C76762B4FEE8FAD8245B7F4F3B166F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466652   (1018261) от 01.05.2021
-
-Dalida - Dans la ville endormie (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson française>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dans la ville endormie (3:08)
-02. Eux (2:21)
-03. Et la vie continuera (3:28)
-04. L'amour qui venait du froid (3:55)(   Читать дальше...   )Жанр: Pop, Chanson françaiseПродолжительность: 01:14:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F43BABE99AD07E916DD76BD4C703E094A76F9EA
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 944507   (440375) от 07.10.2015
+
+VA - Music For A Bachelor's Den Vol. 7: Sex Kittens In Hi-Fi - The Blondes (1996) /DCC Compact Classics/[FLAC|tracks+.cue]<Vocal Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diana Dors - Roller Coaster Blues [02:36]
+02. Paula Castle - Why Can't I [03:02]
+03. Jo Stafford - The Gentleman Is A Dope [02:49]
+04. Helen Carr - My Kind Of Trouble Is You [03:56](   Читать дальше...   )Жанр: Vocal Jazz, Easy ListeningПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9E7F2E22CAABE730265B7CCC11E9E201A6BAE2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944442   (440519) от 07.10.2015
+
+Kim Simmonds And Savoy Brown - The Devil To Pay (2015) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got Nobody (05:29)
+02. Bad Weather Brewing (04:32)
+03. Grew Up In The Blues (04:08)
+04. When Love Goes Wrong (04:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E335538E7A4E0EBB968ADB3928C2D38C079675
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409893   (440581) от 19.09.2020
+
+Linsey Alexander - My Days Are So Long (2009) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Did You Take Your Clothes Off Last Night [4:53]
+02. My Days Are So Long [4:22]
+03. I Had A Dream [5:05]
+04. I’m In Love With A Woman [5:40](   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CEC9EBE6E7FFEE5F995937CC4F9772EF1B1823
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944339   (440666) от 07.10.2015
+
+Leon Spencer - Bad Walking Woman (1972) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hip Shaker [03:05]
+02.Down On Dowling Street [05:01]
+03.In Search Of Love [05:00]
+04.If You Were Me And I Were You [06:04](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hammond OrganПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F755CEBED1F6EFAE13DC814223E1DE6FE9737E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944521   (440679) от 07.10.2015
+
+The Phil Woods Quartet - Warm Woods (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In Your Own Sweet Way [08:06]
+02.Easy Living [04:56]
+03.I Love You [04:51]
+04.Squire's Parlor [05:41](   Читать дальше...   )Жанр: BopПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A9489436580950CC81DB8BE90CACE19A3EB096
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570607   (440795) от 18.08.2022
+
+Art Van Damme - So Nice! (1979) 2009, Jazzclub Originals [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Accordion Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perdido [2:46]
+02. Poka dots and moonbeams [3:14]
+03. Mountain greenery [2:28]
+04. We've only just begun [3:29](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Accordion JazzПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28D5A6392E496E1F786C6546F789DA045223351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409908   (440868) от 19.09.2020
+
+Super Vintage - Shining Light (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down The Road
+02. Birds On A Wire
+03. Southern Son
+04. Take A Ride(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EAD76BD4D62CF13971BD287548ABF353DFBB1BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409958   (440871) от 19.09.2020
 
 Earth Wind & Fire - September (2020) The Eric Kupper Remixes [FLAC|Lossless|WEB-DL|tracks] <Dance, R&B, Electronic>
@@ -506,195 +695,6 @@ Mel Torme - Meets The British: The London Recordings 1956/1957 (2008) Sepia Reco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9AA9F8DA9451502F44CA4046C66F93BB55FBE637
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248595   (442546) от 20.09.2018
-
-Hugh Masekela - No Borders (2016) Trapeze Music [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Smooth>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shuffle & Bow [4:16]
-02. Been Such a Long Time [4:33]
-03. Shango [5:22]
-04. Congo Women [8:33](   Читать дальше...   )Жанр: Afro-Cuban Jazz, SmoothПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F19CD5A62D4D8606A757A19D9B290E4F626094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248589   (442564) от 20.09.2018
-
-Count Basie And The Kansas City - 7 (1962) 1996, GRP Records [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh, Lady Be Good [4:42]
-02. Secrets [4:08]
-03. I Want A Little Girl [4:17]
-04. Shoe Shine Boy [4:08](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65F3708133A0D441031B7D2FC0EB0C31F8E0824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706594   (442620) от 03.10.2013
-
-VA - Norway Nights (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_442620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cover Me With Snow   (3:44)
-02.  Merciful (Herbert's We Mix)   (6:02)
-03.  Bella   (5:48)
-04.  Out Here, In There   (5:45)(   Читать дальше...   )Жанр: Jazz, Contemporary JazzПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD40DC3A6F8C185F5ECD82EECD4C78889518C3F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570455   (443030) от 17.08.2022
-
-Ronnie Earl and the Broadcasters - Mercy Me (2022) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blow Wind Blow
-02. Alabama
-03. Blues For Ruthie Foster
-04. Soul Seraching(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D973C49EB39BF4C04BADC1ACFC25DA08546BF76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570381   (443032) от 17.08.2022
-
-Benny Carter - Four Classic Albums: Second Set (1954 - 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443032.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. My Blue Heaven [4:03]
-02. Blues In B Flat [5:46]
-03. Street Of Dreams [3:52](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 02:20:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C356468EF2AB1556E2D9A3245994FAD3070B211
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570436   (443033) от 17.08.2022
-
-Art Davis - A Time Remembered (1995) Jazz Planet [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evidence [7:18]
-02. A flower is a lovesome thing [8:00]
-03. Driftin' [7:20]
-04. Everybody's doing it [6:59](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1CFD23E647FCDBE4039CE8115B7E2CF9CA3289
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944282   (443115) от 06.10.2015
-
-Wes Montgomery - In The Beginning (2014) 2CD /2014, Resonance Records/ [FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443115.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.After You've Gone [05:02]
-02.Fascinating Rhythm [04:23]
-03.Brazil [04:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB0C8CD6CC8B17006F74C0DD15D2335549D48EF
 ```
 
 

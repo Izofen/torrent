@@ -1,3 +1,30 @@
+###  Публикация: 1039617   (594569) от 02.08.2016
+
+Groove Armada - Greatest Hits (2007) Compilation [MP3|320 Kbps] <Trip Hop, Downtempo, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song 4 Mutya    03:39
+02. Get Down    03:24
+03. I See You Baby    04:04
+04. Superstylin'    06:32(   Читать дальше...   )Жанр: Trip Hop, Downtempo, HouseПродолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08CEF03F5FC4BCD56480DDD260C5023CED12938
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039739   (594578) от 02.08.2016
 
 Guattari - Determine (2016) [FLAC|Lossless|WEB-DL|image + .cue] <Darkwave>
@@ -676,33 +703,6 @@ VA - Paris La Nuit - Chillin Lounge Selection Vol 2 (2015) [MP3|320 кб/с]<Eas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1510D85BC572678CCF66C17B8B9C789DC8058CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150098   (596625) от 13.07.2017
-
-VA - Ibiza 2017 - Dance For Love Vol 2 [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massimo Solinas - Thriller Re-Edit (Original Mix) 06:39
-02. Ainur Davletov - St. Petersburg Promised (Feat. John Robertson) (Original Mix) 04:07
-03. Daviddance - What Are You Doing To Me? (Remastered) (Original Mix) 07:19
-04. Mark Fall - Big Eyes (Original Mix) 09:01(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA3F08EDA827020262441F285D509BCDE416480
 ```
 
 

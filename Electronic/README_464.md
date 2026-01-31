@@ -1,3 +1,30 @@
+###  Публикация: 1100688   (899895) от 04.02.2017
+
+VA - This Is My Church, Vol. 1 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakfast Trim - Dubai Sun (7th Star mix) (03:20)
+02. Tony Smoke - Old & Dirty (Milf Jazzy mix) (05:15)
+03. Backroom Barn - Black Horse (original mix) (03:05)
+04. Mikis Theodorakis & Francesco Diaz - Farewell (original mix) (04:37)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B429A60F4375FF865B95C98299C5021F1C3D5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100397   (899928) от 04.02.2017
 
 VA - Bikini Sounds: Ibiza Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ Infected Mushroom - More than Just a Name (2020) [MP3|320 Kbps] <Psy-Trance, Dub
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC3E0BFFA6E6ABFC06E6190E01870B9C8C97FCE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099575   (903200) от 02.02.2017
-
-VA - Red Velvet Erotic Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lotti barks the moon - Chilling Beach (Lights for Ellie Mix) (5:01)
-02. Sonic Bumbers - Lofts and Lounges (Relax Zone Edit) (7:00)
-03. Emil Dupree - Will You Be There (Berlin Calling New York City Mix) (4:37)
-04. Electric Sparkling Water - Never Touch the Darkness (Fall from Sky Mix) (6:29)(   Читать дальше...   )Производство: 4-Elements-RecordsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACE67D463416B0F8A6E1BA547D1330E16C4E604
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1292022   (646669) от 29.03.2019
+
+VA - Coming Back To You (2019) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZZ Top - Blue Jean Blues
+02. T. Rex - Lean Woman Blues
+03. Jimi Hendrix - Electric Church Red House
+04. Fleetwood Mac - Just The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:231AA0023F046136B2EE9ED414A06812D2A16FBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292004   (646672) от 29.03.2019
 
 VA - Legendary Songs 80s (2019) [MP3|320 Kbps] <Pop, Disco>
@@ -680,33 +707,6 @@ VA - Vocal Trance Seduction Vol 2 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F36CBCD8110D9484FE58C99975F052EB1EC8D3EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905925   (647545) от 07.06.2015
-
-Альберт Артемьев - Planet-X (2015) [MP3|320 кб/с]<New Age, Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Планета-X
-02 - В поясе Койпера
-03 - Свет у горизонта
-04 - Облако Оорта(   Читать дальше...   )Жанр: New Age, Chillout, Lounge, DowntempoПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE581E59081DDACCF51C79F6A3677A0E7B63E3F
 ```
 
 

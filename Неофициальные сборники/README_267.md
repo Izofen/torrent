@@ -1,3 +1,36 @@
+###  Публикация: 550034   (448168) от 26.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 81 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_448168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.Marradi - Rain And Tears
+02. T.Timmermans - Andrea With The Flowered Bag
+03. H.Marvin & The Shadows - Riders In The Sky
+04. Mario Battaini - Malaguena
+05. С.Панкратов & Б.Леготин - На тот большак
+06. The Ventures - Tequila
+07. R.Clauderman - I'm Not In Love
+08. Karunesh - Expansion
+09. Русские ДиДжеи - Чародеи
+10. Antonio De Lucena - Luceros(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39A5C5C849843A7BEC4F4CC87813E457CE47150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163758   (448284) от 06.09.2017
 
 VA - US Dance Airplay Hot 50 September 2017 [MP3|320 Kbps] <Pop>
@@ -686,33 +719,6 @@ VA - Schlager Hits Total: Remix Edition (2022) [MP3|320 Kbps] <Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70EA1AA79EB47E7C53E7D1FC13681A5148E95CD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943149   (449429) от 03.10.2015
-
-Medwyn Goodall - Beautiful World (2015) [MP3|320 кб/с]<New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_449429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbroken [00:06:02]
-02. Threshold [00:06:31]
-03. Beautiful World [00:05:43]
-04. Blue Skies [00:05:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:267F5EF40686FD9D79BDD86F8570F78B539A89A2
 ```
 
 

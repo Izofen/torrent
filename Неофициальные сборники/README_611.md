@@ -1,3 +1,30 @@
+###  Публикация: 988919   (919196) от 21.02.2016
+
+VA - House Nation Volume 3 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duke Dumont feat. AME - Need U (100%) (05:53)
+02. Hard Rock Sofa - Quasar Noch breathe (Antony Rolls & Gladunov Mash Up) (06:26)
+03. Jacob Plant - Fire (04:17)
+04. Kronic & Krunk! - 3 Percent (04:51)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988771   (919276) от 21.02.2016
 
 2011stress - Лоскутный Мир (2015) [MP3|320 кб/с] <Electronic, Synth-pop, Rock, Classic styling>
@@ -670,33 +697,6 @@ VA - Empire Records - Chill Out 10 (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56A2850364A4F637654630F167EA6C4EDC572E09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096230   (920996) от 23.01.2017
-
-VA - Empire Records - Dancenudisco 4 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jackie Tech - You Can Have It All (Filatov & Karas Remix)
-02. Emy Care - Fly In The Sky (Dance Mix)
-03. Deep Fresh feat. Alina Petko - So Hight (Original Mix)
-04. Irina Makosh, Wallmers, Lisitsyn - Silent Tears (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481A97EF06190487A21FAD3ED2BD9E93AF10B961
 ```
 
 

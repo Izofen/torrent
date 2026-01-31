@@ -1,3 +1,30 @@
+###  Публикация: 1135871   (679412) от 20.05.2017
+
+VA - Progressive Ibiza House 2K17 (Annual Anthems) (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airwave - The Quest For Beauty (Jam El Mar Remix) 08:50
+02. Halfpoint - Burnout 06:01
+03. Haig, Raffi - Waves of Grain 06:42
+04. Marcelo Wallace - Backup 06:19(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA2582657535375C670217D5A357BA143EDB930
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508490   (679795) от 10.06.2012
 
 VA - Shotgun (2012) [MP3|320 кб/с]<Tech House, Progressive Breaks, Progressive House>
@@ -688,32 +715,6 @@ VA - Hotel Paradise del Mar Vol.3: Chill Out Lounge Cafe At Ibiza Costes (2016) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6344897051C9C4E1837A568C5D1C979FA14A2EF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029311   (682490) от 26.06.2016
-
-ultradian - Pathfinder (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Psybient, Soundscape>
-
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flight of Voyager I (07:34)
-02. Proper Motion (07:34)
-03. Blue Atmosphere (07:34)Жанр: Ambient, Downtempo, Psybient, SoundscapeПродолжительность: 00:22:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904BC0702BECE3FFF68D57A8A3E889C044B1076C
 ```
 
 

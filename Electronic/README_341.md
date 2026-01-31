@@ -1,3 +1,30 @@
+###  Публикация: 1136732   (672648) от 23.05.2017
+
+Hugo Kant - OUT OF TIME (2017) [FLAC|Lossless|tracks] <Downtempo, Trip-Hop, Instrumental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entering the Black Hole
+02. The Earth Dance
+03. Clouds (feat. Astrid Engberg)
+04. The Meeting(   Читать дальше...   )Жанр: Downtempo, Trip-Hop, InstrumentalПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB51AEF40576B31D52CE2D42F5A77988304CD34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536856   (672785) от 13.03.2022
 
 Johnny de City - Live @ Epic Club Prague, Czech Republic (2022-03-04) [MP3|320 Kbps] <Trance, Various>
@@ -667,33 +694,6 @@ VA - Big In Ibiza Vol.2 (Groovy Sexy Deep House Tunes) (2016) [MP3|320 Kbps] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FE9D0B4441F1AA277963A00F0900BEF0C17ABF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030488   (674820) от 30.06.2016
-
-VA - Good Morning - Good House Music (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Absinth - Morning Sun (Extended Mix)
-02. Rob Hayes - All I Do
-03. Eddy Chrome - Island of Love (Lounge House Mix)
-04. Cheap Sunglasses - Remembering Ibiza (Chillhouse Rework)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:27:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80B00CC489F947DFC5FF28A44FC97D7234CFC8DE
 ```
 
 

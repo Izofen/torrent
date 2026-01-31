@@ -1,3 +1,84 @@
+###  Публикация: 1320664   (468901) от 19.08.2019
+
+Наталия Гулькина и Маргарита Суханкина - Просто мираж (2005) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Просто мираж (3:42)
+02. Ночь (3:38)
+03. Я не могу без тебя (3:23)
+04. Давлю на тормоза (3:16)(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C632613BC0DA6F56A01756877CFB2E8CEA5D38A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320543   (468905) от 19.08.2019
+
+Digital Emotion - 2 Albums, 4 Singles & EPs (1984-2019) Collection [MP3|320 Kbps] <Electronic, Hi NRG, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Голландская евродиско-группа, изначально состоявшая из Гленна Ван Дер Хоффа и Стива Гуде. Успех первых синглов и необходимость съёмки видео и сценических выступлений привели к появлению симпатичных фронтменов: Жана Франсуа Коломбо и двух девушек: Кики Де Бир и Мирны Балрак. Впрочем, судя по немногочисленным фото, они постоянно менялись.Список альбомов:
+1984 - Digital Emotion
+1985 - Outside In The Dark
+1986 - Jungle Beat(   Читать дальше...   )Жанр: Electronic, Hi NRG, DiscoПродолжительность: 02:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563847EF027D87307125B9379C0D3724523FB208
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058290   (469194) от 01.10.2016
+
+Here Come The Mummies - Cryptic (2013) [MP3|320 Kbps] <Funk, Rhythm & Blues, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Know The Drill   (03:34)
+02. Chaperone   (02:59)
+03. Infinity   (03:25)
+04. Devil Better Run   (03:21)(   Читать дальше...   )Жанр: Funk, Rhythm & Blues, SoulПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E87D873FF68259F667462364CF04138AA7E150F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320642   (469378) от 19.08.2019
 
 Kish Mauve - Black Heart (2009) [MP3|320 Kbps] <Alternative Pop, Electropop, Electroclash>
@@ -623,93 +704,6 @@ Boney M - Let It All Be Music-The Party Album (2009) 2CD [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C29C21A15BAE1B549EDFD75B358102EC1623387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546423   (473853) от 15.09.2012
-
-VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Farnham - You're The Voice [05:03]
-02. Roxette - It Must Have Been Love [04:18]
-03. Meat Loaf - I'd Do Anything for Love (But I Won't Do That) [05:42]
-04. Cyndi Lauper - Time After Time [03:59]
-05. Sinead O'Connor - Nothing Compares 2 U [05:10]
-06. Annie Lennox - Why [04:52]
-07. Tina Turner - What's Love Got To Do With It [03:47]
-08. Jennifer Rush - The Power of Love [04:26]
-09. Heart - Alone [03:40]
-10. Bonnie Tyler - Total Eclipse of the Heart [04:28](   Читать дальше...   )Жанр: PopПродолжительность: 06:26:57
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245250   (473862) от 05.09.2018
-
-Toto Cutugno - L'Italiano (1983) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'Italiano
-02. Solo noi
-03. Soli
-04. Donna, donna mia(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6878F384EA601ABD5FF018F77CC528131347E7C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245251   (473992) от 05.09.2018
-
-Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Away
-02. Smile
-03. A Little Shot Of Love
-04. Car Song(   Читать дальше...   )Жанр: РорПродолжительность: 00:48:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A57D1F2A6524500D942D370344DDE876052969
 ```
 
 

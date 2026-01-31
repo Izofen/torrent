@@ -1,3 +1,30 @@
+###  Публикация: 1030488   (674820) от 30.06.2016
+
+VA - Good Morning - Good House Music (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Absinth - Morning Sun (Extended Mix)
+02. Rob Hayes - All I Do
+03. Eddy Chrome - Island of Love (Lounge House Mix)
+04. Cheap Sunglasses - Remembering Ibiza (Chillhouse Rework)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:27:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80B00CC489F947DFC5FF28A44FC97D7234CFC8DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030500   (674991) от 30.06.2016
 
 VA - So Cool - Miami Deep (2016) [MP3|320 Kbps] <Deep House>
@@ -671,33 +698,6 @@ VA - Driving EDM Vol 2 (2017) [MP3|320 Kbps] <Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1A9E128789B3764AB359A447E573EA3861A9E49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135785   (677302) от 21.05.2017
-
-VA - Black Hole House Music 05-17 (2017) [MP3|320 Kbps] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mike Shiver - Ahh (Extended Mix) 6:13
-02.  Tim Penner - Be Free 9:38
-03.  Tyng & KMRN - My Name Is Love (feat. Shadisha) (Anton Ishutin Remix) 6:06
-04.  Leandro Da Silva - Bring Your Body 6:15(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B3AC885A0AE2E4C2F337346641FF262EF2273F
 ```
 
 

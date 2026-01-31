@@ -1,3 +1,324 @@
+###  Публикация: 1366251   (924001) от 11.03.2020
+
+Suicide Silence - Become the Hunter (2020) [FLAC|Lossless|tracks + .cue] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meltdown (02:12)
+02. Two Steps (03:22)
+03. Feel Alive (03:29)
+04. Love Me To Death (04:15)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FE316AA2FD39285BC7EC2E47D58C35D0C4E7FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489740   (924002) от 17.08.2021
+
+Liberate - Roma Aeterna (2021) [MP3|320 Kbps] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (01:16)
+ 02 - Res Gestae (03:52)
+ 03 - Tvllia ferox (03:12)
+ 04 - Roma Aeterna (04:08)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5C7BA468A96C4263CB4D75D4C4FC239F327085
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489771   (924005) от 17.08.2021
+
+Dругой Ветер - Feat., которого нет (2021) EP [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Номерки
+2. Соблюдай режим
+3. Чёрный флаг
+4. Ангелы с грязными лицамиЖанр: Punk RockПродолжительность: 00:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF568C4ABA8890F20F4FA63725809F80474D0BAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365987   (924015) от 11.03.2020
+
+ВеданЪ КолодЪ - 7 Альбомов (2005-2020) 7CDr [MP3|192-320 Kbps] <Slavanian Folk, Ethno>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924015.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005-Племена
+2007-Танец Леших
+2008-Волчья Тропа
+2010-У Кривой ДорогиЖанр: Slavanian Folk, EthnoПродолжительность: 05:03:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F37CB35B605042D16838618563AAB25ABAF7D943
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489684   (924026) от 17.08.2021
+
+Perticone - Underdog (2021) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One Else (But You)
+02. Out Of Control
+03. All You Can Trust
+04. Man On The Moon(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0316D7755435DC8EDEBC1AB7FDF9426CAE807FD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366357   (924109) от 11.03.2020
+
+Virginia Wolf - 2 альбома (1986-1987) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1986 - Virginia Wolf
+1987 - PushЖанр: Melodic Rock, AORПродолжительность: 1986-1987
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491574FD8EB70EB997D2EB2EBB8C78473FF32164
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366247   (924113) от 11.03.2020
+
+Silverstein - A Beautiful Place To Drown (2020) [FLAC|Lossless|tracks + .cue] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Habits (feat. Intervals) (02:53)
+02. Burn It Down (feat. Caleb Shomo) (03:10)
+03. Where Are You (02:54)
+04. Infinite (feat. Aaron Gillespie) (02:43)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3020EE589147BCAB48C5EC372F68FECE15654A77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366355   (924125) от 11.03.2020
+
+Virginia Wolf - 2 альбома (1986-1987) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1986 - Virginia Wolf
+1987 - PushЖанр: Melodic Rock, AORПродолжительность: 1986-1987
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1853942A1790A956515E6E0568807FDD35AFBF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366347   (924128) от 11.03.2020
+
+Chasing Violets - 2 альбома (2012-2013) [FLAC|Lossless|image + .cue] <Melodic Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Outside Heaven
+2013 - Jade HeartsЖанр: Melodic Rock/AORПродолжительность: 02:12:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3C344D9F9A5DBC10C873459B1B92E5E56651F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366328   (924130) от 11.03.2020
+
+Kursani - Kursani (2020) [MP3|320 Kbps] <Beatdown Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Спортзал это храм [00:02:46]
+02 - Сустанон 250 [00:01:19]
+03 - Курсани [00:02:40]
+04 - Стероидная ярость [00:02:06](   Читать дальше...   )Жанр: Beatdown HardcoreПродолжительность: 00:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C8652E5DDCB2C7CD09CBE3B8284118FD647636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095491   (924178) от 21.01.2017
+
+QSP (Quatro Scott Powell) - QSP (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Down 3:45
+02. Long Way from Home 6:14
+03. Tobacco Road 3:42
+04. If Only 4:42(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919434E95D82AA69D25AF7F0D087D22F19F32B17
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987590   (924179) от 18.02.2016
+
+ДДТ - Песни (2003) Enhanced [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Церковь Без Крестов 	04:12
+02. 	Ты Не Один 	04:20
+03. 	Белая Ночь I 	05:26
+04. 	Белая Река 	05:06(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53F4958F9BAEA1F89ECACB60D1BF94B223EF47E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095360   (924188) от 21.01.2017
 
 Mike Oldfield - Return To Ommadawn (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive, Art-Rock>
@@ -364,334 +685,6 @@ Thornbridge - What Will Prevail (2016) [MP3|320 кб/с] <Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCD65FD537FD071C349DD958D9ECBF12B738CC43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987674   (924603) от 18.02.2016
-
-Woe Of Winter - Wahnsinn (2016) EP [MP3|320 кб/с] <Funeral Doom Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keine Hoffnung Mehr
-02. WahnsinnЖанр: Funeral Doom DeathПродолжительность: 00:27:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55B1F12C7313690BFC072DAB3E2CE31049B6915
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 178610   (924714) от 25.02.2010
-
-Оргия Праведников - Для тех, кто видит сны Vol.1 (2010) [MP3|320 кб/с]<Rock/Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924714.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Гимн
-2. Школа мудрости
-3. The catcher in the rye
-4. Белое на белом
-5. Путь во льдах
-6. Дорога Ворона
-7. По тонкому льду
-8. Огонь и Я (Phoenix)
-9. Скименъ (Крепка яко смерть любы)
-10. Вперед и вверх! (Для тех, кто видит сны)Жанр: Rock/AlternativeПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489481   (925419) от 16.08.2021
-
-Religion6 - Never Too Late (Never Too Late) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Is Rock And Roll (04:59)
-02. I Believe In You (04:47)
-03. I Don't Want To Be Your President (04:07)
-04. Faith Healer (06:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C802A7605ADE1AFB0A6B27F1FCE79AC998A8AF25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489423   (925500) от 16.08.2021
-
-Axel Rudi Pell - Diamonds Unlocked II (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Der Schwarze Abt (Intro)
-02. There’s Only One Way To Rock (Sammy Hagar cover)
-03. Lady Of The Lake (Rainbow cover)
-04. She's A Lady (Paul Anka cover)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA00F8D3F1A4320113180C9E0C0B7DB2D2FDA6C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365929   (925503) от 10.03.2020
-
-The Karaoke Band - The Led Zeppelin 1960- 70s Karaoke Songbook 1 (2008) 2CD [MP3|320 Kbps] <Instrumental Rock, Karaoke>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Immigrant Song
-02. Four Tops
-03. Tangerine
-04. Gallows Pole(   Читать дальше...   )Жанр: Instrumental Rock, KaraokeПродолжительность: 01:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831AD6A7D10F01B0189930C133F04CE8540F67F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489428   (925541) от 16.08.2021
-
-Solstice Coil - Commute (2015) [FLAC|Lossless|tracks + .cue] <Prog Related, Progressive Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Eyes 05:44
-02. Forget You Ever Saw Us 05:19
-03. Shuffle the Cards 06:58
-04. Her Silent Silhouette 04:20(   Читать дальше...   )Жанр: Prog Related, Progressive Rock, AlternativeПродолжительность: 00:52:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE8FEE68D56B1234653524164CF2B8F307CD021B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489536   (925543) от 16.08.2021
-
-Wormhog - Yellow Sea (2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wormhole (05:29)
-02. Beneath The Yellow Sea (07:42)
-03. Hellmouth (04:11)
-04. Crystal Grain (06:34)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF8BDF88990462EFD79EC811E73DBDCF85A6463
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366176   (925603) от 10.03.2020
-
-Louna - Live Show Re:Public Minsk Belarus (2020) [MP3|320 Kbps] <Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925603.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro 2019 (Live)
-2. Мы — это LOUNA (Live)
-3. Бойцовский клуб (Live)
-4. Огня (Live)(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 01:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E138828973355ED91A00B491810B6BC12ED5661
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489476   (925608) от 16.08.2021
-
-Valgrind - Condemnation (2020) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:38]
-02. The Curse of Pegasus Spawn [04:20]
-03. Entangled in a World Below [03:40]
-04. Condemnation [04:20](   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:075C0BCF46CDC5BF18BDE46FDAE93B7B942678A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366142   (925644) от 10.03.2020
-
-VA - Tribute to Смута - 15 (2020) [MP3|320 Kbps] <Viking Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ethnor - В путь (Смута Cover) [00:05:54]
-02 Mjød - Вслед За Марой (Смута Cover) [00:03:33]
-03 Изморозь - Встать, как Один! (Смута Cover) [00:03:26]
-04 Moon Far Away - Солнце Красное (Смута Cover) [00:04:44](   Читать дальше...   )Жанр: Viking Metal, Folk MetalПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC3BEDF21EC630B789B5FA2AC2578941F7DDD9CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366009   (925649) от 10.03.2020
-
-Mandragora Scream - Madhouse (2006) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vlad (1:58)
-02. Dark Lantern (4:17)
-03. Redeemer (4:35)
-04. Frail Midnight (4:33)(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2B53040EF65CC76708798CA3B6726A09CA4ABE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365998   (925724) от 10.03.2020
-
-Newman - 14 альбомов 15CD (1997-2017) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1997 - Newman
-1999 - One Step Closer
-2000 - Dance In The Fire(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 15:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD13791B42FAC124C630AF782B9104337F103E06
 ```
 
 

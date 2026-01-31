@@ -1,3 +1,30 @@
+###  Публикация: 1152733   (563282) от 24.07.2017
+
+VA - Get Physical Presents: Words Don't Come Easy, Pt. 5 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzuelle & Lars Behrenroth - Fall Into You (feat Tamara Dey - Deetron remix)[07:19]
+02. Nico Stojan - OD 30 (feat JAW) [08:45]
+03. Bedouin - Turn The Tides (12" mix) [07:53]
+04. WhoMadeWho - Hi & Low (Konstantin Sibold Alternative remix)[06:49](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E30F08DBE2D952CF1F182CB7422639130904128
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556216   (563382) от 07.06.2022
 
 VA - When We Dip Presents: Ete (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Melodic House & Techno>
@@ -668,31 +695,6 @@ Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:324AEF3F7E15935AA7D3A14680319ABFFDAE9AB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152521   (565552) от 23.07.2017
-
-Vasily Dvortsov - Белая Ночь (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белая ночь (feat. Boris Bredin) Radio Version (03:11)
- 02. Белая ночь (feat. Boris Bredin) Extended Version (05:27)Жанр: TranceПродолжительность: 00:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26EF9C9078760A1958A9B43D425DC982EED0BDEE
 ```
 
 

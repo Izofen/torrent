@@ -1,3 +1,30 @@
+###  Публикация: 1286514   (713163) от 02.03.2019
+
+OSSIA - Devil’s Dance (2019) [FLAC|Lossless|Web-DL|tracks] <Experimental, Drone, Abstract, Dark Ambient>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concrete (5:58)
+02. Radiation (5:39)
+03. Devil's Dance (5:57)
+04. Slow Dance (2:18)(   Читать дальше...   )Производство: Blackest Ever Black - BLACKEST075Жанр: Experimental, Drone, Abstract, Dark AmbientПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D516B8FEEAAF79F8E34BE75335C50E1D55857F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401029   (713200) от 08.08.2020
 
 VA - Sandwalk Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -668,33 +695,6 @@ Weval - The Weight (2019) Kompakt [FLAC|Lossless|WEB-DL|tracks] <Dub, Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25A15B381E71A32ADC8005F96B39FCAE789C346F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400827   (715023) от 07.08.2020
-
-Washed Out - Purple Noon (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Indie Pop, Chillwave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_715023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Late (4:12)
- 02. Face Up (4:09)
- 03. Time to Walk Away (4:16)
- 04. Paralyzed (3:21)(   Читать дальше...   )Жанр: Electronic, Indie Pop, ChillwaveПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00FDD4882AA554F26E3EA0DEF8A4C8E745282B0
 ```
 
 

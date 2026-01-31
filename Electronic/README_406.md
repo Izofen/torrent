@@ -1,3 +1,30 @@
+###  Публикация: 1277235   (787029) от 19.01.2019
+
+VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unhappiness - Leaving Behind The Darker Days (Original Mix) 5:08
+02. March - Behind The Dark Matter (Original Mix) 1:36
+03. Roberth - Behind (Original Mix) 7:30
+04. Fortune - Behind You (Original Mix) 5:22(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CECA1F74586435EA1C2B5D6C59AA7E8F06A109AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277248   (787030) от 19.01.2019
 
 VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
@@ -666,33 +693,6 @@ VA - Valentines Day Collection, King Street Sounds, 25 Years Essentials (2018) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2CB20403601D458949DFA11F3C2B48FFD4BF602
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276408   (787973) от 16.01.2019
-
-Pill-Oh (Zinovia) - Vanishing Mirror (2012) Kitchen. Label [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. February Tale (03:40)
- 02. Notebook (04:00)
- 03. Stolen Moments (03:24)
- 04. Fields of Yellow Leaves (02:34)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39DDA510D45ED231C11389F5318B06924C21AD6C
 ```
 
 

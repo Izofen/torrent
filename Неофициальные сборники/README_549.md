@@ -1,3 +1,30 @@
+###  Публикация: 1115578   (826654) от 18.03.2017
+
+VA - Ресторан Кураж на радио Шансон. Выпуск №8 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Атланова - Нет Между Нами Черемухи 3:59
+002. Илья Мацкевич - Снежная Королева 4:39
+003. Аслан Кятов - Отпусти 3:48
+004. Сборная Союза - Белая Зима 3:46(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E53FE8F86B6A1458D43C9BE3F3E443799C6891B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115489   (826655) от 18.03.2017
 
 VA - Touch You Dream: Relax Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -669,33 +696,6 @@ VA - Beatport Dance House: Electro Sound Pack #75 (2020) [MP3|320 Kbps] <Club, D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17CA18135F857ACB7DF1367F4EA3CB63FCE7BEFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006423   (828966) от 11.04.2016
-
-VA - Sports Dance Music (2016) [MP3|320 кб/с] <Progressive Trance, Dance Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_828966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond Ft. Richard Bedford - Sun & Moon
-02. Dj Sammy - Sunlight (Driftwood Remix)
-03. Vincent De Moor - Fly Away (Cosmic Gate Remix)
-04. Tiesto Ft. Bt - Loves Comes Again(   Читать дальше...   )Жанр: Progressive Trance, Dance ElectroПродолжительность: 05:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0AF64A8346A6FF171C443340D68A08B80C6FDED
 ```
 
 

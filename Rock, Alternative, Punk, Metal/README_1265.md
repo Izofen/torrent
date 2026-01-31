@@ -1,3 +1,327 @@
+###  Публикация: 1447202   (1032132) от 12.02.2021
+
+Prometheo - Quello Che Rimane (2021) [FLAC|Lossless|WEB-DL|tracks] <RPI, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arkeos (2:32)
+02. Quello che Rimane (4:12)
+03. Iena (3:59)
+04. La Ballata dello Stagista (5:12)(   Читать дальше...   )Жанр: RPI, Progressive RockПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0A4910C9FA9203C64A0FD1DD705C2CFDCEA15D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447200   (1032133) от 12.02.2021
+
+3.2 - Third Impression (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Of The World
+02. What Side You’re On
+03. Black Of Night
+04. Killer Of Hope(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C528CA4B4AA12CAAF4829D0E94F36903635F1E35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620308   (1032134) от 20.03.2023
+
+Nikolay - Mother Russia (1995) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Best Of Best 4:20
+02. Hope Dies Last 5:18
+03. Power Of Beuty 4:49
+04. High On Love 4:06(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5686D8081D6742B99CB30659DE08583D2B5373B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620346   (1032135) от 20.03.2023
+
+Inner Prospekt - Canvas Three (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scratches [00:08:03]
+02. The Island of Despair [00:11:47]
+03. A Wordless Fable [00:11:20]
+04. The Showdown [00:20:16](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:02:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6893A9F2DC238EA0039AA242C0A8B47650A097
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620395   (1032136) от 20.03.2023
+
+Field Music - Commontime (2016) [FLAC|Lossless|WEB-DL|tracks] <Art rock, Indie-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Noisy Days Are Over
+02 - Disappointed
+03 - But Not For You
+04 - I'm Glad(   Читать дальше...   )Жанр: Art rock, Indie-popПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A5743EEFB1F41A9083247775891C53937FEF9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620500   (1032137) от 20.03.2023
+
+Dante's View - Happiness Is a War (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Another Guy (4:38)
+02. Wrong (3:18)
+03. Pretend (3:44)
+04. It's a Crime (4:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2841612B64E9D83FD65A8E2AC80B6B423022D487
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620519   (1032139) от 20.03.2023
+
+Old Scars - Власть Химеры (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Groove Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:09]
+02. Власть химеры [00:05:03]
+03. Чужая сила [00:07:00]
+04. Активист [00:05:08](   Читать дальше...   )Жанр: Metalcore, Groove Metal, Thrash MetalПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818E400B3618574773935AC470653403608F5477
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620309   (1032140) от 20.03.2023
+
+Stream of Passion - Embrace The Storm (2005) [FLAC|Lossless|image + .cue] <Progressive Metal, Symphonic Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом нидерландско-мексиканской симфоник-метал группы Stream of Passion, где тексты и музыку к песням писали участники коллектива —01. Spellbound 3:35
+02. Passion 5:21
+03. Deceiver 5:07
+04. I'll Keep on Dreaming 3:46(   Читать дальше...   )Жанр: Progressive Metal, Symphonic Metal, Gothic MetalПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E2833A1D3A50DEE1E7913D5326BD710EC41F94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620348   (1032141) от 20.03.2023
+
+Humanrise - You're Never Alone (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashia Unika [00:02:56]
+02. Warriors Never Lose Hope [00:06:36]
+03. Fear or Die [00:04:42]
+04. You're Never Alone [00:05:43](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:53:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5C5E7E96EFD31008C3CFC74162EBAB1BF89CD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620330   (1032142) от 20.03.2023
+
+The Waking Sleeper Band - Planetarium (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planetarium [00:04:55]
+02. Astral Mathematics [00:03:42]
+03. The Earth Is the Center [00:03:43]
+04. Perception [00:04:14](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A01518CCBD68350E1A9A4FBA5A39814E434C709B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620457   (1032145) от 20.03.2023
+
+Words That Burn - Cut Throat Culture (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den of Lions [00:03:59]
+02. Sunshine [00:03:27]
+03. Play God [00:05:04]
+04. Sirens [00:04:17](   Читать дальше...   )Жанр: Alt. Metal, Modern MetalПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C4E8B0C7682576FFFE6CB502C6F8A308E4B803
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620499   (1032146) от 20.03.2023
+
+Щенки - Комплекс и синдром (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мир обречён [00:02:36]
+02. Похмелье и несчастная любовь [00:03:24]
+03. Смерть неизбежна [00:03:00]
+04. Не хватает слов [00:02:59](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF83CB2FF3E720B3E800D3C3F2130FFD928515BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620342   (1032147) от 20.03.2023
 
 Paakallo - Paakallo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Dark, Occult, 70's>
@@ -371,330 +695,6 @@ Simulacrum - Genesis (2021) [MP3|320 Kbps] <Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C97741C5CA96ECD428B200762F95C82996943FF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620287   (1032316) от 19.03.2023
-
-Bloodsucking Zombies From Outer Space - Geisterhaus [Morder Blues III] (2023) [FLAC|Lossless|WEB-DL|tracks] <Horrorbilly, Psychobilly, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geisterhaus [00:04:39]
-02. Zentralfriedhof (Mörder Blues III) [00:03:27]
-03. Herz und Hirn [00:01:02]
-04. Werwolf von Währing [00:04:08](   Читать дальше...   )Жанр: Horrorbilly, Psychobilly, Punk RockПродолжительность: 00:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8581431E73EC1A2ACB0AC5F357F4F4AD87A49D04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620172   (1032317) от 19.03.2023
-
-Gabrielle de Val - Kiss In A Dragon Night (2023) [FLAC|Lossless|image + .cue] <Melodic Rock / AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take on the World (3:38)
-02. When Midnight Comes (with Mark Boals) (4:15)
-03. Moonlight Shadow (3:46)
-04. Kiss in a Dragon Night (with Robin McAuley) (4:12)(   Читать дальше...   )Жанр: Melodic Rock / AORПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7147F94619028F1420A132494B7DBFC610E088
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620375   (1032322) от 19.03.2023
-
-Альянс - Полно! (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032322.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рассвет, до завтра!
-2. Если мы люди
-3. Африка, ура!
-4. Музыка ветра(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:097FD6188DD7032086DED45ABB22C48AB208F4C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620271   (1032324) от 19.03.2023
-
-Ляпис Трубецкой - Юность (2001) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	«Сочи»	4:30
-02.	«Некрасавица»	4:01
-03.	«Юность»	3:44
-04.	«Голуби»	3:27(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5390A1EEF4AE30C862D2BA9AB09B67DA04A5A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620169   (1032327) от 19.03.2023
-
-Steve Augeri - Seven Ways 'Til Sunday (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (5:09)
-02. Never Far From Home (5:26)
-03. Bated Breath (3:23)
-04. Drive (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F55AEFBD76C788D2F8C456C5C666E986701AB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620182   (1032331) от 19.03.2023
-
-Heroes And Monsters - Heroes And Monsters (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locked And Loaded (3:57)
-02. Raw Power (4:10)
-03. Let's Ride It (4:03)
-04. Angels Never Sleep (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66432860FC45B95C1103D65F4A1CBD5BD339967
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620178   (1032333) от 19.03.2023
-
-First Signal - Face Your Fears (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbreakable (3:33)
-02. Situation Critical (4:01)
-03. Shoot The Bullet (4:03)
-04. Always Be There (4:08)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AA1ECE26B5BD1477876ED8A2E20A16EDD02FC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447012   (1032336) от 11.02.2021
-
-Slayer - Undisputed Attitude (1996) Reissue, 2013, American Recordings [FLAC|Lossless|image + .cue] <Crossover, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disintegration/Free Money
-02. Verbal Abuse/Leeches
-03. Abolish Government/Superficial Love
-04. Can't Stand You(   Читать дальше...   )Жанр: Crossover, Thrash MetalПродолжительность: 00:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD20CD1B9A2BD72AEA0EE0F1A64877B155E6AEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446829   (1032339) от 11.02.2021
-
-The Raz - The Raz (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Garden (5:55)
-02. No One To Blame (4:50)
-03. Different Colored Leaves (4:39)
-04. Since I Lost You (4:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3F98FF79B887FAB19D1C6A75F80F92EB365745
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446893   (1032341) от 11.02.2021
-
-Prometheo - D'un fuoco rapito, d'un giovane uomo, d'un amore insensato (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prothos (00:05:13)
-02. Il ratto del fuoco (00:06:05)
-03. Fuga (00:01:38)
-04. Canto I (00:04:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE8D908B5E97AF3E2991C3005EAF63E07D8F2B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446578   (1032481) от 10.02.2021
-
-The Pretty Reckless - Death By Rock And Roll (2021) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death by Rock and Roll (03:55)
- 02. Only Love Can Save Me Now (feat. Matt Cameron & Kim Thayil) (05:12)
- 03. And So It Went (feat. Tom Morello) (04:30)
- 04. 25 (05:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFB764EA10ADD514EE888B501C34C6FDDE10C80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619822   (1032495) от 18.03.2023
-
-Mortician - Titans (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inmates
-02. Spiral Of Death
-03. Titans Of Rock
-04. Hell Raiders(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5098F0CE00C666BA9A763007F6380F1EBD8CADA9
 ```
 
 

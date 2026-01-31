@@ -1,3 +1,338 @@
+###  Публикация: 1043692   (571071) от 17.08.2016
+
+Karlton Coffin Band - Three Minutes Of Fury (2010) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Company Man (4:39)
+02. Get Your Drink On (3:33)
+03. Man On The Inside (4:10)
+04. Blue Collar (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C742139D1EE4185C6DA4336CD3A9B2C01C4A2204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043740   (571188) от 17.08.2016
+
+Hibria - XX (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leading Lady
+02. Music
+03. Fools Paradise
+04. Silent Revenge (Live)(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0297E0A63AC005B2B69678394D9F75FABC5F1280
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 362277   (571273) от 13.07.2011
+
+Rod Stewart - You Wear It Well. The Collection (2011) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF3FF6573827A2EBB18972C39981D58F71C77206
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528096   (571288) от 29.07.2012
+
+Black Majesty - Stargazer (2012) [FLAC|Lossless]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling (4:40)
+02. Lost Horizon (4:31)
+03. Voice Of Change (4:29)
+04. Killing Hand (4:22)
+05. Journey To The Soul (4:35)
+06. Holy Killers (5:10)
+07. Symphony Of Death (5:37)
+08. Edge Of The World (4:19)
+09. Stargazer (6:40)
+10. Ariel (Bonus Track) (4:49)Жанр: Power MetalПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043688   (571298) от 17.08.2016
+
+Denial Fiend - They Rise (2007) [FLAC|Lossless|image + .cue] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. They Rise 04:23
+02. Return to the Tombs of the Cursed Blind Dead 03:34
+03. Flesheater 04:11
+04. Cover Me in Blood 03:31(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F25DEB5976782E43E43EF3D9E58DDC00D328E43E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528295   (571393) от 29.07.2012
+
+Crimson Shadows - Glory On The Battlefield (2012) [FLAC|Lossless]<Melodic Death Metal/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glory On The Battlefield (2:29)
+02. Battle Hard (6:43)
+03. Beyond The Mountain Wasteland (5:51)
+04. For The Glory Of The Throne (7:03)
+05. Kingdom Of Ale (6:15)
+06. Quest For The Sword (6:22)
+07. Lost In A Dark Forest (6:22)
+08. Journey's End (5:02)Жанр: Melodic Death Metal/Power MetalПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528417   (571488) от 29.07.2012
+
+Ancestors - In Dreams And Time (2012) [FLAC|Lossless]<Doom Metal/Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispers (9:11)
+02. The Last Return (6:16)
+03. Corryvreckan (12:08)
+04. On The Wind (9:32)
+05. Running In Circles (9:44)
+06. First Light (19:19)Жанр: Doom Metal/Progressive RockПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921984   (571509) от 27.07.2015
+
+Our Last Night - Younger Dreams (2015) [MP3|320 кб/с]<Post-Hardcore, Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prisoners
+02. Road to the Throne
+03. Home
+04. White Tiger(   Читать дальше...   )Жанр: Post-Hardcore, Alt. RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3730694128E23BB5101374A9CDD12C2B38F5A5D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528378   (571564) от 29.07.2012
+
+Okera - A Beautiful Dystopia (2012) [FLAC|Lossless]<Death Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Rain (9:25)
+02. I Hope (5:30)
+03. Futility (7:36)
+04. In Solitude (6:53)
+05. All Thats Lost (7:36)
+06. Like Jewels in the Sky (9:18)
+07. A Beautiful Dystopia (10:05)Жанр: Death Doom MetalПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921663   (571639) от 27.07.2015
+
+Robert Plant - More Roar (2015) Vinyl, EP[MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571639.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Turn It Up [07:44]
+2. Poor Howard [04:58]
+3. Whole Lotta Love (Medley) [05:33]Жанр: RockПродолжительность: 00:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B228CB0F1283C0FE3BF3CADBDD4B75F4C7398E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921868   (571746) от 27.07.2015
+
+The Moody Marsden Band - Never Turn Our Back On The Blues (1992) Live [APE|image+.cue]<Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571746.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Baby what you want
+2. The stealer
+3. How blue can you get
+4. Foolin' with my heart(   Читать дальше...   )Жанр: Rock, Blues Rock, British BluesПродолжительность: 01:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F035C1DB7378F49264C484C4CBDA154152470EA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922150   (571782) от 27.07.2015
+
+Gene Vincent - Les Genies Du Rock - Be-Bop-A-Lula (1993) [MP3|320 кб/с]<Rock & Roll, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Be-Bop-A-Lula (2:46)
+02.  Say Mama (1:58)
+03.  Woman in Black (3:18)
+04.  Ain't That Too Much (2:56)(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA79746C5BEE399F00F5EC684648DB612865796C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922128   (571866) от 27.07.2015
 
 Flamin' Groovies - Les Genies du Rock - Shake Some Action (1993) [MP3|320 кб/с]<Rock & Roll, Psychedelic Rock>
@@ -371,329 +706,6 @@ Znaki - Видеть больше (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8341B129287A15A9FC4F91C042E433359B613668
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555062   (572522) от 02.06.2022
-
-Syndicated Madness - It's Not The End (2022) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On (03:01)
-02. Hold It High (03:19)
-03. I Just Want to Celebrate (03:30)
-04. Here It Comes (03:06)(   Читать дальше...   )Жанр: Classic Hard RockПродолжительность: 00:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84BF62023E9764DECAC52FFCEF607BD7A8700DDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555055   (572527) от 02.06.2022
-
-Jonathan Cain - Arise (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клавишник легендарной американской AOR-группы JOURNEY Джонатан Кэйн (Jonathan Cain) выпустил новый сольный альбом "Arise" на лейбле Identity с дистрибуцией по каналам The Fuel Music. Это уже шестой полноформатный христианский проект музыканта с 2016 года, и в нем вновь глубоко чувствуется “радость от господнего присутствия и благодати”, - гласит пресс-релиз. (   Читать дальше...   )01. Roar
-02. Beautiful Thunder
-03. Arise
-04. Oh Lord Lead Us(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BBE964D0F4265E6FCC68B8508E37460FF47F2DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555080   (572532) от 02.06.2022
-
-Morcrof - De Pessimism Philosophiam Et Dogma Nihilistic (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - De Pessimism Philosophiam Et Dogma Nihilistic (00:01:15)
-02 - Ex Hvmanvm Insvfficientia (00:06:56)
-03 - Rescindi Neqveat Amaritvdinem (00:05:33)
-04 - Vita Ad Mortem Portendit (00:01:14)(   Читать дальше...   )Жанр: Black Doom MetalПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A8768385787F39F7187FD803BEE0CA2573F3A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151532   (572563) от 19.07.2017
-
-Wintersun - The Forest Seasons (2017) [MP3|320 Kbps] <Epic Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Awaken From The Dark Slumber (Spring)
-2. The Forest That Weeps (Summer)
-3. Eternal Darkness (Autumn)
-4. Loneliness (Winter)(   Читать дальше...   )Жанр: Epic Metal, Melodic Death MetalПродолжительность: 01:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E1BD94B399E408244E0C89AA36677B465EEB54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151437   (572568) от 19.07.2017
-
-VA - Audio's Audiophile Vol.17 - In Concert (2001) Compilation, Live [FLAC|Lossless|tracks + .cue] <Pop-Rock, Jazz, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saga - Humble Stance   (06:12) 
-02. James Taylor - Shed A Little Light   (04:08) 
-03. Billy Joel - She's Got A Way   (03:04) 
-04. Carolyne Mas - Sittin' In The Dark   (13:35) (   Читать дальше...   )Жанр: Pop-Rock, Jazz, InstrumentalПродолжительность: 01:18:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F6979E4765A5A9F9EE9BC3EC704806FE4067FF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043296   (572595) от 16.08.2016
-
-Ally Venable Band - No Glass Shoe (2016) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trainwreck Blues (3:06)
-02. No Glass Shoes (5:16)
-03. Woke up This Mornin' (5:03)
-04. Wise Man (4:10)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:415DF2424A175B2710BFB50350D638736EBE1B01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043264   (572685) от 16.08.2016
-
-Pooh - 1981-1984 (2011) [FLAC|Lossless|image + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chi Fermera' La Musica 1981
-2. Siamo Tutti Come Noi 1982
-3. Canzone Per L'inverno 1982
-4. Hurricane (Rotolando Respirando) 1980(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DEAF11CCDCACB5730BF9114DDDF36584493A901
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043182   (572829) от 16.08.2016
-
-Eric Gales - A Night on the Sunset Strip (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 0:48
-02. Make it There 8:46
-03. The Change in Me 6:37
-04. Block the Sun 6:55(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194FFD394FA650281D37D0ACE1D803966F144492
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151633   (572907) от 19.07.2017
-
-Loudness - Single Collection 1981-2012 (2012) 2CD [WV|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Loudness — японская рок-группа, играющая в стиле хэви-метал. Основана в 1981 году в городе Осака. Дискография группы на 2016 год насчитывает 27 студийных альбомов. Единственным неизменным участником коллектива с 1981 года является гитарист, композитор и один из основателей группы Акира Такасаки.
-
-Loudness — одна из первых японских метал-групп, достигшая успеха и (   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0CB4AAF514B77749F06F01F6F81C02FFCB043D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234339   (572942) от 04.07.2018
-
-Donnie Iris - The Best Of Donnie Iris (2001) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ah! Leah!
-02. I Can't Hear You
-03. Agnes
-04. Sweet Merilee(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF88F00E1E4E591E8C2B630CC5B794CE41FD450
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234261   (572952) от 04.07.2018
-
-Эндорфины - ПрепаратSEXин (2005) [FLAC|Lossless|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кохай
-02. Ролер
-03. Подiум
-04. Саме тебе(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351A2A39C56D9029347AAD9615A88A8C050C59D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043176   (572987) от 16.08.2016
-
-Kalaban - Don't panic (1990) [FLAC|Lossless|image + .cue] <Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572987.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Between the lines
-3. Grayslayer
-4. Procyon's demise(   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4FD9B1182E362D4E31087D1DB27CD934D7B132A
 ```
 
 

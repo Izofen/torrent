@@ -1,3 +1,30 @@
+###  Публикация: 1008277   (817838) от 17.04.2016
+
+VA - Отдых у моря с лучшими хитами (2016) (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_817838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Sasha Dith & Мохито - Я Тебя Люблю
+02. Elton John - Wonderful Crazy NightElton John - Wonderful Crazy Night
+03. Rihanna - Kiss It Better
+04. Сергей Костецкий - Простые Движения(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4D97CFAD7A28FAD5F06E0176E587B07EE9F3A9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008026   (817937) от 17.04.2016
 
 VA - Club Dance Ambience Vol.65 (2016) [MP3|320 кб/с] <House, Club, Dance>
@@ -668,33 +695,6 @@ VA - Лучшие Хитовые Ретро Ремиксы (от LORDEGRAF) (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D4C16D79D71C60E489A8BD364805ED27302AE2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196316   (820407) от 04.01.2018
-
-VA - Музыка, с которой мы выросли (зарубежная) (1970-1995) Pop, rock, disco [MP3|320 Kbps] <Pop, rock, disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_820407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - Lookin' Out My Back Door (1970) 02:35
-02. Uriah Heep - Lady In Black (1971) 04:44
-03. Led Zeppelin - Rock And Roll (1971) 03:41
-04. Sweet - Jeanie (1971) 03:01(   Читать дальше...   )Жанр: Pop, rock, discoПродолжительность: 08:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7AA64B20B3FBFD52511DA248B361A2FA76D61E6
 ```
 
 

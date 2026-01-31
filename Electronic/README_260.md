@@ -1,3 +1,30 @@
+###  Публикация: 1158565   (492096) от 16.08.2017
+
+VA - Vocal House Essentials Vol.2 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hitfinders - Miami (feat. R. Ghelli, Felipe Romero) (S&A Ocean Drive Mix)  5:19
+02.  Made In Italy - Everyday (051 Project 90's Taste Mix)  6:14
+03.  Lorenzo Gallo - I Want to Be (feat. Gigliola) (Alex Raimondi Remix)  7:13
+04.  Alex Raimondi - I Hate You (feat. Steph B.) (Frystal DJ Remix)  5:17(   Читать дальше...   )Жанр: HouseПродолжительность: 01:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA412EDB254B5282A350E4AB54833218694DE354
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565642   (492435) от 24.07.2022
 
 Digital Emotion - The Freaks (2013) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
@@ -670,33 +697,6 @@ VA - Cosmic Chill Lounge Vol.8 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F324AD4B65AD3E23830D18F4587F26841245B6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243012   (496094) от 25.08.2018
-
-VA - It's Disco House (2018) [MP3|320 Kbps] <House, Nu Disco, Disco House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_496094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Prince - Careless Whisper (Calenzo Club Mix) 3:38
-02. Carol Jiani - Feel It (Andre Schluter Funky Night Mix) 3:10
-03. Chris Excess feat. Lexine - It Feels So Good (Jason Parker Remix Edit) 3:45
-04. Jason Parker feat. Gemma Macleod - U Sure Do (Radio Edit) 3:25(   Читать дальше...   )Жанр: House, Nu Disco, Disco HouseПродолжительность: 02:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42622CBB8FCAEC0BBF4C9F0157C76BB96562B622
 ```
 
 

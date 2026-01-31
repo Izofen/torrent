@@ -1,3 +1,30 @@
+###  Публикация: 988060   (922878) от 19.02.2016
+
+VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rich Smith & Kimberly Hale - When the Sun Comes Up (6:53)
+02. Para X - Love Train (Janina T Remix) (7:06)
+03. Almar & Danny Stubbs - Midnight Sun (7:13)
+04. Para X - Love Train (6:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6618C2B2F1D421D1F6C473F70C9CA1E44C392A03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095591   (922879) от 22.01.2017
 
 VA - Redux Presents: The Uplifting Selection Vol.1 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -666,33 +693,6 @@ VA - Detox Lounge Deluxe (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F90D9C109D9FCFD80DE02B21270964B414C5AD86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095547   (924566) от 21.01.2017
-
-VA - Wind In The Field (Downtempo Series)  Vol.009 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Moj@r - Sex (Original Mix)  5:01
-02.  Valefim Planet - I'll Be With You (Original Mix)  4:23
-03.  Sergio Gray - Cuckoo (Original Mix)  6:05
-04.  Yevgeniy Khon - Autumn Fall Of The Leaf (Original Mix)  5:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722C88F19461B4FB28FF53E2E62E24B9125AA7BB
 ```
 
 

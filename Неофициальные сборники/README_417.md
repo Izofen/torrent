@@ -1,3 +1,30 @@
+###  Публикация: 1291235   (670493) от 24.03.2019
+
+VA - Сегодня на радио хиты FM Vol.5 (2019) [MP3|256 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chainsmokers, 5 Seconds Of Summer - Who Do You Love (3:46)
+02. A Boogie wit da Hoodie, Olexesh - Look Back At It (2:58)
+03. Aaron Smith - Dancin (3:18)
+04. Achtabahn - Boten Anna (2:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397DCE8B5022E166BFA34DF6CBF993759EF60584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509419   (670554) от 14.06.2012
 
 VA - Dubstep Top 2012 (February) (2012) [MP3|256 kbps] <Dubstep>
@@ -696,33 +723,6 @@ VA - Music For Sports Games: April Edition (2018) [MP3|320 Kbps] <Electro House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A08DD365D86E801882F54EA00A571A8B2AB46007
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223792   (671527) от 06.05.2018
-
-VA - Remember American Blues And Country (2018) [MP3|320 Kbps] <Blues, Country, Folk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Townes Earle - Champagne Corolla
-002. Kris Kristofferson & Willie Nelson - Forever I Still Miss Someone
-003. Florida Georgia Line - Smooth
-004. Ruston Kelly & Kacey Musgraves - To June This Morning(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 07:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D697456D3A3AE311CB9AC93FBF163A6A5227A4E2
 ```
 
 

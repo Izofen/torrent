@@ -1,3 +1,339 @@
+###  Публикация: 903728   (657092) от 01.06.2015
+
+Siren - A Kingdom Aflame (2015) [MP3|320 кб/с]<Heavy Metal, Doom Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire & Blood
+02. Into the Starless Night
+03. Ursine Lineage
+04. Bastard of the Dreadfort(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, Black MetalПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E519A2D47B981B8F2EDCD8714658A63237CD77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903854   (657093) от 01.06.2015
+
+Tornado - Black President (2015) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657093.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black President
+2. I, Individual
+3. 911 First Responder (FDNY)
+4. Flesh Crawling Nightmare(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A21EA78CBCC405B0E9C36647BC54C12FAF4399
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539427   (657144) от 26.03.2022
+
+Placebo - Never Let Me Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Chemicals (5:10)
+02. Beautiful James (4:09)
+03. Hugz (3:52)
+04. Happy Birthday in the Sky (5:09)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33307870CB8900F0FFF3A72BCC63CBC3A41C17D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513472   (657161) от 25.06.2012
+
+The Ghost Inside - Get What You Give (2012) [MP3|320 kbps] <metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is What I Know About Sacrifice (01:29)
+02. Outlive (02:35)
+03. Engine 45 (04:12)
+04. Slipping Away (03:13)
+05. The Great Unknown (03:10)
+06. Dark Horse (03:20)
+07. White Light (04:50)
+08. Thirty Three (03:07)
+09. Face Value (03:50)
+10. Deceiver (03:07)(   Читать дальше...   )Жанр: metalcoreПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CB00762CC3EB9352B24747E60E72BB6D4E1B1C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514980   (657173) от 25.06.2012
+
+Burning Point - The Ignitor (2012) [MP3|320 кб/с]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal Flame (Salvation By Fire Part 2) (03:59)
+02. In The Fire's Of My Self-Made Hell (03:08)
+03. In The Night ((03:50)
+04. The Ignitor (04:08)
+05. Silent Scream (04:38)
+06. Heaven Is Hell (04:28)
+07. Losing Sleep (04:02)
+08. Demon Inside Of You (03:46)
+09. Everdream (03:41)
+10. Lost Tribe (03:45)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0433533778F9BD1E7F46C1274D48F2554ED843DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539410   (657204) от 26.03.2022
+
+Август - Демон (1987) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657204.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Демон
+2. Как болит голова
+3. Осень
+4. Ночь(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0244CBB9C91277BF7423F9DA0987129E00C1AAE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539685   (657260) от 26.03.2022
+
+Meat Loaf - Bat Out Of Hell II Back Into Hell (2006) Deluxe Edition, 3CD [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard-Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bat Out Of Hell (Live From The United States / 1993 / Remastered 2006) [00:11:13]
+02. You Took The Words Right Out Of My Mouth (Live From United States / 1993 / Remastered 2006) [00:06:35]
+03. Heaven Can Wait (Live From United States / 1993 / Remastered 2006) [00:04:47]
+04. All Revved Up (Live From USA / 1993 / Remastered 2006) [00:07:54](   Читать дальше...   )Жанр: Rock, Hard-Rock, MetalПродолжительность: 3 CD, 04:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A37B62FF443F82D93359C0E889A97741D8F6602C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539682   (657266) от 26.03.2022
+
+Meat Loaf - Bat Out Of Hell III The Monster Is Loose (2006) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard-Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Monster Is Loose [00:07:12]
+02. Blind As A Bat [00:05:50]
+03. It's All Coming Back To Me Now [00:06:05]
+04. Bad For Good [00:07:32](   Читать дальше...   )Жанр: Rock, Hard-Rock, MetalПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63137F5D311E05BE6A75E4583F018FCA0C3AA45C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539579   (657269) от 26.03.2022
+
+King Mountain - Tempest at the Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soul Sacrifice (00:05:50)
+02 - Tempest at the Gate (00:03:29)
+03 - Burning Walls (00:04:05)
+04 - King of the Mountain (00:06:12)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADA4BD62E725AF8F1104299C94ACB29AECD7831
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539432   (657270) от 26.03.2022
+
+Lacuna Coil - Comalies (2002) Limited Edition [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swamped
+02. Heaven's A Lie
+03. Daylight Dancer
+04. Humane(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA367397B10134F80A357B8FCEA5DF53DBBCFDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539581   (657271) от 26.03.2022
+
+The Legendary Pink Dots - The Museum of Human Happiness (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - This Is The Museum (00:07:10)
+02 - There Be Monsters (00:06:10)
+03 - Cloudsurfer (00:06:12)
+04 - Cruel Britannia (00:04:36)(   Читать дальше...   )Жанр: Psychedelic Rock, ExperimentalПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEE9AB02BFE0BCA8985C703A86BAF948D12C57F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539655   (657272) от 26.03.2022
+
+Meat Loaf - Couldn't Have Said It Better (2003) 2CD, Special Edition [FLAC|Lossless|image + .cue] <Rock, Hard-Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657272.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I Would Do Anything for Love (Video From Meat Loaf Storytellers DVD)
+2. Kiss Is a Terrible Thing to Waste (Video From Meat Loaf Storytellers DVD)
+3. Did I Say That (Video)
+4. Two Out of Three Ain't Bad (Meat Loaf Storytellers CD)Жанр: Rock, Hard-Rock, MetalПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F8BD85241F948499155252A6C4AABF565AB29F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539589   (657275) от 26.03.2022
 
 The Urban Sea - Fall Back To Reason (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -366,330 +702,6 @@ ANA - Metal for Charity Project (2017) [MP3|320 Kbps] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:352827FEC1CD91E1B02B77DA8CA68FA019FC288E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139271   (657917) от 04.06.2017
-
-Jorn - Life on Death Road (2017) [MP3|320 Kbps] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life on Death Road (7:20)
-02. Hammered to the Cross (The Business) (5:29)
-03. Love Is the Remedy (4:53)
-04. Dreamwalker (4:59)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E814406D155A8652BD1E5B7E9C978D5F46AAE494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139778   (657931) от 04.06.2017
-
-Adrenaline Mob - We The People (2017) [MP3|320 Kbps] <Heavy Metal, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of The Ring
-02. We The People
-03. The Killer's Inside
-04. Bleeding Hands(   Читать дальше...   )Жанр: Heavy Metal, Groove MetalПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7661DDE57E28F35338107816E38E7FC2C6882B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225769   (657951) от 18.05.2018
-
-VA - Beautiful Day (featuring R. Stewart, J. Cocker, Free and many more) (2004) [APE|Lossless|image + .cue] <Rock, Rhythm & Blues, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rod Stewart – You Wear It Well
-02. Tears For Fears – Everybody Wants To Rule The World
-03. Joe Cocker & Jennifer Warnes – Up Where We Belong
-04. Free – All Right Now(   Читать дальше...   )Жанр: Rock, Rhythm & Blues, SoulПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AE456C90D5FA29FD2ECCA39956FCFBE66132176
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903657   (657980) от 31.05.2015
-
-Luciferian Light Orchestra - Luciferian Light Orchestra (2015) Limited Edition [MP3|320 кб/с]<Occult Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа создана лидером шведской симфо-металл группы01. Dr. Faust on Capri
-02. Church of Carmel
-03. Taste the Blood of the Altar Wine
-04. A Black Mass in Paris(   Читать дальше...   )Жанр: Occult Rock, Hard RockПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A4425F5D14108E93EC0E04BE989064C9EA544C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903476   (657983) от 31.05.2015
-
-Thurisaz - The Pulse of Mourning (2015) [FLAC|image+.cue]<Melodic Death/Progressive/Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Longing... (3:06)
-02. ...For A Change (2:39)
-03. Patterns of Life (7:00)
-04. Rays of Light (6:25)(   Читать дальше...   )Жанр: Melodic Death/Progressive/Black MetalПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6928972184BD04F9A2778AD35AB2E453283C0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903472   (657993) от 31.05.2015
-
-Perzonal War - The Last Sunset (2015) [MP3|320 кб/с]<Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657993.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Salvation
-2. Speed Of Time
-3. 30 Years
-4. Never Look Back(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E08EABACFD1C4C651B1A1561126098649959EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903443   (657996) от 31.05.2015
-
-Signum Regis - Through The Storm (2015) EP [MP3|320 кб/с]<Power Metal, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657996.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Living Well
-2. Through The Desert, Through The Storm
-3. My Guide In The Night
-4. Come And Take It(   Читать дальше...   )Жанр: Power Metal, Melodic MetalПродолжительность: 00:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3084AE48BCAC0E6215E49E91F3CA6E6CC46DE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139853   (658039) от 04.06.2017
-
-Liv Sin (ex-Sister Sin) - Follow Me (2017) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fall
-02. Hypocrite
-03. Let Me Out
-04. Black Souls(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:396E997026329E7DE89F0DAB52E24E22456AB87D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903562   (658078) от 31.05.2015
-
-Sister Sparrow & The Dirty Birds - The Weather Below (2015) [MP3|320 кб/с]<Funk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Borderline (04:13)
-02. Sugar (03:02)
-03. Prison Cells (03:50)
-04. Mama Knows (03:33)(   Читать дальше...   )Жанр: Funk RockПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48BB51CACEC0ECFCD819DB0716CA424D9F2087C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903715   (658084) от 31.05.2015
-
-Vermillion Road - Palaces (2015) [MP3|320 кб/с]<Modern / Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tread On Me
-02. Revival
-03. These Lies
-04. Left Behind(   Читать дальше...   )Жанр: Modern / Hard RockПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:649E2CD10738503F20F7B7F04814A8593DA73A7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903441   (658086) от 31.05.2015
-
-Direblaze - Direblaze (2015) [MP3|320 кб/с]<Death Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658086.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Abyss
-2. Nights Of The Blackest Darkness
-3. Hellish Intensity
-4. Died Twice(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406C43E1B2EF923BA00B14D1C87C0B88E94D7D66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903439   (658167) от 31.05.2015
-
-Mount Shasta Collective - Beast (2015) [MP3|320 кб/с]<Post-Metal, Post-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658167.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Cold
-2. The Red Below
-3. Fear
-4. Beast(   Читать дальше...   )Жанр: Post-Metal, Post-RockПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2CD07CFC69C64AF159C8A2C46AB8977DDBCAE3
 ```
 
 

@@ -1,3 +1,324 @@
+###  Публикация: 1316033   (508897) от 23.07.2019
+
+Craig Finn - Faith in the Future (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggie I've Been Searching For Our Son (04:02)
+02. Roman Guitars (04:05)
+03. Newmyer's Roof (04:42)
+04. Sarah, Calling From A Hotel (03:15)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72A67562409097125CF3BADE3D5469DA1A70032A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316121   (508899) от 23.07.2019
+
+Ракоший Нелч - Немного Теплее (2013) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Последние Вздохи Июля (3:57)
+ 02. Молитва (4:40)
+ 03. Хранитель Маяка (3:11)
+ 04. Баланс (4:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:428DC0878B8FB70B4892B8D298C04E8A58A6F9A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316114   (508901) от 23.07.2019
+
+Ракоший Нелч - Зелёный Альбом (2011) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ты Видел (3:58)
+ 02. Мир Катится ко Всем Чертям (3:54)
+ 03. Власть (3:38)
+ 04. Комната с Зелёными Шторами (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4271EB8693414652A0AA09E88DBBBCE3B56C9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316005   (508903) от 23.07.2019
+
+Oxford Collapse - Some Wilderness (2004) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Land! (04:45)
+02. 1991 Kids (03:42)
+03. The Money You Have Is Maybe Too Little (03:33)
+04. Cumberland Gap (04:24)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C8C3765911406540CEE04046B0C217E3A411E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316120   (508906) от 23.07.2019
+
+Ракоший Нелч - Мы (2010) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мы (3:53)
+ 02. Мы Теряем Силу (3:11)
+ 03. Мы с Изумлением Смотрим (5:04)
+ 04. Мы Дети Незаконченной Войны (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213033E47911C2463A62A6EFBF5CA233E8B97AF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 502300   (508931) от 29.08.2015
+
+Клетка - Памяти Виктора Цоя посвящается (2001) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:55:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B0B59F33AAB804FA0385D6AA3ED83A404E0170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562237   (508935) от 09.07.2022
+
+Within Temptation - Don't Pray For Me (2022) EP [MP3|320 Kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Pray For Me (03:41)
+02. Within Temptation & Annisokay - Shed My Skin (feat. Annisokay) (04:30)
+03. The Purge (04:16)
+04. Entertain You (03:31)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D88D1903D985E6964BE001589B72510555D74D51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562045   (508941) от 09.07.2022
+
+Imagine Dragons - Mercury - Acts 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Electronic, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508941.jpg" />
+</div>
+
+
+###  Подробнее
+
+15. Bones
+16. Symphony
+17. Sharks
+18. I Don't Like Myself(   Читать дальше...   )Жанр: Indie Rock, Electronic, Alternative RockПродолжительность: 01:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22DD6F4E1F5ECB78E953034BA66BAF596787F535
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562373   (508952) от 09.07.2022
+
+Dreamtide - Drama Dust Dream (2022) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_508952.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stop Being Deep  04:22
+2. Spin  05:30
+3. Around  05:06
+4. Ni Dos Ni Agua  02:45(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C7E7DC46E17CD28952557D65930D10E0F98BFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562081   (509020) от 09.07.2022
+
+Journey - Freedom (2022) [MP3|320 Kbps] <Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Together We Run (4:49)
+02. Don't Give Up On Us (5:23)
+03. Still Believe In Love (5:16)
+04. You Got The Best Of Me (5:33)(   Читать дальше...   )Жанр: Rock, AORПродолжительность: 01:13:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19EF326AB40E7DC1C57C9A526002302F071BCD12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562465   (509022) от 09.07.2022
+
+Хитобои - Всё на свете ерунда (2022) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509022.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Всё на свете ерунда
+2. Молитвенная
+3. Свадебная
+4. Е*идодыр(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADC7104C58CFB5953891E364E359FFFD80FEF92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562548   (509023) от 09.07.2022
+
+Traitor - Exiled To The Surface (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_509023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rura Penthe
+02. Exiled To The Surface
+03. Total Thrash
+04. 66 Exeter Street(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B08650A5A088FE145134E2DDBF6CD1251D9270
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562384   (509028) от 09.07.2022
 
 Tiny Moving Parts - Tiny Moving Parts (2022) [MP3|320 Kbps] <Pop-Punk, Math Rock>
@@ -371,326 +692,6 @@ Slik Toxik - Doin' The Nasty (1992) [MP3|320 кб/с]<Hard Rock, Glam>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4676CB0E18DFDF3E27307AE4A527DADC8ECFEF76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932226   (509469) от 29.08.2015
-
-Edison's Children - Somewhere Between Here And There... (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light Years (John Mitchell Single Edit)
-02. Stranger In A Foreign Land
-03. Ever Be Friends
-04. Solstice(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:29:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA2FA4E53603DDDE192523C5E6D1977DF2D0994
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932299   (509544) от 29.08.2015
-
-Arkuum - Trostlos (2015) [MP3|320 кб/с]<Atmospheric Black Metal, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509544.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Prolog
-2. Trübsinn
-3. Ferne Welten
-4. Interlude(   Читать дальше...   )Жанр: Atmospheric Black Metal, Post-Black MetalПродолжительность: 00:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB89A6626074219684FF2BC793CBB6012F62EEFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521367   (509840) от 28.08.2015
-
-P.O.D. - 9albums + 3EPs + 6singles (1992-2015) [MP3|320kbps] <Christian Rock, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rapcore, Alternative Metal, Christian Rock, Reggae |Продолжительность: 00:08:14
-01  Going In Blind (Radio Edit)         3:46
-02  Going In Blind                      4:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3DE88D994AA7BA851AE86E10B4EA8A8E1C234C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931969   (509880) от 28.08.2015
-
-Crazy Town - 3 Альбома (1999-2015) [MP3|320 кб/с]<Alternative / Nu-Metal / Rapcore / Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Albums:
-1999 - The Gift Of Game
-2002 - Darkhorse
-2015 - The Brimstone SluggersЖанр: Alternative / Nu-Metal / Rapcore / Hip-HopПродолжительность: 02:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F02919A8FA0E083FA00756CDD9EB2874E19A91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421065   (509883) от 28.08.2015
-
-Daturana – Crossroad Man (2011) [FLAC|Lossless]<Psychedelic Rock / Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Psychedelic Rock / Blues RockПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC891560A6CB38A0E48B9585B19DDA4E1713DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932007   (509983) от 28.08.2015
-
-Foals - What Went Down (2015) [OGG| 442-508 кб/с]<Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_509983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Went Down (04:59)
-02. Mountain At My Gates (04:04)
-03. Birch Tree (04:21)
-04. Give It All (04:47)(   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9B9FDFFC68CB4E7790633864ABD6949409AF72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931926   (510046) от 28.08.2015
-
-Soilwork - The Ride Majestic (2015) Limited Edition [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ride Majestic
-02. Alight In The Aftermath
-03. Death In General
-04. Enemies In Fidelity(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04047ACD51B03593437B877A66BCB5913AACB17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932090   (510181) от 28.08.2015
-
-Motorhead - Bad Magic (2015) [FLAC|tracks|WEB-DL]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victory Or Die (3:08)
-02. Thunder & Lightning (3:06)
-03. Fire Storm Hotel (3:35)
-04. Shoot Out All Of Your Lights (3:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6235778977EDC1B113D812C2CBB45088C0292B01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932073   (510192) от 28.08.2015
-
-Backyard Babies - Four By Four (2015) [MP3|320 кб/с]<Hard Rock, Glam Punk>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Th1rt3en Or Nothing
-02. I'm On My Way To Save Your Rock 'N' Roll
-03. White Light District
-04. Bloody Tears(   Читать дальше...   )Жанр: Hard Rock, Glam PunkПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78151EEEC2C795D67520C1C60205B84D8B0F18CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932209   (510193) от 28.08.2015
-
-Spock's Beard - The Oblivion Particle (Digipak Edition) (2015) [MP3|320 кб/с]<Progressive Rock,  Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tides Of Time (7:48)
-02. Minion (6:56)
-03. Hell's Not Enough (6:24)
-04. Bennett Built A Time Machine (6:56)(   Читать дальше...   )Жанр: Progressive Rock,  Symphonic RockПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7C12C7B64995332AFEB356AF9CA51989CDFBEBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932025   (510195) от 28.08.2015
-
-Fink - Fresh Produce (2000) [MP3|320 кб/с]<Electronic, Downtempo, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tubb Journey (6:36)
-02. Fink Vs DJ Alicat (6:49)
-03. We Are Ninja (6:01)
-04. Break N Enter (5:55)(   Читать дальше...   )Жанр: Electronic, Downtempo, Indie RockПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21A0261BCA1D3F850AB7D700DE69DA30CC671D0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932204   (510269) от 28.08.2015
-
-Introitus - Fantasy (2007) [MP3|320 кб/с]<Symphonic Rock, Progressive Rock,  Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_510269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Genesis (7:17)
-02. Child (5:56)
-03. Ghost (9:12)
-04. Fantasy (26:02)(   Читать дальше...   )Жанр: Symphonic Rock, Progressive Rock,  ExperimentalПродолжительность: 01:12:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE210A6EB87432ABED123AD147DF4E3453700B4
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1104799   (878109) от 16.02.2017
+
+VA - Absolute Acoustic (2017) [MP3|320 Kbps] <Acoustic>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_878109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind In Sails – If You Ever Want To Be In Love
+ 02. Chase Your Words – Sorry I’m Late
+ 03. Subtube – Cheap Thrills (Acoustic Guitar)
+ 04. Faber Drive – We 3 Kings(   Читать дальше...   )Жанр: AcousticПродолжительность: 01:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B29B0B8E81FE1A878C2DDF19FC645F01CABACA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104550   (878208) от 16.02.2017
 
 VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Harmonic, Vocal, Emotional, Energy, Euphoric>
@@ -663,33 +690,6 @@ magnet:?xt=urn:btih:CC90D53C8D13F5DA7F2519AE9ACE928C12AB7C9D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C52CFB49F0A252A615595F413C6476B192D34EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996711   (879290) от 14.03.2016
-
-Пики Козыри - Лом, Чума, Америка (1995) [MP3|320 кб/с] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_879290.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Соня-Сонечка - 03:39
-2. Плюс электрификация - 03;38
-3. Ча-Ча-Ча (Колымское рэгги) - 03:50
-4. Пятый пункт -03:53(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CAD5C6E5B4C601A48D35DCDF8E2470F96272379
 ```
 
 

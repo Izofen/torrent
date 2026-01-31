@@ -1,3 +1,30 @@
+###  Публикация: 1358703   (967407) от 09.02.2020
+
+VA - German Top 100 Single Charts 07.02.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joker Bra & Vize - Baby
+02. The Weeknd - Blinding Lights
+03. Samra - Mon Ami
+04. Juju x Loredana - Kein Wort (feat. Miksu & Macloud)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FF5135932CE57A86C26ADD9E66BE20C60882C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976865   (967669) от 19.01.2016
 
 VA - Звездный Mix. Улетная 100-ка (2016) [MP3|256-320 кб/с] <Pop>
@@ -710,33 +737,6 @@ VA - Super Bomb Electro 53 (2015) [MP3|320 кб/с] <Electro House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E76EB485F3BA60A076AA5F608ADA9181905D643C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976148   (969841) от 17.01.2016
-
-VA - Super Bomb Electro 54 (2015) [MP3|320 кб/с] <Electro House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_969841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 22Bullets - It's Time (Original Mix) (4:33)
-02. Alvaro & D-Wayne - Take U (Original Mix) (4:20)
-03. Apashe, Sway - I'm a Dragon (Jaycen A'mour Remix) (5:18)
-04. Apster - Get Down Like That (Original Mix) (4:09)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0286981BE50AFD711C1F090A07F4F240BC65119E
 ```
 
 

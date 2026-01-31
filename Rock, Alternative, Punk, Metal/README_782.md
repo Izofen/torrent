@@ -1,3 +1,348 @@
+###  Публикация: 1241425   (520050) от 17.08.2018
+
+Status Quo - Down Down & Dirty At Wacken (2018) (Live)  [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caroline (Live At Wacken 2017) 05:31
+02. Something About You Baby I Like (Live At Wacken 2017) 02:16
+03. Rain (Live At Wacken 2017) 05:01
+04. Softer Ride (Live At Wacken 2017) 04:02(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:104928D73D4FCE69A7CB7DB5A5147F17A95B3F6A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241456   (520125) от 17.08.2018
+
+Doro - Forever Warriors // Forever United (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All for Metal
+02. Bastardos
+03. If I Can't Have You - No One Will (feat. Johan Hegg)
+04. Soldier of Metal(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CABB453DD30BC0E5EC8535F516C443C69C6151E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241503   (520131) от 17.08.2018
+
+Fox - 3 Albums (1975-1977) LP [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520131.jpg" />
+</div>
+
+
+###  Подробнее
+
+За свою скоропалительную карьеру "FOX" выпустили всего три альбома, но тем не менее успели снискать расположение публики и несколько раз побывали в горячей десятке. Своему появлению на свет группа обязана композитору, продюсеру, гитаристу Кенни Янгу. В начале 70-х Янг занялся созданием сольных альбомов, и на одном из них в качестве бэк-вокалистки выступила (   Читать дальше...   )Список альбомов:
+1975 - Fox
+1975 - Tails Of Illusion
+1977 - Blue Hotel(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F149313CAC12E88C1BA753E3E0E75D1AE15DB43B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314282   (520225) от 13.07.2019
+
+Александр Башлачёв - Первая студийная запись (2019) 2CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эту запись принято называть "Первой студийной записью" Башлачёва. Строго говоря, настоящих студийных записей у Башлачёва было три:
+- в "Студии My" на Николиной горе
+- в студии Пущинского Дома Ученых
+- в Ленинградской студии документальных фильмов.(   Читать дальше...   )1. Палата №6
+2. Рыбный день
+3. Чёрные дыры
+4. Прямая дорога(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF046D176F32BD129E1C3EA758B9C0C897EE2206
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533839   (520234) от 13.08.2012
+
+Weird Fate - The Collapse Of All That Has Been (2012) [WavPack|Lossless]<Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Creeping Corrosion (1:00)
+02. Mirage Of A Star (9:31)
+03. Nacht (8:34)
+04. And Utter Emptiness (2:07)
+05. The Collapse Of All That Has Been (6:52)
+06. Manifest Of The Crestfallen (7:56)
+07. 1709 (1:47)
+08. In Stille (7:30)
+09. Anguish (1:52)
+10. Futile Words (8:18)Жанр: Black MetalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534308   (520244) от 13.08.2012
+
+Pathfinder - 2 Albums (2010-2012) [FLAC/WavPack|Lossless]<Symphonic Power Metal/Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот коллектив был образован в 2006 году в Польше басистом Arkadiusz Ruith и гитаристом Karol Mania. Их страна всегда славилась блэк/дэт метал коллективами, такими как Vader и Behemoth. Парни решили не идти по их стопам, а играть нечто другое.01. Ventus Ignis Terra Aqua (2:05)
+02. Fifth Element (8:44)
+03. Ready To Die Between Stars (5:49)
+04. The Day When I Turn Back Time (6:18)
+05. Chronokinesis (5:27)
+06. March To Darkest Horizon (7:50)
+07. Yin Yang (4:03)
+08. Elemental Power (4:34)
+09. Ad Futuram Rei Memoriam (5:04)
+10. When The Sunrise Breaks The Darkness (6:15)(   Читать дальше...   )Жанр: Symphonic Power Metal/Progressive MetalПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241525   (520258) от 17.08.2018
+
+Apostol - Aranyalbum (Nehéz a boldogságtól búcsút venni) (1996) [FLAC|Lossless|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nehez a boldogsagtol bucsut venni
+02. Halld a szivek dallamat
+03. Okosabban kene elni
+04. Ne bantsd a tangot(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C84C5CD6A57FDFCE877C29C1F576E2F21F44B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534150   (520434) от 13.08.2012
+
+Hel - Das Atmen der Erde (2012) [FLAC|Lossless]<Progressive Metal/Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wo die Tannen thronen (5:39)
+02. Wagemut (3:58)
+03. Von Reiter und Flutross (4:52)
+04. Wanderer im Nebelmeer (4:09)
+05. Komm zuruck (5:33)
+06. Am Grunde der Unendlichkeit (3:37)
+07. Wyrd (6:54)
+08. So Wahrheit, erkenne mich (4:06)
+09. Jagdnacht (3:19)
+10. Eroberer (6:15)(   Читать дальше...   )Жанр: Progressive Metal/Pagan MetalПродолжительность: 01:05:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929186   (520544) от 18.08.2015
+
+АлисА - Черная метка (1994) Remastered /2014, Мистерия Звука/ [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из культовейших альбомов в русском роке "Черная метка" был издан в 1994 году. Альбом был посвящен гитаристу группы Игорю Чумычкину трагично ушедшему из жизни в 1993 году. В 2014 году впервые альбом был переиздан на CD в оригинальном оформлении с многостраничным буклетом.01. Черная метка
+02. Паскуда
+03. Черная Rock'n'roll мама
+04. Белая невеста(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38D0CC33F95478A9D2667CA87DF2DE336E644489
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929188   (520552) от 18.08.2015
+
+АлисА - Черная метка (1994) Remastered /2014, Мистерия Звука/ [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520552.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из культовейших альбомов в русском роке "Черная метка" был издан в 1994 году. Альбом был посвящен гитаристу группы Игорю Чумычкину трагично ушедшему из жизни в 1993 году. В 2014 году впервые альбом был переиздан на CD в оригинальном оформлении с многостраничным буклетом.01. Черная метка
+02. Паскуда
+03. Черная Rock'n'roll мама
+04. Белая невеста(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4612E1F754BE4795650322CC1DB81CDEDF347A9B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927986   (520613) от 18.08.2015
+
+Periphery - 2 альбома - Juggernaut: Alpha\Omega (2015) [FLAC|tracks+.cue]<Progressive Metal / Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Reprise  01:26
+02 - The Bad Thing  05:54
+03 - Priestess  05:04
+04 - Graveless  03:56(   Читать дальше...   )Жанр: Progressive Metal / Math MetalПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B90A3C49D8C060838BAFE8CEE5E0EE2732FB5E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927984   (520619) от 18.08.2015
+
+Veil of Maya - Matriarch (2015) [FLAC|image+.cue]<Progressive Metalcore/Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_520619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nyu  01:56
+02 - Leeloo  02:52
+03 - Ellie  03:04
+04 - Lucy  02:56(   Читать дальше...   )Жанр: Progressive Metalcore/DeathcoreПродолжительность: 00:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5687298F3C212A3040B09FE5259BB545B06DA840
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560167   (520745) от 29.06.2022
 
 Werewolves - From the Cave to the Grave (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical Black, Death Metal>
@@ -381,344 +726,6 @@ Cat Stevens - The Very Best Of Cat Stevens (2003) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F72635C1168DF0DD2091025B28FA90DDA60914B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533957   (521341) от 12.08.2012
-
-Deep Purple - Live In London 1982 [Japanese Edition] (2CD) (2011) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Live in London - концертный альбом британской группы Deep Purple, вышедший в 1982 году.
-
-Альбом составлен из концертных записей, сделанных 22 мая 1974 года корпорацией Би-би-си для радиотрансляции. Материал целиком состоит из композиций из (последнего на тот момент) студийного альбома Burn, за исключением единственной песни «Smoke on the Water» из альбома Machine Head.
-Альбом был ремастирован и переиздан в 2007 году с добавлением композиции «Space Truckin'».
-
-Материал из  Wikipedia1. You Fool No One (20:22)
- 2. Space Truckin' (31:04)Жанр: Hard RockПродолжительность: 00:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3162EC82A3679FCAC159325983A48ED653FCBDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313992   (521431) от 12.07.2019
-
-The Kills - Future Starts Slow (2011) Single [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Starts Slow (Radio Edit) (3:42)Жанр: Indie RockПродолжительность: 00:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7ACB24EDD304846E58907BD1E558E2442223AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928862   (521469) от 17.08.2015
-
-АлисА - БлокАда (1987) Remastered /2015, Мистерия Звука/ [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521469.jpg" />
-</div>
-
-
-###  Подробнее
-
-«БлокАда» была издана как магнитоальбом в 1987 году, а через два года была выпущена на виниле. Согласно правилам тех лет, оригинальные записи были подкорректированы, песни «Время менять имена», «Эй, ты, там, на том берегу» и «Земля» были укорочены, а так же были вырезаны начало и конец альбома. Еще одним недочетом была неправильная скорость воспроизведения (из-за (   Читать дальше...   )01. Время менять имена
-02. Компромисс
-03. Cолнце встаёт
-04. Эй, ты, там, на том берегу(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9D77800BEFFA02416D0B75BBA1F4F226550583
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928866   (521615) от 17.08.2015
-
-Алиса - БлокАда (1987) Remastered /2015, Мистерия Звука/ [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521615.jpg" />
-</div>
-
-
-###  Подробнее
-
-«БлокАда» была издана как магнитоальбом в 1987 году, а через два года была выпущена на виниле. Согласно правилам тех лет, оригинальные записи были подкорректированы, песни «Время менять имена», «Эй, ты, там, на том берегу» и «Земля» были укорочены, а так же были вырезаны начало и конец альбома. Еще одним недочетом была неправильная скорость воспроизведения (из-за (   Читать дальше...   )01. Время менять имена
-02. Компромисс
-03. Cолнце встаёт
-04. Эй, ты, там, на том берегу(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9272C450582DA68610E8AF8A07506230D44AA9A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533011   (521680) от 12.08.2012
-
-Gendos (Gen Dos / Gennady Chamzyryn) - Bay-Tayga (2007) [MP3|320 кб/с]<Ethnic, Rock, Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521680.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Khovuda kezhee (Night in the s (4:28)
-2.  Huliganskaya (3:18)
-3.  Bay-Taiga (Rich Taiga) (4:44)
-4.  Kyzylym sen (My Kyzyl) (5:05)
-5.  Aza alzyn (Features take) (4:58)
-6.  Kysh (Winter) (3:20)
-7.  Langchyy boom (My Gun) (5:36)
-8.  Saktyyshkyn (Memories) (2:11)
-9.  Teek (remake of "Tos") (4:02)
-10. Manchureem (Beautiful District (5:38)Жанр: Ethnic, Rock, Folk-RockПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4489E83231409FA208A1CA6C97B594BC9E9E29D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533824   (521681) от 12.08.2012
-
-Show Me A Dinosaur - Evolvent EP (2011) [MP3|320 кб/с]<post-rock, instrumental, post-metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still First In Space
-02. Gagarin
-03. Is This Really Happening?!
-04. Petropavlovsk-Kamchatsky
-05. You Can't Find This Place On Google Maps
-06. Lift Up Your TelescopesЖанр: post-rock, instrumental, post-metalПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D543747C9A796ED7610223ABEC3D01D18692E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533414   (521692) от 12.08.2012
-
-Strydegor - In The Shadow Of Remembrance (2012) [FLAC|Lossless]<Melodic Death Metal/Viking Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:05)
-02. The Memorial Fire (3:59)
-03. Fight For Decay (5:06)
-04. Everlasting Allegiance (4:49)
-05. Berserk (4:20)
-06. In the Shadow Of Remembrance (2:00)
-07. Vafthrudnismal (4:32)
-08. Independent Realm (6:48)
-09. Ride Into The Night (5:14)
-10. Waves Of Sorrow (8:08)(   Читать дальше...   )Жанр: Melodic Death Metal/Viking MetalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928723   (521709) от 17.08.2015
-
-Chris Rea - Herzklopfen (1986) [FLAC|image + .cue]<Blues Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Josephine
- 02. I Can Hear Your Heartbeat
- 03. Loving You
- 04. Ace Of Hearts(   Читать дальше...   )Жанр: Blues Rock, Soft RockПродолжительность: 01:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DD0D09E43520EB7811FB2D57E237366FA561E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928875   (521711) от 17.08.2015
-
-Young Guns - Ones and Zeros (2015) Deluxe Edition [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising Up
-02. I Want Out
-03. Infinity
-04. Memento Mori(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580FA5751F2A0A2B2DD5DBA7061403F111AAA075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928634   (521750) от 17.08.2015
-
-Tito & Tarantula - Lost Tarantism (2015) [FLAC|tracks+.cue]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When To Let It Go
-02. Back To Mexico
-03. Jokes On Me
-04. Damn Good Day To Die(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:50:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2908839B088DD45CF27A8F397F768292EEC3A3E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928880   (521752) от 17.08.2015
-
-Eric Clapton - Eric Clapton & Friends (2014) [MP3|320 кб/с]<Classic rock, Blues, Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Clapton - You Can't Judge a Book by It's Cover (2:54)
-02. Eric Clapton - Let It Rock (2:15)
-03. Eric Clapton - Putty in Your Hands (2:18)
-04. Eric Clapton - Little Red Rooster (3:36)(   Читать дальше...   )Жанр: Classic rock, Blues, GuitarПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:172420F2B9837357C1756BD8B3B5FE3512535254
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928800   (521779) от 17.08.2015
-
-Orpheus Omega - Partum Vita Mortem (2015) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521779.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Conception
-2. I, Architect
-3. Karma Favours The Weak
-4. Practice Makes Pathetic(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1639693F667FC2896A435BFBC90FC1E3732D072
 ```
 
 

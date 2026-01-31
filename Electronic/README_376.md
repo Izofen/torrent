@@ -1,3 +1,30 @@
+###  Публикация: 1215968   (751243) от 30.03.2018
+
+Ghosts - The Second Compilation by ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ (2018) [MP3|320 Kbps] <Ambient, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_751243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. insomnia_afraid 2:46
+02. niels_binias_nebuchadnezzar 8:15
+03. ecepta_regret 3:44
+04. black_paper_why 5:40(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 02:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D83710ECBB728BFB05EFB3A32B9E37BA7939C8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216295   (751342) от 30.03.2018
 
 VA - Markus Schulz & Nifra - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance>
@@ -667,33 +694,6 @@ VA - Ibiza Beats Series: Sunset Chill & Beach Lounge - 13 Releases (2007-2020) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7D86D004626745BEAD3DE6AA5A307450FB9DB57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281409   (753368) от 07.02.2019
-
-Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Industrial, Electro-Industrial, EBM, Experimental>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye On You (feat. Robert Görl) (04:30)
-02. Arbeit (05:02)
-03. Rock Me Amadeus (feat. Jimmy Urine) (04:14)
-04. Tilt (05:10)(   Читать дальше...   )Жанр: Electro-Industrial, EBM, ExperimentalПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A322782F53A9C9933373EF1382E22FCA5B7169EB
 ```
 
 

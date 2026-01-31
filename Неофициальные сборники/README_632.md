@@ -1,3 +1,30 @@
+###  Публикация: 1361727   (954163) от 20.02.2020
+
+VA - не Громкие новинки недели 56 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954163.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.CYGO - Девочка С Красивыми Глазами (2:46)
+2.Dakooka - Слова Солгать (3:04)
+3.Daria Yanina - Темнота (3:14)
+4.Dava - Последний Танец (3:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:821AAB89FBE97AC9163D42FB9FEF731949587ACA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361543   (954190) от 20.02.2020
 
 VA - Absolute Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Dancehall, Soul>
@@ -677,33 +704,6 @@ VA - Reggae On The Roof Vol.07 (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0A1C5000FC87D9364B79EE81D228B6DBB0BB6B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361387   (955814) от 19.02.2020
-
-VA - EDM Resources: Techno Dance Set (2020) [MP3|320 Kbps] <Techno, Dance, Club, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955814.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Frank Maurel - The Stage (Original Mix)
-002. David Phillips - 6ygr
-003. Rhomb - Artefact
-004. Hype Bass - Freak(   Читать дальше...   )Жанр: Techno, Dance, Club, ElectroПродолжительность: 14:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22D1454DF961B484ECA0E857E82C4C080F44D81A
 ```
 
 

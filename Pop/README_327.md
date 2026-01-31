@@ -1,3 +1,84 @@
+###  Публикация: 1092420   (939863) от 11.01.2017
+
+VA - NRJ Winter Hits (2017) 3CD [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - зимний сборник (   Читать дальше...   )CD1:
+01. Maitre Gims - Tout donner (pilule violette)  (3:23)
+02. Rag'n'Bone Man - Human  (3:19)
+03. DJ Snake feat. Justin Bieber - Let Me Love You  (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 03:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02B68C455F788AB2F719507BB467F19142F1D950
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092156   (940112) от 11.01.2017
+
+ABC - Skyscraping (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, New Romantic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Things 5:18
+02. Ask A Thousand Times 5:13
+03. Skyscraping 4:20
+04. Who Can I Turn To? 3:48(   Читать дальше...   )Жанр: Pop, Rock, New RomanticПродолжительность: 00:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D7B97977F64010B4DFA32925E1BE4BFB769D304
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092347   (940125) от 11.01.2017
+
+The Ritchie Family - The Best Disco in Town (1994) [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940125.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Rithie Family (USA) Состав: Cheryl Jaks, Cassandra Wooten, Gwen Oliver - vocals. Группа The Rithie Family была сформирована в Philadelphia, PA, USA. Названная по имени их продюсера Pitchie Rome, группа была создана Jacques Morali (также создал Village People) чтобы произвести фурор в disco и dance музыке. Их главный хит - «The Best Disco in Town».01. Brazil  (5:14)
+02. Dance With Me  (3:55)
+03. Best Disco in Town  (6:45)
+04. Arabian Nights  (7:27)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC55467AE32B7DC1DA60ECA1525689DC0DAD0C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984309   (940218) от 08.02.2016
 
 Tindersticks - The Waiting Room (2016) [FLAC|Lossless|tracks + .cue] <Chamber Pop, Indie Rock, Alternative Pop>
@@ -613,87 +694,6 @@ magnet:?xt=urn:btih:843F6108FE8EFFF9CA15370FC1757FBBE3DAD2C6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D060104FA17E59396E48012EB52A16EEAF5F046C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363607   (942429) от 28.02.2020
-
-Лариса Черникова - Тайна (1997) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайна (3:59)
-02. Тайные желания (4:08)
-03. Первый поцелуй (3:39)
-04. Вкусом шоколада (3:39)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E9B2D71D7B1AB2FADC39E8BC08BF1A475F0629
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363600   (942467) от 28.02.2020
-
-Лариса Черникова - Одинокий волк (1995) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокий волк (дубль №1) (4:01)
-02. О,боже мой (4:15)
-03. Подари мне ночь (4:07)
-04. Рука в руке (4:16)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF759D475FC8BEEA813D5C3B65B2E383218E032
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363605   (942478) от 28.02.2020
-
-Лариса Черникова - Подари мне ночь (1996) [MP3|320 Kbps] <Pop, Europop, Euro House>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_942478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подари мне ночь (4:05)
-02. Замкнутый круг (4:09)
-03. Мой танец-любовь (4:35)
-04. Найди меня в радуге дня (3:20)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:584D24BF1F358BC8357E5CEC586B5BF6E3514150
 ```
 
 

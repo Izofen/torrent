@@ -1,3 +1,30 @@
+###  Публикация: 1301178   (586268) от 10.05.2019
+
+VA - Flowers Of May (2019) [MP3|320 Kbps] <Ambient, Downtempo>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred Seeds — Eternity (Alan Watts) 06:32
+02. Audiomath — On My Way Home 06:07
+03. Ancient Core & Ajna Vitamin — Ancient Vitamin 09:15
+04. Reasonandu — Daisies (Edit Version) 05:24(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:36:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F9671C5CEC7AD70FC705E27CCFA2E935D2FF4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357933   (586282) от 02.07.2011
 
 VA - Record SUPERCHART #196 с DJ Feel (25.06.2011) [MP3|192-320 kbps]<House, Electro, Trance>
@@ -668,33 +695,6 @@ KMFDM - Salvation (2015) EP [MP3|320 кб/с]<Aggro-Industrial>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F2223F9B44D07574199E5ACD1281A679D1D48F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917594   (589108) от 12.07.2015
-
-Popof - Love Somebody (2015) [MP3|320 кб/с]<House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Words Gone (feat. Arno Joey) (03:26)
-02. Lidl Girl (04:30)
-03. Your Eyes (05:04)
-04. pack N Rollin' (04:16)(   Читать дальше...   )Производство: Hot CreationsЖанр: House, Deep HouseПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BAE8C400F3C1CE01399B7A4F40E7598DAC5C67
 ```
 
 

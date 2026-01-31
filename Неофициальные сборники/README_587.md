@@ -1,3 +1,30 @@
+###  Публикация: 1103573   (885908) от 12.02.2017
+
+VA - Empire Records - Chill Out 11 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_885908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ralf Velasquez - Heart of Glass
+02. Juls - Let You Go (Kenny Laakkinen Nudisco Remix)
+03. Pischinger & Dermota - Can't Breathe (Radio Edit)
+04. R3hab & Felix Snow Ft. Madi - Care(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7879D230FC3DDF06A39BCF6E7834FD3A1AFB52B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494799   (885930) от 09.09.2021
 
 VA - Music News vol.130 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -674,33 +701,6 @@ VA - Club Dance Ambience Vol.101 (2017) [MP3|320 Kbps] <House, Mash Up, Dance, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14EAB30CFEDC22C6B3DE0925F563FDD155EEA51B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494635   (887707) от 08.09.2021
-
-VA - National Pop Dance Music (Vol.25) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_887707.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Giorgio Gaber - Due Ninna Nanna
-002. Lisa Heider - Total Verrueckt
-003. Die Jungen Zellberger - Ein Festival Der Liebe
-004. Michelle - Mein Wunder(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 08:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B1C9CE16D7A3808D4E60DDE9FA3754A4974E57
 ```
 
 

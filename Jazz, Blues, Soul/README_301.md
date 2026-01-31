@@ -1,3 +1,192 @@
+###  Публикация: 1062995   (437836) от 15.10.2016
+
+Peggy Lee - Sings For You (1952-1955) 1992, Avid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You Do Something To Me [01:40]
+ 02.Almost Like Being In Love [01:59]
+ 03.Just One Of Those Things [02:18]
+ 04.That Old Black Magic [02:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C457C273BB3769877FB1B02F9FD2C4B81AC52A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062968   (437839) от 15.10.2016
+
+Peggy Lee - In Love Again! & In The Name Of Love (1964) 1999, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Lot Of Livin' To Do [02:37]
+ 02.I've Got Your Number [02:00]
+ 03.Little By Little [02:05]
+ 04.Got That Magic [01:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AA8D71B7E404F7879DE04C30C61FD40825B987
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063003   (437840) от 15.10.2016
+
+Coleman Hawkins - April In Paris Featuring Body And Soul (1939-1956) 1992, BMG[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Body And Soul [03:07]
+ 02.When Day Is Done [03:22]
+ 03.Bouncing With Bean [03:08]
+ 04.April In Paris [03:11](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:31:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1056044F51DA7D1735F5B8A8A8DA7058C1429A4B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062992   (437841) от 15.10.2016
+
+Peggy Lee - These Foolish Things & Other Great Standards (1945) 1995, Hallmark Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I'm Confessin' [02:41]
+ 02.September In The Rain [03:11]
+ 03.That Old Gang Of Mine [02:39]
+ 04.If I Could Be With You [01:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00439B543A017CF7435BD1A25474648793EFB36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062746   (437842) от 15.10.2016
+
+Mel Torme - Prelude To A Kiss (1958) 1996, Simitar Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dialogue [00:19]
+ 02.Something To Live For [02:46]
+ 03.Dialogue [00:12]
+ 04.I'm Getting Sentimental Over You [02:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37C08D8624FC1BE9E1CE2B18E8E35779B014177A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062982   (437843) от 15.10.2016
+
+Peggy Lee - Extra Special! & Somethin' Groovy! (1967) 1998, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hey, Look Me Over [01:56]
+ 02.When He Makes Music [02:51]
+ 03.Walking Happy [02:35]
+ 04.Oh! You Crazy Moon [02:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:837059140396E77022605E59BE0E78BDAB940030
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323295   (437874) от 03.09.2019
+
+Dave P. Moore - Fort Necessity (2019) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fort Necessity (05:08)
+02. 420 Blues (05:48)
+03. Hank's Basement (04:54)
+04. Rainin' In The Delta (04:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588B6D6CEDAFDABBEFE0E7C7983ADFEC95D3510A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249019   (438018) от 22.09.2018
 
 Katica Illenyi & Friends (2017) IKP Music [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -507,195 +696,6 @@ VA - Music For A Bachelor's Den Vol. 8: Sex Kittens In Hi-Fi - The Brunettes (19
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB38D1984A768F0797B6C6E6AF7AE55CA66192CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944507   (440375) от 07.10.2015
-
-VA - Music For A Bachelor's Den Vol. 7: Sex Kittens In Hi-Fi - The Blondes (1996) /DCC Compact Classics/[FLAC|tracks+.cue]<Vocal Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diana Dors - Roller Coaster Blues [02:36]
-02. Paula Castle - Why Can't I [03:02]
-03. Jo Stafford - The Gentleman Is A Dope [02:49]
-04. Helen Carr - My Kind Of Trouble Is You [03:56](   Читать дальше...   )Жанр: Vocal Jazz, Easy ListeningПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C9E7F2E22CAABE730265B7CCC11E9E201A6BAE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944442   (440519) от 07.10.2015
-
-Kim Simmonds And Savoy Brown - The Devil To Pay (2015) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Got Nobody (05:29)
-02. Bad Weather Brewing (04:32)
-03. Grew Up In The Blues (04:08)
-04. When Love Goes Wrong (04:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E335538E7A4E0EBB968ADB3928C2D38C079675
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409893   (440581) от 19.09.2020
-
-Linsey Alexander - My Days Are So Long (2009) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Did You Take Your Clothes Off Last Night [4:53]
-02. My Days Are So Long [4:22]
-03. I Had A Dream [5:05]
-04. I’m In Love With A Woman [5:40](   Читать дальше...   )Жанр: BluesПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CEC9EBE6E7FFEE5F995937CC4F9772EF1B1823
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944339   (440666) от 07.10.2015
-
-Leon Spencer - Bad Walking Woman (1972) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hip Shaker [03:05]
-02.Down On Dowling Street [05:01]
-03.In Search Of Love [05:00]
-04.If You Were Me And I Were You [06:04](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hammond OrganПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F755CEBED1F6EFAE13DC814223E1DE6FE9737E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944521   (440679) от 07.10.2015
-
-The Phil Woods Quartet - Warm Woods (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In Your Own Sweet Way [08:06]
-02.Easy Living [04:56]
-03.I Love You [04:51]
-04.Squire's Parlor [05:41](   Читать дальше...   )Жанр: BopПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A9489436580950CC81DB8BE90CACE19A3EB096
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570607   (440795) от 18.08.2022
-
-Art Van Damme - So Nice! (1979) 2009, Jazzclub Originals [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Accordion Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perdido [2:46]
-02. Poka dots and moonbeams [3:14]
-03. Mountain greenery [2:28]
-04. We've only just begun [3:29](   Читать дальше...   )Жанр: Mainstream Jazz, Swing, Accordion JazzПродолжительность: 00:38:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28D5A6392E496E1F786C6546F789DA045223351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409908   (440868) от 19.09.2020
-
-Super Vintage - Shining Light (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down The Road
-02. Birds On A Wire
-03. Southern Son
-04. Take A Ride(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAD76BD4D62CF13971BD287548ABF353DFBB1BE
 ```
 
 

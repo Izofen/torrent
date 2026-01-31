@@ -1,3 +1,30 @@
+###  Публикация: 1142664   (640787) от 15.06.2017
+
+Nickelback - Feed The Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_640787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feed The Machine (5:02)
+ 02. Coin For The Ferryman (4:50)
+ 03. Song On Fire (3:51)
+ 04. Must Be Nice (3:43)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A3CFE8749609DACB608FEF541C34DC2040E4605
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1142540   (641048) от 15.06.2017
 
 Iggy Pop - Preliminaires (2009) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Dixieland, Electric Blues>
@@ -667,33 +694,6 @@ Smash Into Pieces - The Apocalypse DJ (2015) [FLAC|tracks|WEB-DL]<Alt. Metal | M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A69BB24B688215039652E8E715F25F29BC3035
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291595   (652669) от 26.03.2019
-
-Wild Nothing - Indigo (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Letting Go (03:42)
-02. Oscillation (03:51)
-03. Partners in Motion (04:21)
-04. Wheel of Misfortune (04:16)(   Читать дальше...   )Жанр: Indie Rock, ShoegazeПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906C83CBC5F5B2DB093F6797B3CFB4604D39248C
 ```
 
 

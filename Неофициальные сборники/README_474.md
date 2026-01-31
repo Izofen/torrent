@@ -1,3 +1,30 @@
+###  Публикация: 1020061   (745303) от 26.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 11 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pussycat - Georgie ( 1976 )
+02. Julian - Straight To My Heart ( 1986 )
+03. Righeira - Vamos A La Playa ( 1983 )
+04. Scotch - Born To Kill ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2154B47D8B4829DE108A94EA1F414FF6615190C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282498   (745394) от 12.02.2019
 
 VA - Chill Lounge Selecta: Tropical Edition (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
@@ -668,33 +695,6 @@ VA - German Top 50 Deutsche Dance Charts (30.05.2016) [MP3|40-320 кб/с] <Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:114139FF79CD777D72523FBF132851914131F8AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020125   (746828) от 25.05.2016
-
-VA - Running Workout Moment Of Music (2016) [MP3|252-320 кб/с] <Club, House, Bigroom, Stadium Dutch, Bounce, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mattn & Futuristic Polar Bears - Cafe Del Mar 2016 (Dimitri Vegas & Like Mike Vocal Mix) 03:45
-02. D&W & Dan Dobson - Fringe (Original Mix) 05:54
-03. Haimss Van Vector - Z.O.N.G.O. Invasion (Original Mix) 04:48
-04. Ayhan Dogan - Drop The Bass 04:38(   Читать дальше...   )Жанр: Club, House, Bigroom, Stadium Dutch, Bounce, ElectroПродолжительность: 08:27:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D29AC975E4A0076D6223E1F1740B094E9719E78
 ```
 
 

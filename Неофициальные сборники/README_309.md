@@ -1,3 +1,30 @@
+###  Публикация: 1241089   (521149) от 16.08.2018
+
+VA - Летняя сессия 2018 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Funky House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521149.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01-Diana Ross - I'm Coming Out _ Upside Down 2018 (Eric Kupper Mix)
+02-Dolls Combers - Let the music play (DJ Che MashUp)
+03-Puro Beat feat. Henry Floyd - Keep on Movin (Extended Mix)(   Читать дальше...   )Жанр: Club House, Funky House, DanceПродолжительность: 02:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11EAD5B8FF82993C8E17B381FD2065CE4600E20A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314117   (521208) от 12.07.2019
 
 VA - Ukrainian Hits - 33 Tracks (Volume 13) (RU) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
@@ -683,33 +710,6 @@ VA - Amazing Vocal Sound - Endless Summer 10 (2018) [MP3|320 Kbps] <House, Progr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34917505CBB74E0B05EA0E00A29492ED74BD06C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928420   (522219) от 16.08.2015
-
-VA - The Best Dance Hits Of 90's-2 (2015) [MP3|320 кб/с]<Pop, Eurodance, House,Techno, Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522219.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 La Bouche-Be My Lover 4:01
-002 Masterboy-Feel The Heat Of The Night 6:43
-003 Sash!-Adelante 6:49
-004 Jam & Spoon-Right In The Night(Fall In Love With Music) 3:47(   Читать дальше...   )Жанр: Pop, Eurodance, House,Techno, TranceПродолжительность: 16:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60F1D30122D7DEE9608F826206A4452CE3907E62
 ```
 
 

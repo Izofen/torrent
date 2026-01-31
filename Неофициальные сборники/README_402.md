@@ -1,3 +1,30 @@
+###  Публикация: 1031463   (651804) от 04.07.2016
+
+VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Armin van Buuren Extended Remix) 6:11
+002. Talla 2XLC & Jilliana Danise -  What Could Be Better (Original Mix) 6:23
+003. Bobina & Kyle Richardson -  Love Is the Answer (Dimension Remix) 5:11
+004. Mhedi Belkadi -  Leiki (Original Mix) 5:14(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA34A8304C67A49747DEC41157F6A26A6FD7504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031548   (651805) от 04.07.2016
 
 VA - Русская Дискотека ХХ Века - 21 (2010) [MP3|256-320 Kbps]<Disco, Dance, Pop>
@@ -698,33 +725,6 @@ VA - Зарубежная Дискотека ХХ Века - 51 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:487B772467ED98FC3CD7776957CE5FC50B55658A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031538   (652153) от 04.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 58 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bay City Rollers - Give A Little Love ( 1975 )
-02. Paul Parker - Too Much To Dream ( 1983 )
-03. Europe - Carrie ( 1986 )
-04. Mozzart - Devil's Rendezvous ( 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A33188B044E81201803B2DD49B170910A757790
 ```
 
 

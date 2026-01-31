@@ -1,3 +1,81 @@
+###  Публикация: 981681   (951404) от 01.02.2016
+
+Celine Dion - Celine Une Seule Fois / Live 2013 (2014) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All By MyselfЖанр: Pop, Vocal, BalladПродолжительность: 02:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD22E5A811F4AC9CF0D47B26DE0A1A7298E2A6A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 858018   (951638) от 09.01.2015
+
+VA - Best Pop Ballads (1999) 2CD /Polymedia, LC 00136/ [FLAC|Lossless]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник от не очень известной фирмы Polymedia вобрал в себя наиболее известные лирические поп-произведения на момент своего издания (1999 год). Сегодня некоторые из них уже подзабыты, но большинство по прежнему звучат на многих поп и рок радиостанциях. Да и в личных коллекциях занимают не последнее место.CD2:
+01. Black - Wonderful Life  (4:48)
+02. Bonnie Bianco - Miss You  (4:54)
+03. Glenn Medeiros - Nothing's Gonna Change My Love For You  (3:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C675C19F59FA6E9B45DF630E51435F601D797905
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361893   (952178) от 21.02.2020
+
+IOWA - #людимаяки (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_952178.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Маякни мне
+2. Росток
+3. В танце
+4. Почему так?!(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDDE1CA2CC0EC33B2EACB1205B8FF2104250CFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361897   (952227) от 21.02.2020
 
 Полиграф ШарикOFF - Криминальное чтиво (2020) [MP3|320 Kbps] <Pop>
@@ -620,87 +698,6 @@ Mascara - See You In L.A. (1979) Reissue CD, 2012, Expansion [MP3|320 Kbps] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8325B5C8FC6BD35672A3DFCEDFE3A495B4B8158F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980362   (955973) от 29.01.2016
-
-Pet Shop Boys - Very (1993) Licence to EMI Records Ltd. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_955973.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Can You Forgive Her?
-2.I Wouldn’t Normally Do This Kind of Thing
-3.Liberation
-4.A Different Point of View(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17EDF1DEC034A0084B99FFC1E35A2031D528D29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980472   (956062) от 29.01.2016
-
-ABBA - Super Trouper (1980) West Germany 1st Press, 15 November 1982 [FLAC|Lossless|image + .cue] <Pop Music>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Super Trouper    [04:11.90]
-02. The Winner Takes It All    [04:55.26]
-03. On and on and On    [03:40.62]
-04. Andante, Andante    [04:39.57](   Читать дальше...   )Жанр: PopПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687BF6BAA867AE1F01C72653F0CEA2D638628C45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980468   (956154) от 29.01.2016
-
-Nicole Scherzinger - Killer Love (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poison [03:47]
-02. Killer Love [03:52]
-03. Don't Hold Your Breath [03:17]
-04. Right There [04:02](   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:11:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0250677A7D62F3B56FF6A0E13052256136ADE02
 ```
 
 

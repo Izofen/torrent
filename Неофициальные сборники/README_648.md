@@ -1,3 +1,36 @@
+###  Публикация: 607260   (991923) от 27.01.2013
+
+VA - Исаак Шварц. Песенка Верещагина (Лучшие песни, романсы и музыка из кинофильмов) (2003) [MP3|320 кб/с]<поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ваше благородие, госпожа удача! (к/ф "Белое солнце пустыни", исп. П.Луспекаев)
+02 Соломенная шляпка (к/ф "Соломенная шляпка", исп. А.Миронов)
+03 Песенка об утраченных надеждах (к/ф "Соломенная шляпка", исп. Л.Гурченко, З.Гердт)
+04 Песенка влюбленных (к/ф "Соломенная шляпка", исп. Е.Ветлова, А.Колпашников)
+05 Женюсь (к/ф "Соломенная шляпка", исп. А. Миронов)
+06 Песенка менестрелей (к/ф "Соломенная шляпка", исп. Е.Ветлова, А.Колпашников)
+07 Прелюдия (к/ф "Мелодии белой ночи", исп. Симфонический оркестр ГАБТ СССР, дир. А.Лазарев)
+08 Прогулка по ночному городу (к/ф "Мелодии белой ночи", исп. Симфонический оркестр ГАБТ СССР, дир. А.Лазарев)
+09 Песенка кавалергарда (к/ф "Звезда пленительного счастья", исп. В.Качан)
+10 Песня Минского (к/ф "Станционный смотритель", исп. Н.Михалков)(   Читать дальше...   )Жанр: попПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA95EAF0FF4395D85B4335BC6DE92F4533EF291F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353445   (991971) от 18.01.2020
 
 VA - The Official UK Top 40 Singles Chart 17.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -755,39 +788,6 @@ VA - Trance. Vocal Fascination 43 (08.01.2013) [MP3|320 кб/с]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DE4E647DDA63994B24A8B5E157ABCA49AFD3B78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603648   (995322) от 21.01.2013
-
-VA - Vocal Passion Vol.51 (2012) [MP3|320 kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Devant feat. Emma Hewitt - Take Me With You (05:51)
-02. Omnia & IRA - The Fusion (Original Mix) (06:08)
-03. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Club Mix) (05:47)
-04. Susana & Rex Mundi - All Time Low (Original Mix) (08:03)
-05. The Attic feat. Oh Laura - Release Me (Kevin Sunray Remix) (07:20)
-06. Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix) (06:40)
-07. Will Holland feat. Jeza - Every Heartbeat (Beat Service Intro Mix) (06:08)
-08. Protoculture - Ode To The Ocean (Original Mix) (07:54)
-09. W&W feat. Bree - Nowhere To Go (Shogun Remix) (06:36)
-10. Roger Shah feat. Inger Hansen - Dance With Me (Extended Mix) (06:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCB5DDE4D478C67BA848996977B70A7B30BE9A5
 ```
 
 

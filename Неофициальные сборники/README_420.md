@@ -1,3 +1,30 @@
+###  Публикация: 1223492   (673465) от 05.05.2018
+
+VA - The Official UK Top 40 Singles Chart 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris, Dua Lipa - One Kiss
+02. Ariana Grande - No Tears Left to Cry
+03. Drake, Big Freedia, 5thward Weebie - Nice For What
+04. Lil Dicky - Freaky Friday (feat. Chris Brown)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030327   (673523) от 30.06.2016
 
 VA - Disco Dance 90s (2016) [MP3|320 Kbps] <Dance, Disco, Pop>
@@ -665,32 +692,6 @@ VA - Русская Дискотека ХХ Века - 4 (2010) [MP3|320 Kbps]<D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF403ED862E954D7E356B090AEBDAC6A39227325
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030533   (674706) от 30.06.2016
-
-VA - Total Aerobic Workout (110-130 BPM) (2016) [MP3|192-320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenan G. - Clothes
-02. DJ Bobo - Fiesta Loca
-03. DJ Gollum feat. DJ Cap vs. NICCO - Together Forever (Easter Rave Hymn 2k16)Жанр: DanceПродолжительность: 03:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964DDA7FFF36C7B65848050D2FA1C8567FE4346A
 ```
 
 

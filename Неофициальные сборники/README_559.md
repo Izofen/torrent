@@ -1,3 +1,30 @@
+###  Публикация: 1004238   (840312) от 05.04.2016
+
+VA - Progressive Beats 008 (2016) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_840312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandr Zavesa - Dynamics (Original Mix) 04:52
+02. Arseny Jorgan - Weird Ball (Original Mix) 08:33
+03. BeppeMa - Progetto 5 (Original Mix) 08:07
+04. Bourne - Destroyer (Original Mix) 05:24(   Читать дальше...   )Жанр: Trance, Progressive House, Tech HouseПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D453D9ACAC42545A2ADC12B7C035D4ACC1DB7558
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309688   (840659) от 16.03.2011
 
 VA - Как Это Было. Популярные Хиты 80-Х 90-Х. Выпуск 2 (2011) [MP3|256 kbps]<Pop/Disco>
@@ -647,33 +674,6 @@ VA - Музыкальная волна (2011) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A482DFBBEE38F43C0954F099919617EC51B731EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378895   (842793) от 27.04.2020
-
-VA - Весна на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842793.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.The Weeknd - Blinding Lights (3:21)
-2.Artik & Asti - Девочка Танцуй (4:21)
-3.Клава Кока - Покинула Чат (2:53)
-4.Trevor Daniel - Falling (2:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21F49E2A233EFB0B4F65D13267277376B684CC1
 ```
 
 

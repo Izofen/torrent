@@ -1,3 +1,30 @@
+###  Публикация: 1014952   (775841) от 09.05.2016
+
+VA - Progressive Beats Best of Music Vol. 2 (2016) [MP3|320 кб/с] <Trance, House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmic Gate - Exploration Of Space (Mark Sixma Remix) 4:21
+002. JES - Dreamweaver (Roger Shah Club Mix) 8:06
+003. Denis Kenzo Feat. Vika - What I See (Original Mix) 7:00
+004. The Chainsmokers - New York City (Dash Berlin Extended Remix) 5:27(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 09:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C98ECF9CC7D12F5FE3943B18387F1C5B6ABA730
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014921   (775846) от 09.05.2016
 
 VA - 40 Top Hits DJ Boom (2016) [MP3|320 кб/с] <House, Trance, Progressive>
@@ -668,33 +695,6 @@ VA - Absolutely Chillout: Chill Vibes (2016) [MP3|320 кб/с] <Downtempo, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:326E070816BB038AB9AB3F734EEF24847B46E7F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014545   (776204) от 08.05.2016
-
-VA - Holiday Atmosphere: Beach Trance Progressive (2016) [MP3|320 кб/с] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776204.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Acoustic Beam - Expectation of Love
-002. Sodality - Limnara (Original Mix)
-003. Alex Numark - Summer Memories
-004. Nikolauss & Valexki - Shakti (Original Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 10:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7CD056A073D812E0FC6335858DFFA42197C379
 ```
 
 

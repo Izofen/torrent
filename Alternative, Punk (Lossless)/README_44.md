@@ -1,3 +1,30 @@
+###  Публикация: 1303590   (570965) от 22.05.2019
+
+Faye Webster - Atlanta Millionaires Club (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Room Temperature
+02. Right Side of My Neck
+03. Hurts Me Too
+04. Pigeon(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE2121D4DF38DB43F59435519F958C8EA531CAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303117   (573033) от 21.05.2019
 
 The Dream Syndicate - These Times (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -669,33 +696,6 @@ Kitchie Kitchie Ki Me O - новая группа и первый альбом �
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301185   (586264) от 10.05.2019
-
-Lydia Ainsworth - Phantom Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamonds Cutting Diamonds
-02. Tell Me I Exist
-03. Can You Find Her Place
-04. Edge Of The Throne(   Читать дальше...   )Жанр: Electronic, AlternativeПродолжительность: 00:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8298C3D82D6A12697EF22377498CDEE5236A51
 ```
 
 

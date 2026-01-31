@@ -1,3 +1,325 @@
+###  Публикация: 1569520   (451508) от 13.08.2022
+
+Radioactive - xXx (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monkey On Our Backs (4:28)
+02. The Deed Is Done (3:41)
+03. Remember The Ghosts (3:54)
+04. Written In The Scars (4:50)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9676208A282A7A47BFDDEA21DAA28F8F8880219
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569273   (451509) от 13.08.2022
+
+Kasabian - The Alchemist's Euphoria (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Indie Rock, Neo-Psychedelia, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - ALCHEMIST [00:02:39]
+02 - SCRIPTVRE [00:03:49]
+03 - ROCKET FUEL [00:03:02]
+04 - STRICTLY OLD SKOOL [00:03:07](   Читать дальше...   )Жанр: Indie Rock, Neo-Psychedelia, ElectronicПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C1E0643795A86F83C60681E05B00AC6B87C344
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569544   (451517) от 13.08.2022
+
+James House - The L.A Tapes: Classic Rock Years (2022) 2 x CD, Compilation, Remastered, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Rock Classics>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451517.jpg" />
+</div>
+
+
+###  Подробнее
+
+James House наиболее известен как кантри-звезда благодаря своим трем хитам, записанным для MCA и Epic Records в период с 1989 по 1994 год, а также номинациям на премию «Song Of The Year» таких исполнителей, как Dwight Yoakam (“Ain't That Lonely Yet) и Martina McBride (“A Broken Wing”).
+Но до этого James House, дебютировав сольно на Atlantic Records в 1983 году с (   Читать дальше...   )Жанр: Melodic Rock ClassicsПродолжительность: 01:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07EE44A7FC2444B12F62FD5CD1655E4FC54305F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569584   (451520) от 13.08.2022
+
+Crematory - Inglorious Darkness (2022) [FLAC|Lossless|image + .cue] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451520.jpg" />
+</div>
+
+
+###  Подробнее
+
+Заслуженные немецкие готик-металлисты выпустили свой новый альбом01. Inglorious Darkness
+02. Break Down The Walls
+03. Trümmerwelten
+04. Rest In Peace(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF2E894459F5F832ECBF4FD0A5B4A28153F0524
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569288   (451526) от 13.08.2022
+
+Restless Spirits - Second To None (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Need A Lil' White Lie
+02. Hey You
+03. Dreams Of The Wild
+04. Until The End Of Time(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A011DFA8DEA4A2BBBF1B66153B25998D404AD556
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408951   (451598) от 14.09.2020
+
+Black Rose Maze - Black Rose Maze (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Dark (03:33)
+02. Laws Of Attraction (feat. Jeff Scott Soto) (04:47)
+03. Let Me Be Me (04:27)
+04. Free (03:29)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:049250DA0C4F8C7B1063459253A08F948B0DC845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408965   (451602) от 14.09.2020
+
+Arctic Rain - The One (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Of My Life (04:15)
+02. Lost (04:01)
+03. Friends (04:09)
+04. Night After Night (04:34)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5AC71A7027EDFE4AFEFE0C932E6670D23614A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942955   (451610) от 02.10.2015
+
+Children Of Bodom - I Worship Chaos (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Hurt (04:29)
+02. My Bodom (I Am The Only One) (04:19)
+03. Morrigan (05:07)
+04. Horns (03:25)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18AE3048FB53284DC3D7FC9733C325D1A40636AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942853   (451642) от 02.10.2015
+
+Gloryhammer - Space 1992: Rise of the Chaos Wizards (2015) Limited Edition 2CD [FLAC|image+.cue]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451642.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+
+01. Infernus ad Astra
+02. Rise of the Chaos Wizards(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B01ABEF4553EC3F7FCCCEBF232876499F9FA393
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569515   (451649) от 13.08.2022
+
+H.E.A.T - Force Majeure (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The Rhythm (4:11)
+02. Nationwide (3:42)
+03. Tainted Blood (3:50)
+04. Hollywood (3:32)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB415B4709E29415734292BDD910BD8B4728B24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569332   (451655) от 13.08.2022
+
+Nordic Union - Animalistic (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On This Day I Fight
+02. In Every Waking Hour
+03. If I Could Fly
+04. Riot(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB7A586C82626928E64187DFA85398A24FB79D8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569352   (451656) от 13.08.2022
+
+Def Leppard - Hysteria (1987) [OGG|485 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Women (5:41)
+02. Rocket (6:34)
+03. Animal (4:02)
+04. Love Bites (5:46)(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8FAA1151061AD8EED8959FC42AC56E7A0A16CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569474   (451662) от 13.08.2022
 
 Sunstorm - Afterlife (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -371,321 +693,6 @@ Weesp - 4CD: (The Void/Black Sails/Crystal Clean Waters/Боль) (2015-2020) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56310340CB3F7527B655ECE2D7E940369A0844B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408847   (451831) от 14.09.2020
-
-Fixation - Global Suicide (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neurosis [00:05:10]
-02. Survive [00:05:17]
-03. Bloodline [00:04:09]
-04. What We Have Done [00:05:28]Жанр: MetalcoreПродолжительность: 00:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF65EC16D92921B7829F258033CBA5A8E97EA7DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408802   (451840) от 14.09.2020
-
-Soulwound - The Suffering (2020) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waste of Life [00:04:10]
-02. Ritual Cleansing [00:04:51]
-03. Pleasures [00:06:02]
-04. The Cult of I [00:04:28](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA72B47FCD563FE449730A0CFE9BC8F841C6EE02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569613   (451898) от 13.08.2022
-
-Fogteeth - Headspace (2022) [MP3|320 Kbps] <Psychedelic Stoner Rock, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delirium Man
-02. Desert Visions
-03. The Cosmic Experience
-04. Mother Spider(   Читать дальше...   )Жанр: Psychedelic Stoner Rock, Space RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD2E135AB2565FA25D44802D6A05A267C487ABA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569572   (451899) от 13.08.2022
-
-Starchaser - Starchaser (2022) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Starchaser, новая группа, созданная бывшим гитаристом Tad Morose Кеннетом Йонссоном, объявила о предстоящем выпуске своего одноименного дебютного альбома 6 мая 2022 года на лейбле Frontiers Music Srl. Первоначально музыкальное путешествие, в которое отправился Кеннет, должно было стать сольным альбомом, но превратилось в совершенно новую группу после того, как химия (   Читать дальше...   )01. Intro
-02. Starchaser
-03. Tokyo
-04. Bringer Of Evil(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A16459F2D1D8739FF00C884E294C2B93818D14B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569418   (451902) от 13.08.2022
-
-Atramentum - Through Fire, Everything is Renewed (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I (00:02:57)
-02 - II (00:06:29)
-03 - III (00:06:24)
-04 - IV (00:06:20)(   Читать дальше...   )Жанр: Black Metal, Progressive Death MetalПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6C615D6087504B4EF4F8E0724557F3CB92D87A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569604   (451903) от 13.08.2022
-
-Pezu - Dinossauro de Percata (2022) EP [MP3|320 Kbps] <Heavy Rock, Stoner, Punk, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
-02 Dinossauro de Percata
-03 Joao Barata
-04 Desinteria(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Punk, ExperimentalПродолжительность: 00:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A77ACDB134914DDC07D153AD431A54F129924A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569541   (451904) от 13.08.2022
-
-Motherslug - 2 Relises (2014-2015) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devils Rise [00:06:27]
-02. Rollin' [00:05:52]
-03. Trippin' On Evil [00:07:33]
-04. Space Man [00:08:35](   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 2 CD, 00:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CCD3E4EDDB421159EADD168CFAC56B9C02A0B6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569525   (451905) от 13.08.2022
-
-Aurotanic - Ethereal Gate (2020) (EP) [FLAC|Lossless|image + .cue] <Black Metal, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old And Early UniverseЖанр: Black Metal, AmbientПродолжительность: 00:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1401908C08D469B92613124BB319174C7858045F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551580   (452238) от 24.09.2012
-
-Three Days Grace - 10 релизов (2003-2011) [MP3|128-320 кб/с]<Rock/Alternative/Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock/Alternative/Post-Grunge
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1D23ED9C3B427E4984FE203083A2DBB1657D55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322133   (452383) от 27.08.2019
-
-Metallica - 2019/07/21 Moscow, RUS - LUZHNIKI STADIUM (2019) [MP3|256 Kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452383.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Hardwired
-02. The Memory Remains
-03. The Four Horsemen(   Читать дальше...   )Жанр: MetalПродолжительность: 02:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:001A3068193F2FCF16E42CEADF0A4B5B847EFBC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163111   (452404) от 04.09.2017
-
-VA - Greatest Ever Soft Rock (2017) [MP3|320 Kbps] <Rock, Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock, Soft RockПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9368A87C678A92245A8D7FC3B14367BFFD3EEF7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322043   (452487) от 27.08.2019
-
-Tarja (Tarja Turunen) - My Winter Storm (2007) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ite, missa est[0:27]
- 02 - I Walk Alone[3:53]
- 03 - Lost Northern Star[4:23]
- 04 - Seeking for the Reign[0:59](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CBF09C399DEE2BAA255ED7B505A841DF47ADA7
 ```
 
 

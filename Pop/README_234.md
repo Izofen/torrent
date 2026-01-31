@@ -1,3 +1,84 @@
+###  Публикация: 1292721   (645196) от 30.03.2019
+
+Fire - Fire (1978) LP [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deeper In Love (4:08)
+02. C'mon, Let's Do It (3:06)
+03. It's Been So Long (2:34)
+04. Wrap Your Arms Around Me (3:48)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D0ADE28D89FA7C91888EA823525AF58EF35F2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292618   (645286) от 30.03.2019
+
+Rick Van Der Linden - GX 1 (1977) LP [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GX 1 (4:28)
+02. Mystic Eyes (3:42)
+03. Double Flute X 2 (4:18)
+04. Clouds (3:28)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D24FA9D6A7859E9CD60498A56DD67FE23AA3F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292671   (645288) от 30.03.2019
+
+Salvador Sobral - Paris, Lisboa (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 180, 181 (catarse) [00:03:21]
+02. Pressagio [00:04:13]
+03. Cerca del mar [00:04:33]
+04. Ela disse-me assim [00:03:45](   Читать дальше...   )Жанр: PopПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC026412669F59C6628BFDF764536333F2B60332
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518042   (645341) от 02.07.2012
 
 T.Ark - H.A.P.P.Y. Radio (2010) [APE|Lossless]<Italo-Disco>
@@ -626,87 +707,6 @@ Miley Cyrus - Attention: Miley Live (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C0B75404D46E9BAB33DBEFF080D74CA565A337F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292480   (646814) от 29.03.2019
-
-Sumeria - Golden Tears (1977) LP [MP3|320 Kbps] <Electronic, Downtempo, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance And Leave It All Behind You (4:47)
-02. The Encounter (5:27)
-03. Cosmic Traveller (2:58)
-04. Somewhere, Elsewhere (4:42)(   Читать дальше...   )Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:35:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E55389E4B1B32A6B9C327FB93976A13D948B2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292308   (646815) от 29.03.2019
-
-Heat Exchange - One Step Ahead (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор продюсер и аранжировщик - Brian Bennett. Считается лучшим ударником "The Shadows". За первые 10 лет он написал или соавтор более 100 треков для них, а также более 20 композиций для "Cliff Richard"...01. You're Gonna Love This (7:07)
-02. Shake Down (6:55)
-03. Love Is the Reason (7:58)
-04. One Step Ahead (6:25)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196E90891F4067D443187A376749620F170C9409
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227403   (646827) от 26.05.2018
-
-Orient Express - A Desert Fantasy (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646827.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Fantasy (12:53)
-02. Nights of Roses (3:40)
-03. Desert Disco (5:42)
-04. Ali's Funk (3:16)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A55CF74DAA4902FB12C8992C498C669FF07D9CD
 ```
 
 

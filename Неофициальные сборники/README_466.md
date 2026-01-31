@@ -1,3 +1,36 @@
+###  Публикация: 324335   (732124) от 16.04.2011
+
+VA - Super Хитовый from AGR (2011) [MP3|320 kbps]<Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dash Berlin Feat. Emma Hewitt - Disarm Yourself (Club Mix)
+02. Jasper Forks - Alone (Radio Edit)
+03. Bobina & Betsie Larkin - You Belong To Me
+04. Dj Kopernik - Confusionland 2011
+05. Nitrous Oxide Feat. Aneym - Far Away (Club Mix Edit)
+06. Moonbeam Feat. Avis Vox - We Are In Words (Ashley Wallbridge Vocal Remix)
+07. Fontan - Мне Бы Сейчас Полетать
+08. Deportrance - Sunset In Dubai (Original Mix)
+09. Peter Luts Feat. Jerique - Cant Fight This Feeling (Radio Edit)
+10. Haris C - Time To Say Goodbye (Sly One Vs. Jurrane Remix)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 06:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F1DB4474EA68511A7B99732E168DAC67824115
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283883   (732151) от 18.02.2019
 
 VA - German Top 50 Party Schlager Charts 18.02.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
@@ -666,33 +699,6 @@ VA - Music News vol.30 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7F3F288045806785504F1C4A9C3641BBD47A805
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398923   (734305) от 29.07.2020
-
-VA - Beatport Future House: Sound Pack #138 (2020) [MP3|320 Kbps] <Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734305.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Don Alpha - Follow The Loves
-002. Klartraum - Orchidee
-003. Mind Of One - Mystic
-004. Max Tresher - Trippin(   Читать дальше...   )Жанр: Future HouseПродолжительность: 08:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83004F791FFE6A32E3A57B40B46CF095A0FFC602
 ```
 
 

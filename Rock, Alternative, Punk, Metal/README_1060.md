@@ -1,3 +1,329 @@
+###  Публикация: 1505046   (806439) от 26.10.2021
+
+Александр Невский - Русью Вскормлен (2021) Limited Edition, Remastered [FLAC|Lossless|image + .cue] <Russian Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро 0:52
+02. Русью вскормлен 5:16
+03. Вкус речи родной 5:00
+04. Александр Невский 5:05(   Читать дальше...   )Жанр: Russian Heavy MetalФормат: CD, Album, Limited Edition, Remastered
+
+13 мая 2021 года вышло переиздание единственного альбома советской хэви-метал группы Александр Невский. Релиз пластинки состоялся на лейбле OldWise Records и приурочен к 800-летию со дня рождения Великого Князя Киевского Александра Ярославича Невского.
+(   Читать дальше...   )Продолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6838DB4EF3A792E8A506EABCA619BF5FE0385F69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505118   (806442) от 26.10.2021
+
+Павел Колесник (Август) - Всему свой срок (2017) Limited Edition, Reissue, Remastered, 2020, OldWise Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806442.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Всему Свой Срок	4:54
+2		На Гребне Волны	5:59
+3		Время Покажет	5:10
+4		Ну И Что	4:20(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901F912CF16499B7A330AEC9A9852F662117C69C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504977   (806446) от 26.10.2021
+
+1914 - Where Fear and Weapons Meet (2021) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Black Metal, Melodic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War In [00:01:11]
+02. Fn .380 Acp#19074 [00:05:54]
+03. Vimy Ridge (In Memory Of Filip Konowal) [00:05:11]
+04. Pillars Of Fire (The Battle Of Messines) [00:07:04](   Читать дальше...   )Жанр: Black Metal, Melodic Death, Doom MetalПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDFDFBA13DE3847ECD6462EE038D7BC05E711AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505157   (806511) от 26.10.2021
+
+Little Gerard L'Her (ex. Rockets) - A Perfect World (2008) CD [MP3|320 Kbps] <Electronic, Prog Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806511.jpg" />
+</div>
+
+
+###  Подробнее
+
+'Little' Gérard L'Her - певец, бас-гитарист, композитор и основатель исторического образования Rockets. Первый сольный альбом под названием "A perfect world" включает в себя десять композиций, в т.ч. новую версию Legion of Aliens.01. Everybody (4:10)
+02. Up And Down (3:04)
+03. How (3:29)
+04. Passing By (4:27)(   Читать дальше...   )Жанр: Electronic, Prog Rock, Synth-popПродолжительность: 00:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DF6139299F3601D74B4A11F14C7BC594623618
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505200   (806512) от 26.10.2021
+
+Winter Rose - Winter Rose (1989) Japanese Edition, Reissue, 1997, Victor [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winter Rose (в переводе с англ. — «зимняя роза») — канадская хард-рок-группа, образованная в Монреале. Группа выпустила лишь одноимённый альбом в 1989 году, вскоре после чего развалилась. В 1997 году альбом был переиздан немецким лейблом InsideOut Music.
+
+Группа появилась в середине 1980-х и называлась Hope. В её состав входили гитарист Ричард Чики и (   Читать дальше...   )01. Asylum City (3:34)
+02. I'll Never Fall In Love Again (3:49)
+03. Rough Boys (4:26)
+04. Dianna (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4E63D8DF8044C34DA5BCA9136FC9ED801B3AD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505013   (806521) от 26.10.2021
+
+Silent Opera - Reflections (2014) [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Gate of a Deep Slumber
+02. Nightmare Circus
+03. Dorian
+04. The Great Chessboard(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FC62059AA8EB602BFD2F7186D6AC6F552E6BA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505281   (806523) от 26.10.2021
+
+Galahad Electric Company - Soul Therapy (2021) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Therapy 04:14
+02. All That Glitters 06:50
+03. Gone To Ground 05:29
+04. Fluidity 03:54(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DA256BC52D273930026D7A4BC4C7CAF8F8832F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884321   (806782) от 03.04.2015
+
+Александр Ф. Скляр - Годы и песни. Лучшее (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песни моряков
+02. Моя жизнь
+03. Люба-бабавая
+04. Вася-совесть(   Читать дальше...   )Жанр: RockПродолжительность: 03:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21D59EF278A8F85E59563C010799097D875E042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119701   (806963) от 28.03.2017
+
+Александр Иванов - Этой весной (2017) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Этой весной
+02. Друг мой
+03. Городские цветы
+04. В облаках у водопадаЖанр: RockПродолжительность: 00:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEAC5D93142B95D7DFBA391DF2C7E8848EDA3385
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 199083   (807004) от 08.05.2010
+
+Electric Light Orchestra - Flashback (box set compilation) (2000) [MP3|320 kbps]<Progressive & Art-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Progressive & Art-RockПродолжительность: 03:33:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119592   (807094) от 28.03.2017
+
+Ольга Арефьева и Ковчег - Ангел и девочка (2017) [FLAC|Lossless|tracks+ .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полночь
+02. Пирамида Хео
+03. Моа-моа
+04. Двойное дно(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E84002E9D96B49DBA5CF50DE48846757A609CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884540   (807198) от 03.04.2015
+
+Agnostic Front - The American Dream Died (2015) [MP3|320 кб/с]<Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (02:01)
+02. The American Died (01:31)
+03. Police Violence (00:58)
+04. Only In America (01:39)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1855C1DB0E40F66CCB65A64DA582CF674C0D7CBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119498   (807334) от 28.03.2017
 
 B-Movie - The Age Of Illusion (2013) [FLAC|Lossless|image + .cue] <Electronic Pop Rock, Synthpop, Indie Rock>
@@ -374,327 +700,6 @@ magnet:?xt=urn:btih:9B1F51E05A4550806DD76E3E1A966E584128DF38
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8413FDA161A63128719F99C354F3E84D93E34EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503137   (807950) от 25.10.2021
-
-Five Finger Death Punch - 11 Albums (2007-2020) 17 CD [FLAC|Lossless|Web-DL|tracks + .cue] <Groove metal, Nu metal, Alternative metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская грув-метал-группа, образованная в 2005 году в Лос-Анджелесе, Калифорния, Золтаном Батори, гитаристом венгерского происхождения, в прошлом — басиста U.P.O. Кроме Батори в состав группы входят бывший вокалист Motograter и Ghost Machine Айвен Муди, барабанщик Чарли Энген, басист Крис Кейл и гитарист Энди Джеймс. (Wikipedia)2007 - The Way Of The Fist (3 издания)
-2009 - War Is The Answer (2 издания)
-2011 - American Capitalist (2 издания)
-2013 - The Wrong Side Of Heaven And The Righteous Side Of Hell (Deluxe edition)Жанр: Groove metal, Nu metal, Alternative metalПродолжительность: 14:48:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835F8B50E9C7767ABFDB082DC00920930F3EFFBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383809   (808002) от 17.05.2020
-
-Def Leppard - Too Many Jitterbugs (B-Sides and Rarities) (2020) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride Into The Sun (The 'Def Leppard E.P.' Version) [3:06]
- 02. Getcha Rocks Off (The 'Def Leppard E.P.' Version) [3:53]
- 03. The Overture (The 'Def Leppard E.P.' Version) [7:59]
- 04. Wasted (Early Version) [3:17](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D4C722CE23F427513DE11B6D1B3CBF0DEF0E9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009765   (808121) от 22.04.2016
-
-Choco (ex. Eloy) - Bubbles In Your Brain? (2014) [FLAC|Lossless|image + .cue]<Progressive rock, New Age>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808121.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive rock, New AgeПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42C27433A0F2CFC118638100CFC2C6BB9ED48223
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198506   (808157) от 11.01.2018
-
-Black Veil Brides - Vale (2018) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incipiens Ad Finem
-02. The Last One
-03. Wake Up
-04. When They Call My Name(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FCAC26C31648C6D40F8DBEC893F608B2648E70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505018   (808207) от 25.10.2021
-
-Кипелов - 55 (2018) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Валерий Александрович Кипелов (12 июля 1958 года, Москва, СССР) — советский и российский рок-музыкант, певец, композитор и автор песен, работающий в основном в жанре хеви-метал. Известен как один из основателей и первый вокалист рок-группы «Ария» с 1985 по 2002 год. С 2002 года возглавляет собственную группу «Кипелов». Лауреат премии «RAMP» 2007 года в номинации (   Читать дальше...   )CD - 1:
-01. Интро / На распутье (6:32)
-02. Власть огня (4:48)
-03. Вавилон (6:01)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461DAF46240D84D50B0B683FFB91821E8D9ED418
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504613   (808214) от 25.10.2021
-
-Тінь Сонця - Тернистий Шлях (2021) [MP3|192 Kbps] <Folk Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808214.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:46] 01. Спалена земля
-[4:30] 02. Над прірвою
-[4:50] 03. У надрах снів
-[4:13] 04. Моя Україна(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CE911B1E569EF32B10B11D4ACE42A76E49CC5EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009477   (808237) от 22.04.2016
-
-This Ending - Garden Of Death (2016) [MP3|320 кб/с] <MDM>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torrent Of Souls
-02. Blackened Shrine
-03. Boundaries Of Hell
-04. Dark Samaritan(   Читать дальше...   )Жанр: MDMПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C015B87144C0615F5D1F4B2F9550AD32E7366FB9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009740   (808239) от 22.04.2016
-
-August Redmoon - Drums Of War (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808239.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Bring Down The House
-2.The Only Man On Earth
-3.Fools Are Never Alone
-4.Drums Of War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29DD08878B285D98EE494ACE5400FCA34E2C9EEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009830   (808240) от 22.04.2016
-
-Elmsfire - Hour Of The Wolf (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye To Eye
-02. Dead Night Misery
-03. Rapophis
-04. The Wheel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20ACD96DEB42CBE9558712CF1AB95AF09845D960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383929   (808275) от 17.05.2020
-
-Clouds - Durere (2020) [FLAC|Lossless|Web-DL|tracks] <Melodic Doom, Funeral Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Guiding Light (8:03)
-02. Empty Hearts (8:45)
-03. Images And Memories (6:57)
-04. Above The Sea (9:05)(   Читать дальше...   )Жанр: Melodic Doom, Funeral Doom, Atmospheric Doom, Death MetalПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928C84AB6F665E9E6C77F21D9F052B4709D66E48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198513   (808287) от 11.01.2018
-
-Leaves' Eyes - Sign of the Dragonhead (2018) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign of the Dragonhead 
-02. Across the Sea 
-03. Like a Mountain
-04. Jomsborg (   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A50E36747EDF9FF68D8252C69666EA0023FA44F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198440   (808290) от 11.01.2018
-
-Diablo Swing Orchestra - Pacifisticuffs (2017) [MP3|320 Kbps] <Avant-Garde Metal, Jazz Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knucklehugs (Arm Yourself With Love) (02:26)
-02. The Age Of Vulture Culture (05:00)
-03. Superhero Jagganath (05:41)
-04. Vision Of The Purblind (01:00)(   Читать дальше...   )Жанр: Avant-Garde Metal, Jazz MetalПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3796FC89D698FDA7367BFB1579FA315CA08228C
 ```
 
 

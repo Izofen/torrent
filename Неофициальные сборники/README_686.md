@@ -1,3 +1,30 @@
+###  Публикация: 1436338   (1042979) от 01.01.2021
+
+VA - Shazam Хит-парад World Top 200 Декабрь (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042979.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Stapleton - Tennessee Whiskey (4:53)
+002. Pháo, Wack - 2 Phút Hơn - Remake (2:33)
+003. Fousheé - Deep End (2:21)
+004. CJ - Whoopty (2:03)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B51F1DDF3C5546FDF26DAB6FE18866F82E3A56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436676   (1043090) от 01.01.2021
 
 VA - Beatport Electro House: Sound Pack #216 (2020) [MP3|320 Kbps] <Electro House>
@@ -668,33 +695,6 @@ VA - Hits Nu Disco Views 003 (2023) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943396468988B91CD8A22AE6B0A2239345F9CE72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607000   (1044240) от 24.01.2023
-
-VA - Simply Dance Vol. 07 (2023) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hostel Kidz - Standing In Line
-02. David Garner - Silent Night
-03. yaml - Dance The Night Away
-04. DJ Spacig - Hearts On Fire(   Читать дальше...   )Жанр: Europop, Dance, Club, ProgressiveПродолжительность: 01:46:13 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1874A78BA8DC4860A09DD147DCCB63CF2FD407FC
 ```
 
 

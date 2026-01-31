@@ -1,3 +1,30 @@
+###  Публикация: 1106899   (870048) от 21.02.2017
+
+VA - Автозвук. Отборный зимний хит. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870048.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Арина Войт - Это Любовь 3:41
+002. Sons Of Maria Feat. Angelika Vee - Sweet Madness 3:12
+003. Dj Jedy Feat. Личи - Это Я С Тобой 3:08
+004. Bout - Duck 2:38(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF4D7C725E116E1A4DF912C5A11E50EA3357257
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106896   (870050) от 21.02.2017
 
 VA - Танцевальная вечеринка от Хит FM (2017) [MP3|256 Kbps] <Pop>
@@ -663,33 +690,6 @@ VA - Русский Музыкальный Фонд (2016) [MP3|320 кб/с] <п
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A73DF2FEE98BB64C34FA57604DE2C919D6F49E91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997844   (871762) от 18.03.2016
-
-VA - Blues Forever vol.33 - vol.36 (2015) [MP3|320 кб/с] <Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mike Zito - Dirty Things
-02. Blues Merchants - Getting Used
-03. David Gogo - Jet Set
-04. Stevie Cochran - Between The Lines(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:14:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE8EABA29BEEEFC601AFCFA6EC1126FDF82203D
 ```
 
 

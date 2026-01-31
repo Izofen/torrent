@@ -1,3 +1,30 @@
+###  Публикация: 1449782   (1029572) от 23.02.2021
+
+VA - Carbon Synthwave Sound (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новаторский подход в электронной музыке особенно прослеживается на треках сборника "Carbon Synthwave Sound" своей неповторимой подачей, включающий в себя глубокий, порой академический саунд, виртуозную работу с различными музыкальными эффектами и превосходные мелодии, которые сразу сразу привлекают внимание к себе.001. Mr Xyborg - Homo Prototypum
+002. Wxlter - Resonance
+003. Bubaleh - Fireworks
+004. Binaural - Undo(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 10:23:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C35A5159193BD2166C5BF65365D3DF374D71CCE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622690   (1029796) от 30.03.2023
 
 VA - Easy Evening Mellow Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
@@ -668,33 +695,6 @@ VA - ЕвроХит Топ 40 Europa Plus 12.02.2021 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1903CD62E8DB8668C929F25F7F05217C9366B74C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447217   (1031778) от 13.02.2021
-
-VA - Time spent on BBC (2021) 2CD [MP3|320 Kbps] <Rock, Pop, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W.A.S.P. - Animal (Fuck Like a Beast)
-02. Bon Jovi - You Give Love A Bad Name
-03. Led Zeppelin - Over the Hills and Far Away (Remaster)
-04. Aerosmith - Sweet Emotion(   Читать дальше...   )Жанр: Rock, Pop, BluesПродолжительность: 09:24:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12D9152E66B1860A4B03B4887E42359E4658B6F
 ```
 
 

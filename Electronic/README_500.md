@@ -1,3 +1,30 @@
+###  Публикация: 1481762   (1008032) от 05.07.2021
+
+Methyl Lily - Methyl Lily (2021) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hologram (04:50)
+ 02. Magnetar (08:17)
+ 03. Glass Horizon (03:02)
+ 04. Not Even Light (05:37)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9FCF72BEA473A81F5317D370FB5DEACAD58C683
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228470   (1008056) от 04.07.2021
 
 All India Radio | Antecedent - Discography 87 Releases (1999-2021) Inevitable Recordings [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield>
@@ -663,33 +690,6 @@ VA - Cafe Del Mar Ibiza - Made Of Sunsets (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8439A859E5A80E805DF294173116850FB766ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480085   (1009169) от 27.06.2021
-
-VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Psybient, Downtempo>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Nonstatic - Dreamscapes (07:26)
- 02. Misled Convoy - Fire On The Mountain (06:18)
- 03. Nigel Mullaney - Lost At Sea (06:44)
- 04. Akuratyde - Rouge (05:12)(   Читать дальше...   )Жанр: Ambient, IDM, Psybient, DowntempoПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B32EABF42CE53167F2393C4363DC0F8F24207913
 ```
 
 

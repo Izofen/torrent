@@ -1,3 +1,30 @@
+###  Публикация: 1554450   (575565) от 31.05.2022
+
+VA - 60 Minutes. Old School Dance Music vol.8 (mixed by Dj V) (2022) [MP3|320 Kbps] <Club House, Dancecore, Eurotrance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_575565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Sasha Dith - Russian Girls (Club Mix)
+02-Commander Tom - Attention (Original Club Mix)
+03-Disco Construction - Can't Get Enough (Steve Angello's Re-Mode mix)
+04-DJ Ivan Scratchin' - Госнаркоконтроль (Whiskey & Cola Extended Mix)(   Читать дальше...   )Жанр: Club House, Dancecore, EurotranceПродолжительность: 59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D868FFFF9459F4FE10B274543F550284B48019DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233891   (575627) от 02.07.2018
 
 VA - Club Dance Ambience Vol.154 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
@@ -662,33 +689,6 @@ VA - Trance Traveling 79 (mixed by VNP) (2016) [MP3|320 Kbps] <Trance, Uplifting
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7761460D51A1EB7EEDD273B386A75D9E7B685F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042739   (576713) от 14.08.2016
-
-VA - Get Ready Beats Vol.1: Finest Deep House Tunes (2016) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Weekend Sound - Strong
-02. D-Wax - Halifax
-03. Bes & Meret - Morgenstund - Tom Leeland Radio Mix
-04. Johnny Pana - Got You - Ghost Wire Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1688104653F0AEC5204C3850BB307BAD5F4093
 ```
 
 

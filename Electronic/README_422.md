@@ -1,3 +1,30 @@
+###  Публикация: 1121961   (799245) от 04.04.2017
+
+VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_799245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ethereal Moments - Salutations to the Sun
+02. Peter Orbit - Les Nuits
+03. Bella Element - In This World
+04. Jonathan Sarlat - Moments in Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B320E197F34A5CF8B6AE7EB3CE0125EF0571449
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121983   (799248) от 04.04.2017
 
 VA - Chillout April 2017 (Top 10 Best Of Collections) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Hed Kandi - Nu Disco (2010) [FLAC|Lossless|tracks] <House,Vocal House,Disco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47369B45C5C81A4CCE12CF24D56BA8FB178667F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199742   (800409) от 17.01.2018
-
-Nulabee - Queen for a Day (2018) [FLAC|Lossless|tracks] <Balearic,Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between Sky & Sea 03:04
-02. Kingdoms Fall 04:17
-03. The Promise Of Horizon 04:00
-04. Shivers (feat Casey Cook) 03:02(   Читать дальше...   )Жанр: Balearic,DowntempoПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E368CE17FA5FB76F5DC78804BBD04029D99B83
 ```
 
 

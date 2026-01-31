@@ -1,4 +1,31 @@
-###  Публикация: 1845811   (1051093) от 
+###  Публикация: 1845815   (1051091) от 04.01.2026
+
+VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ai - Silver in the Dust
+02 - Etta Mae Hartwell - Emerald Silence
+03 - Ai - Remember Me
+04 - Mick Simpson - Now That the Magic Has Gone(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB302C9056C07DE3CE89B1BB644650C7C00AB1F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845811   (1051093) от 04.01.2026
 
 Ai - Inspired Blues & Soul Songs Part 3 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
 
@@ -25,7 +52,7 @@ magnet:?xt=urn:btih:06B6B2A0847FA8E67292939EA17D7F66DFD8F30C
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845813   (1051094) от 
+###  Публикация: 1845813   (1051094) от 04.01.2026
 
 Ai - Inspired Blues & Soul Songs Part 4 (2025) [MP3|320 Kbps] <Blues & Soul Songs>
 
@@ -52,7 +79,7 @@ magnet:?xt=urn:btih:E2DA77A9FE01B36827F11DB978CBEDB53FF2234B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845832   (1051095) от 
+###  Публикация: 1845832   (1051095) от 04.01.2026
 
 Etta James - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
 
@@ -79,7 +106,7 @@ magnet:?xt=urn:btih:A8F9F13C70470157184947E263337EC65F082AA3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845845   (1051096) от 
+###  Публикация: 1845845   (1051096) от 04.01.2026
 
 Ai - No name compilation part 40 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
 
@@ -106,7 +133,7 @@ magnet:?xt=urn:btih:B63CEBB026ED5A884AAA623EA559FE82EA383F14
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845884   (1051098) от 
+###  Публикация: 1845884   (1051098) от 04.01.2026
 
 CYRIE - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
 
@@ -133,7 +160,7 @@ magnet:?xt=urn:btih:EC8F8C93D3190F3180A77A427C688EB99FF31844
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845886   (1051099) от 
+###  Публикация: 1845886   (1051099) от 04.01.2026
 
 Giza Larue - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad & Soul Songs, Pop Ballad>
 
@@ -668,33 +695,6 @@ RetroVinyl80 - Collection (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28635743BFC73D7B9F7BAC520811FB255346D1D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849639   (1053623) от 24.01.2026
-
-VA - Summer Dance Explosion (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053623.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Iyaz - Replay (00:03:02)
-002. Laura - Immer Wieder (00:04:07)
-003. Riopy & Tune Your Mind - Breathe (00:02:26)
-004. Sean Paul Feat. Dua Lipa - No Lie (00:03:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC4E50467A98D4D18B76F2064880432D8AF62A8
 ```
 
 

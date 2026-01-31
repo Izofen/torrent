@@ -1,3 +1,325 @@
+###  Публикация: 1281073   (755090) от 06.02.2019
+
+Тінь Сонця - Буремний край (2016) [MP3|320 Kbps] <Folk Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755090.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:19] 1 Ромко Живий
+[03:39] 2 Громом І Вогнем
+[04:17] 3 На Відблисках Мого Меча
+[06:14] 4 Промінь Волі(   Читать дальше...   )Жанр: Folk Rock, Heavy MetalПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F03769AB9EF6F0704242B1A3884A6B34E2721288
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522806   (755163) от 09.01.2022
+
+Members Of God - Ten Talking Words (2011) [APE|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening
+02. Someone Knows
+03. Talking Words
+04. Magical Water(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDFB39E199FA44FD0FDE257926755487845A17B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281141   (755195) от 06.02.2019
+
+3 Doors Down - Acoustic Back Porch Jam (2019) [MP3|320 Kbps] <Alternative, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755195.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. When I'm Gone
+2. Let Me Go
+3. It's Not My Time
+4. The Real Life(   Читать дальше...   )Жанр: Alternative, AcousticПродолжительность: 00:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE14DF186932136B30E900C57B6610DAD8BD789A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280892   (755208) от 06.02.2019
+
+Tyrant Eyes - Book Of Souls (2000) B.O. Records [MP3|320 Kbps] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755208.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Book of Souls
+2.Brocken Wings
+3.Dark Side of the Moon
+4.Timebomb(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA6F1A4C43FD56FE7C173146B1BE85142261610C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281222   (755293) от 06.02.2019
+
+Shiver - Under Skin (2002) Remastered Deluxe Edition, 2019, Shiver [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addicted To You
+02. L.U.S.T.
+03. Under Skin
+04. Don't Cry For Me(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454DAC01021ADC1079E4AB2A8C485646F1811717
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395508   (755476) от 10.07.2020
+
+PVRIS - Use Me (2020) [MP3|320 Kbps] <Alt.Rock, Pop-Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme a Minute (03:29)
+ 02. Dead Weight (03:27)
+ 03. Stay Gold (04:01)
+ 04. Good to Be Alive (03:18)(   Читать дальше...   )Жанр: Alt.Rock, Pop-Rock, Female VocalПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54239B7EC0B000A8B166E94DCB1D8AD9787F79A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395449   (755570) от 10.07.2020
+
+Kiko Loureiro - Open Source (2020) [MP3|320 Kbps] <Progressive Metal, Instrumental Music>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overflow (05:35)
+ 02. EDM (E-Dependent Mind) (04:25)
+ 03. Imminent Threat (feat. Marty Friedman) (05:17)
+ 04. Liquid Times (feat. Mateus Asato) (04:49)(   Читать дальше...   )Жанр: Progressive Metal, Instrumental MusicПродолжительность: 00:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172536B30B481225B46186C6CB01AB69B9AA9737
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395368   (755575) от 10.07.2020
+
+Тени свободы - Время волшебных открытий (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755575.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Время волшебных открытий
+2. Контроль
+3. Лучше хуже
+4. Песня про тебя(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9591DE6E51D522283794F715B55FBEB7210FD018
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395469   (755585) от 10.07.2020
+
+Seventh Sign From Heaven - The Woman And The Dragon (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stayed in the Dark (03:20)
+ 02. Rise (03:17)
+ 03. The Devil Fears Your Name (04:22)
+ 04. The Woman and the Dragon (04:20)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A1075EE085B97422FDCDCED3CDA1273C6B11064
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395403   (755587) от 10.07.2020
+
+Ильин - ПолеLP (2020) [MP3|320 Kbps] <Hard-rock, Metal, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755587.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лужи-разводы_LP
+2. Поле_LPЖанр: Hard-rock, Metal, InstrumentalПродолжительность: 00:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21F3CC005A7D77A4D061682514E978EECF64783
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018361   (755619) от 20.05.2016
+
+Katatonia - The Fall of Hearts (2016) [MP3|320 кб/с] <Gothic Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takeover
+02. Serein
+03. Old Heart Falls
+04. Decima(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 01:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9020F5068CC13A60B1510A8AE7CE42CFEFF4E7D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395337   (755658) от 10.07.2020
+
+Myridian - Light in the Abyss (2020) [MP3|320 Kbps] <Melodic Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Is Lost (10:54)
+ 02. Nidellavir (12:58)
+ 03. Babylon (07:50)
+ 04. The Poet (09:19)(   Читать дальше...   )Жанр: Melodic Death Metal, Doom MetalПродолжительность: 01:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FA5E86934151B9B9FF3D31FB700B8C7FD617EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395283   (755662) от 10.07.2020
 
 Hammerhedd - Grand Currents (2020) [MP3|320 Kbps] <Progressive Metal, Thrash Metal>
@@ -371,331 +693,6 @@ Broods - Don't Feed the Pop Monster (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905665E84F9BB05AE055D6EB471B8E68A2A10275
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280893   (756984) от 05.02.2019
-
-Свита - Свита (2017) [MP3|320 Kbps] <Acoustic Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Временами года
-02. О нас
-03. Забыл
-04. Люби(   Читать дальше...   )Жанр: Acoustic Indie RockПродолжительность: 00:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFA57308DD896D211339C99EE8DBD1A6F1474DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280897   (756985) от 05.02.2019
-
-Свита - 2 (2018) [MP3|320 Kbps] <Acoustic Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У тебя всё есть
-02. Всех
-03. Похожи
-04. Клад(   Читать дальше...   )Жанр: Acoustic Indie RockПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CAA0EBB4BE6844DC5B47085410EDDD944C99F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280865   (757088) от 05.02.2019
-
-The Sabbathian - Latum Alterum (2019) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Requiem... (1:19)
-02. The Brightest Light (6:56)
-03. Liti Kjersti (6:01)
-04. Head of a Traitor (9:23)(   Читать дальше...   )Производство: Svart RecordsЖанр: Doom Metal, Black MetalПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F82D20E72FCAFA1BA4C9AA439C7D39AF475DD5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395184   (757107) от 09.07.2020
-
-Панк Жлоб Рок Банда СГ - В хлам (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757107.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Неделя
-3. Зина
-4. Гимн алкоголика(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B612D464538C17F9FF546BA3EEAB41BB8D5016
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395118   (757196) от 09.07.2020
-
-Save My Name - Дойти До Трёх (2020) [MP3|320 Kbps] <Symphonic Metal, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Буря (04:00)
- 02. Танцы на костях (04:28)
- 03. Время не ждёт (03:37)
- 04. Мечта (04:59)(   Читать дальше...   )Жанр: Symphonic Metal, Heavy Metal, Power MetalПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24214DFE95C266DAD34D36B599B186D593519CBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395242   (757200) от 09.07.2020
-
-Mekong Delta - Tales of a Future Past (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Landscape 1 - Into The Void (1:20)
-02. Mental Entropy (5:44)
-03. A Colony Of Liar Men (6:13)
-04. Landscape 2 - Waste Land (6:42)(   Читать дальше...   )Жанр: Progressive Metal, Thrash MetalПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8227A8A3CB31D53C5CEE964350DF90B7B90E20C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017237   (757245) от 19.05.2016
-
-Несчастный случай - 19 альбомов (1994 - 2014) [MP3|320 кб/с] <Рок, Рок-н-Ролл, Арт-Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несча́стный Слу́чай — советская и российская рок-группа, образованная Алексеем Кортневым и Валдисом Пельшем в 1982 году.
-В течение 2012—2013 гг. группа проводила масштабный гастрольный тур по России под названием «Тридцатилогия», посвященный своему 30-летию. Завершился тур 30 ноября 2013 г. большим юбилейным концертом в московском «Крокус Сити Холле». В (   Читать дальше...   )1994 - Троды Плудов
-1995 - Mein Lieber Tanz
-1996 - Межсезонье
-1997 - Это любовь(   Читать дальше...   )Жанр: Рок, Рок-н-Ролл, Арт-РокПродолжительность: 19:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43AE920F27ED4E489BC177AFDB025F981BDD3EC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395153   (757261) от 09.07.2020
-
-Ars Pro Vita - Peace (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog.>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Is Peace (13:04)
- 02. Shut up and Shoot!!! (06:37)
- 03. On Bibles and Cannons (05:04)
- 04. The Yellow Cloud (06:19)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog.Продолжительность: 02:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34FDB235BE991D25CFA876C758D0FE4AC0959B9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395202   (757264) от 09.07.2020
-
-Navighator - Navighator (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waves (06:21)
- 02. Black Flag (03:51)
- 03. Living in a Dream (04:03)
- 04. Ghost Town (04:55)(   Читать дальше...   )Жанр: Heavy Metal,  Power MetalПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912EC82D84FE3BA6C3E5555F45B8022A28BE45C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395188   (757268) от 09.07.2020
-
-Brennen Sloan - Brennen Sloan (2020) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can t Stop Me (03:36)
- 02. You on My Mind (03:47)
- 03. Where the People Don t Go (04:10)
- 04. Not My Friends (03:03)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261CD7A743AF21DEB64D156801923660CA48007F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395135   (757269) от 09.07.2020
-
-Sentinel - The Black of the Sun (2020) [MP3|320 Kbps] <Progressive Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757269.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Black of the Sun (06:43)
- 2. The Damned (06:11)
- 3. One Bullet Left (04:52)
- 4. Infection (07:40)(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE8586CFEE8454FAF638CA16073E6653AF01820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017663   (757455) от 19.05.2016
-
-Zakk Wylde - Book Of Shadows II (2016) [FLAC|Lossless|image + .cue] <Southerh Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Autumn Changes 05:16
-02. Tears of December 03:36
-03. Lay Me Down 06:10
-04. Lost Prayer 04:30(   Читать дальше...   )Жанр: Southerh RockПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C9C6AA69B96489EAD28089210D5956D3EB7670
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1206931   (781274) от 16.02.2018
+
+VA - Music For Running: Sport Electro Mix (2018) [MP3|320 Kbps] <Techno, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_781274.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fernando Bavaro - Dark Ecos (Remake)
+002. Hammer - Rails
+003. Marcelo Paladini - Flying Bubble
+004. Hirosher - Geometrically(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 12:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E68C79BB33BF6DBA7A81BD2B4824A0AC228AA1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206973   (781276) от 16.02.2018
 
 VA - Absolute Winter Hits (2018) [MP3|320 Kbps] <Pop>
@@ -673,33 +700,6 @@ VA - Dead And Dead-Doom 90s (2018) [MP3|320 Kbps] <Doom, Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:629DAF7E328175AAEF09042D990866579C02AB6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206208   (782532) от 13.02.2018
-
-VA - Happy Birthday Fish (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.James Curd & J Dub - Too Cool To Dance
-02..Nora En Pure - Waves (Original Club Mix)
-03.Alex Safa - Come Is It Go (Extended Mix)
-04.Malaa - Notorious(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 04:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E05EA2DF4A246D8C9F227DC47BF90EC125E7F0
 ```
 
 

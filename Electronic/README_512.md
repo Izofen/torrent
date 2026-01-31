@@ -1,3 +1,30 @@
+###  Публикация: 1344983   (1025729) от 18.03.2021
+
+Northern Electronics - Label-Pack 77 Releases (2013-2021) [FLAC|Lossless|tracks] <Experimental, Ambient, Techno, Noise, Industrial>
+
+>>Electronic
+>>Label-Packs
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Path Of Devotion (03:24)
+ 02. Being Water (06:02)
+ 03. The Norns Of Fate (01:42)
+ 04. Practices For Dying (06:07)(   Читать дальше...   )Жанр: Experimental, Ambient, Techno, Noise, Industrial •Продолжительность: 51:19:31 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1448D363B5E137D587D514A49198A5322FF012A6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202479   (1025738) от 18.03.2021
 
 Docetism - Discography 39 Releases (2012-2021) Nichts [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub Techno, Field Recording, Dub, Drone>
@@ -668,33 +695,6 @@ VA - Synthwave Dreams, Vol. 11 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C26E1BFC9179AA03751445F6F490DE709ED637D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454302   (1026418) от 14.03.2021
-
-Paradox Obscur - Singles & Rarities (2021) [MP3|320 Kbps] <Darkwave, Alternative>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Existence (3:11)
-2. Visions (3:39)
-3. Boulevard Voltaire (3:44)
-4. Fatal (4:00)(   Читать дальше...   )Жанр: Darkwave, AlternativeПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B646F47A0279AAD3CF44AB8C645F515A9EF4494E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1233582   (592990) от 30.06.2018
+
+VA - Meditation Music for Inner Peace Vol.2 (Beautiful Ambient and Chillout Music (2018) [MP3|320 Kbps] <Ambient, Chillout, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Northern Lights (Original Mix) - Elmara 03:38
+02. Origenes (Original Mix) - La EstaciГіn Del Mar 03:45
+03. Mystic Traveller (Eskadet Remix) - Velvet Dreamer 06:01
+04. Yanaras Light (Original Mix) - Der WaldlГ¤ufer 04:34(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D280167B470BF312E1D1CD82EFE8E0F256506C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233508   (593011) от 30.06.2018
 
 Ди-джей КЕФИР & Евгений Арсентьев - Мы сделаем Вас счастливыми (1999) [FLAC|Lossless|image + .cue]<House, Electro>
@@ -668,33 +695,6 @@ VA - One Night In St. Tropez 2017 [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B98F6A7E90FB5B47454C5CB0096B8DB228086956
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039617   (594569) от 02.08.2016
-
-Groove Armada - Greatest Hits (2007) Compilation [MP3|320 Kbps] <Trip Hop, Downtempo, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song 4 Mutya    03:39
-02. Get Down    03:24
-03. I See You Baby    04:04
-04. Superstylin'    06:32(   Читать дальше...   )Жанр: Trip Hop, Downtempo, HouseПродолжительность: 01:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08CEF03F5FC4BCD56480DDD260C5023CED12938
 ```
 
 

@@ -1,3 +1,327 @@
+###  Публикация: 1294364   (629889) от 07.04.2019
+
+I Prevail - Trauma (2019) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629889.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Bow Down (4:03)
+ 2 - Paranoid (2:25)
+ 3 - Every Time You Leave (3:37)
+ 4 - Rise Above It (3:05)(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16B2BACE00AEE7CFDFFDA35C2F8E6ACBA5F11170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908881   (629898) от 16.06.2015
+
+Bill Ward (Black Sabbath) - Accountable Beasts (2015) [FLAC|image+.cue]<Hard Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сольный альбом британского барабанщика, участника группы Black Sabbath Била Уорда, выпущен 25 апреля 2015-го года лейблом «Aston Cross Music». Альбом выпущен Уордом после 18-и летнего перерыва и посвящён памяти Mark «Gopher» Jones, умершего в 2014 году.01. Leaf Killers
+02. Accountable Beasts
+03. Katastrophic World
+04. D.O.T.H.(   Читать дальше...   )Жанр: Hard Rock, Progressive RockПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47B21DFA15F3B95588275A85FF7F66B5BB6AC36F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294370   (629914) от 07.04.2019
+
+The Quireboys - Amazing Disgrace (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629914.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Original Black Eyed Son (4:12)
+ 2 - Sinner Serenade (3:31)
+ 3 - Seven Deadly Sins (3:39)
+ 4 - Amazing Disgrace (5:07)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6064BD7CD996AE5FD8ED75E2B419CCBB50C6BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294358   (629982) от 07.04.2019
+
+Silver Bullet - Mooncult (2019) [MP3|320 Kbps] <Power Metal, Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629982.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - 1590 Edinburgh (Intro) (2:05)
+ 2 - She Holds the Greatest Promise (5:06)
+ 3 - Forever Lost (4:45)
+ 4 - Maiden, Mother and Crone (4:47)(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E582FC9C7D283F4E180372257576F194C9FEB1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294268   (629988) от 07.04.2019
+
+The Neal Morse Band - The Great Adventure (2019) 2CD [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Overture
+02. 	The Dream Isn't Over
+03. 	Welcome To The World
+04. 	Momentary Change(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74CC32F87FB73BD1389F9B404F10498431F7FC9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294348   (629990) от 07.04.2019
+
+Thump'n Pig & Puff'n Billy - Downunda (1973) CD, Remastered, 2005, Aztec Music [MP3|320 Kbps] <Classic Rock, Blues Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Straightman
+02. I've Cried over You
+03. You Look After Me, I Look After You
+04. Moving with Rock(   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Rock'n'RollПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4800413C9477A4E20B539DD0B2F599D399314768
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294255   (629991) от 07.04.2019
+
+Sopor Aeternus & The Ensemble of Shadows - Death and Flamingos (2019) [FLAC|Lossless|tracks] <Rock, Deathrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_629991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Side A (0:27)
+02.Kinder Des Teufels (3:30)
+03.Spellbound (3:10)
+04.The Boy Must Die (5:08)(   Читать дальше...   )Жанр: Rock, DeathrockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:305FF890EADA9EEF1D7E55ACDC5C4AB84E4CB511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908049   (630029) от 16.06.2015
+
+FFS (Franz Ferdinand and Sparks) - FFS (2015) [FLAC|tracks|WEB]<Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Delusional [3:12]
+02. Call Girl [3:21]
+03. Dictator’s Son [4:15]
+04. Little Guy from the Suburbs [5:09](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568B27221BED1D1EDED19ABF4E358E6B81B078EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294280   (630097) от 07.04.2019
+
+Outrun The Sunlight - Red Bird (2017) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Bird (5:02)
+02. Synergy (7:43)
+03. The Danger of Alignment (9:21)
+04. Remaining in a Constant State of Discomfort (7:38)Жанр: Instrumental Progressive Metal, Post RockПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96352582E558D530001CD4662CA570B9159D08D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294225   (630101) от 07.04.2019
+
+Black Matter Device - Hostile Architecture (2019) EP [FLAC|Lossless|tracks + .cue] <Metalcore, Mathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630101.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hurricane Pornography  (01:16)
+2. The Great Pyramid Scheme Of Giza  (01:51)
+3. Honest To Goddess  (01:09)
+4. Stoppable Force Meets Moveable Object  (02:51)(   Читать дальше...   )Жанр: Metalcore, MathcoreПродолжительность: 00:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A0A20DE0A76296664B9E7B44E9A9A8F9D941814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294278   (630103) от 07.04.2019
+
+Outrun The Sunlight - Terrapin (2014) [FLAC|Lossless|image + .cue] <Instrumental Progressive Metal, Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughing With Such Abandon (4:48)
+02. Where Every Word Spoken, Speaks (3:01)
+03. And Every Glance Given Has Only One Meaning (4:35)
+04. Spirit (3:53)(   Читать дальше...   )Жанр: Instrumental Progressive Metal, Post RockПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0C9976ED8D404A2463A4430AD5ECB265F7D181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908920   (630218) от 16.06.2015
+
+Drowning The Light - From The Abyss (2015) [MP3|320 кб/с]<Raw Black Metal, Black Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630218.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. From Old Mountains To Lost Seas
+2. Drink The Blood Of The Sun (Varcolaci Awakens)
+3. Below The Horizon He Stalks
+4. From The Abyss(   Читать дальше...   )Жанр: Raw Black Metal, Black Metal, AmbientПродолжительность: 01:05:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B624A0DD7958070F3FCD074F673A3DF57326549
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907784   (630221) от 16.06.2015
 
 Within Silence - Gallery Of Life (2015) [FLAC|image+.cue]<Melodic Power Metal>
@@ -389,339 +713,6 @@ Serj Tankian - Harakiri (2012) [FLAC (tracks+cue)|Lossless]<Alternative Metal, E
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520478   (630859) от 09.07.2012
-
-Vladimir Kuzmin - California Rain (2012) Bootleg [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_630859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving Any Time
-02. How Are You Doing Without Me
-03. Dirty Sounds
-04. Lonely Blues
-05. Crazy About Rock-n-Roll
-06. Dangerous World
-07. Mama (Tell Me What To Do)
-08. White Crosses
-09. Resque Me
-10. California Rain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7AE4AAB3AB0415956FB8FD2DA04DB81BCE2683
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 218012   (631017) от 15.07.2010
-
-Автоматические Удовлетворители - Альбом тел. 1979-1994. Претензии не принимаются и сингл Огуречный лосьон (2009 переиздание) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_631017.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Огуречный лосьон
-2. Удовольствие
-3. БуржуиЖанр: RockПродолжительность: 00:11:35
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143831   (631066) от 20.06.2017
-
-Nickelback - Feed The Machine (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed The Machine (5:02)
-02. Coin For The Ferryman (4:50)
-03. Song On Fire (3:51)
-04. Must Be Nice (3:43)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE9B7B23F3FA538EF7A1E7F00CF646259C45ECA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 114864   (631117) от 15.06.2015
-
-Papa Roach - 8albums + 5EPs + 10singles (1994-2015) [MP3|320kbps] <Alternative/Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative, Rapcore, Post-Grunge, Hard Rock |Продолжительность: 00:08:11
-01  Lifeline                               4:08
-02  Getting Away With Murder (Live)        4:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BDD4441ABCFB688CF43E600DD090935351845A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144117   (631197) от 20.06.2017
-
-Rainbow (Ritchie Blackmore's Rainbow) - Since You Been Gone: The Essential Rainbow (2017) 3CD [MP3|320 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stargazer
-02. Man On The Silver Mountain
-03. All Night Long
-04. Lost In Hollywood(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 03:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8207586C1B96C66C002A2D0D981B023CA30EE625
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143913   (631207) от 20.06.2017
-
-Royal Blood - How Did We Get So Dark? (2017) [FLAC|Lossless|tracks + .cue] <Alternative, Rock, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Did We Get So Dark? (3:57)
-02. Lights Out (3:57)
-03. I Only Lie When I Love You (2:49)
-04. She's Creeping (3:23)(   Читать дальше...   )Производство: Warner Bros. Records, Black Mammoth Records – 0190295831172Жанр: Alternative, Rock, Garage RockПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A1345923948693D1BC0329D233EC729A343EA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294104   (631234) от 06.04.2019
-
-Born of Osiris - The Simulation (2019) [FLAC|Lossless|tracks + .cue] <Progressive Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631234.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Accursed (3:26)
-2. Disconnectome (3:18)
-3. Cycles of Tragedy (3:10)
-4. Under The Gun (3:35)(   Читать дальше...   )Жанр: Progressive Metal, MetalcoreПродолжительность: 00:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E722C57E9CE386A34D412259A0FC8E77523FF02D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520720   (631310) от 09.07.2012
-
-Motley Crue - Loud As F@*k (2003) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard RockПродолжительность: 01:15:34
- 01. Kickstart My Heart [0:04:42.06]
- 02. Looks That Kill [0:04:07.11]
- 03. Louder Than Hell [0:02:31.66]
- 04. Take Me To The Top [0:03:43.69]
- 05. Girls, Girls, Girls [0:04:29.51]
- 06. Afraid [0:04:06.70]
- 07. Hooligan's Holiday [0:05:48.16]
- 08. Knock 'Em Dead, Kid [0:03:43.66]
- 09. Slice Of Your Pie [0:04:30.74](   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:041875F15A34D2145A7592F4D364686333FCEF45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543372   (631364) от 10.04.2022
-
-Rammstein - Zick Zack (2022) Single [FLAC|lossless|WEB-DL|tracks] <Industrial Metal, Neue Deutsche Härte>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zick Zack (04:04)
-02. Zick Zack (RMX by Boys Noize) (04:00)
-03. Zick Zack (RMX by Boys Noize - Instrumental) (04:29)Жанр: Industrial Metal, Neue Deutsche HärteПродолжительность: 00:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78BFD89F3CDD0E92F538B6425DD3BF57D009245
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543164   (631372) от 10.04.2022
-
-Silvertone - Planet Chaser (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Accelerator (00:04:19)
-02 - I Think I Know (00:04:00)
-03 - So Close to so Much (00:04:09)
-04 - Destination (00:04:15)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D491AF09CFED0CD3F61C706E197611EE6F2BD293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809193   (631388) от 06.04.2019
-
-Eluveitie - 3 Альбома + 1 Сингл (2014-2019) [MP3|320 кб/с] <Folk-Metal, Melodic Death Metal, Celtic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631388.jpg" />
-</div>
-
-
-###  Подробнее
-
-2014 - Origins (Mailorder Edition, 2CD)
-2017 - Evocation II - Pantheon (Limited Edition, 2CD)
-2017 - Rebirth (Single)
-2019 - Ategnatos (Limited Edition)Жанр: Folk-Metal, Melodic Death Metal, Celtic MetalПродолжительность: 04:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09555ECD7F706A4636F409B02A12D1A2EC0106CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143155   (631635) от 20.06.2017
-
-Eric Burdon & The Animals - Winds Of Change (1967) Remastered, 2013, Polydor, CD2: Stereo Album [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631635.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winds Of Change
-2. Poem By The Sea
-3. Paint It Black
-4. The Black Plague(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400B7CAA685E061A1A95A414551716FBCCD7DA45
 ```
 
 

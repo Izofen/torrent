@@ -1,3 +1,30 @@
+###  Публикация: 1101458   (894842) от 07.02.2017
+
+VA - Deep Red Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Gorda Project - Recurring Events  6:16
+02.  Enrico Donner - Lido Shuffle  5:57
+03.  Cane Garden Quartet - Shine A Light On Me (feat. DJ Riquo)  5:23
+04.  Blue Wave & Don Gorda - Lost For Words  5:20(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C291FC0C50A3CB4B37C2D479DB99CCD5AC502997
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101610   (894844) от 07.02.2017
 
 VA - Silencio Collection Vol.1 Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -679,33 +706,6 @@ Dr. Alban - The Very Best Of 1990 - 1997 (1997) [FLAC|Lossless|tracks + .cue] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AB4D4A7F67412840F4DEC42AC18E24BEFF5C382
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992932   (897289) от 04.03.2016
-
-Scooter - The Ultimate Aural Orgasm (2007) [FLAC|Lossless|tracks + .cue] <Trance, Hard House, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horny In Jericho (2:45)
-02. Behind The Cow (3:34)
-03. Does The Fish Have Chips? (3:26)
-04. The United Vibe (3:48)(   Читать дальше...   )Жанр: Trance, Hard House, HouseПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F85620D152EB37C72E49F9E259BCDC726FD842
 ```
 
 

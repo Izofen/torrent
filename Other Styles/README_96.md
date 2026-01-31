@@ -1,3 +1,198 @@
+###  Публикация: 1038772   (599531) от 30.07.2016
+
+Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .cue] <Heavy Metal, Instrumental, Shred>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corrida (4:57)
+02. Love In Her Eyes (5:21)
+03. French Blues (4:37)
+04. The Storm (3:10)(   Читать дальше...   )Жанр: Heavy Metal, Instrumental, ShredПродолжительность: 0:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A2B30A09E01998141F9F156A1DAF8852E537EC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038808   (599532) от 30.07.2016
+
+VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599532.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Roger Miller - King of the Road
+2. Kenny Rogers - Ruby Don't Take Your Love to Town
+3. Johnny Cash - Ring of Fire
+4. Frankie Laine - High Noon(   Читать дальше...   )Жанр: CountryПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF57AC550DD458D0DF192A93ED63EB8FD6869FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525923   (599618) от 23.07.2012
+
+Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native American, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain Dance
+02. Flying Condor
+03. Allin Quampi
+04. Love Mountain
+05. May you walk in sunshine
+06. Five Spirit
+07. Sunquyman
+08. Four Circles of Live
+09. Tatanka
+10. Axtu Sumix(   Читать дальше...   )Жанр: New Age, Native American, FolkПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F48CAEC2A0B725BB1DD0156EBE61631924DC78F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299143   (599901) от 01.05.2019
+
+Kenio Fuke - Atlantida (2008) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Spirit of the Water (5:07)
+ 02. Atlantis Memory (5:25)
+ 03. Atlantida (5:28)
+ 04. Lost Continent (6:04)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF021B5F7BB057972672624B41A17E32DEC5758B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232523   (599928) от 24.06.2018
+
+Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Wonderland (03:47)
+02. Sketchbook of Untold Magic (03:32)
+03. Falling Stars (03:33)
+04. Fairy Tale (04:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69BEB4327C932A1E1E22EB74BC700B66758C491
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299117   (600022) от 01.05.2019
+
+Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acoustic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lilac Skies
+02. Unspoken Words
+03. Dochas
+04. Blue Whispers(   Читать дальше...   )Жанр: New Age, Jazz, AcousticПродолжительность: 48:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD75305131E20A6099036F5F738C1A9C71062B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548117   (600134) от 02.05.2022
+
+Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire In Your Heart (07:07)
+ 02. Old Medicine Man (06:31)
+ 03. Call Of The Great Spirit (06:47)
+ 04. Sacred Space Of Love And Wisdom (07:13)(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 01:05:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:278F776BCFE7CE769EDAAD6358093D4DB08D6C97
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149227   (600216) от 11.07.2017
 
 Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
@@ -502,195 +697,6 @@ Message To Bears - Departures (2009) [FLAC|Lossless|tracks + .cue] <Ambient, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C4724E63B3C44A9934D9B80C601A4BF010BE30B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297778   (603075) от 24.04.2019
-
-Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loitsu (5:33)
-02. Valoa (3:36)
-03. Marian rukous (6:26)
-04. Aiti Maa (4:32)(   Читать дальше...   )Жанр: New age, World Music, EthnoПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6F6FED079CDA1A55FD87F0C387D0641DD42C06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297558   (603082) от 24.04.2019
-
-Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (My World) (2:18)
-02. Arrival of the Jelly Bubbles (4:25)
-03. Bb's Nest Building (2:32)
-04. Bb's Working Their Magic (2:41)(   Читать дальше...   )Жанр: New age, WorldПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595DD704F5D8198D3ED3B18D1FA6E81A8EF67620
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297703   (603089) от 24.04.2019
-
-Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603089.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Атомы любви
-2. Перезагрузи
-3. Родины нет во мне
-4. Рядом с тобой(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297787   (603090) от 24.04.2019
-
-VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603090.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Fading Like A Flower
-2.	Wind Of Change
-3.	Don't Let The Sun Go Down On Me
-4.	Vintage (Ballade To Australian Wine)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A4AD43251590195F00B8C3299F53EE5829F24D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297649   (603095) от 24.04.2019
-
-Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603095.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jacaranda Street (5:33)
-2. The Lavender Lighter (3:32)
-3. My Love Waits For Me (4:06)
-4. Stepping On That Bridge (3:32)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DB87800156C61EB3CD70335C75D7A0FD23854A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231744   (603182) от 21.06.2018
-
-Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda [03:09]
-02. Visitors from the Stars [02:38]
-03. Ancestors [03:08]
-04. A Million Years Journey [03:13](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B494F55DD309505B083D7F2EA2B1F635660AE1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231743   (603195) от 21.06.2018
-
-Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exile [03:31]
-02. Revolt [02:11]
-03. Cytokine Storm [01:59]
-04. Heart and Soul [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
 ```
 
 

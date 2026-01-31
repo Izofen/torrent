@@ -1,3 +1,84 @@
+###  Публикация: 1846831   (1051571) от 09.01.2026
+
+VA - AM Gold 1978 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Gilder - Hot Child In The City
+02. The Sweet - Love Is Like Oxygen
+03. Boston - Don't Look Back
+04. John Paul Young - Love Is In The Air(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A76DDF681E329B9FE44E48530FCFB5D49515DE70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846763   (1051572) от 09.01.2026
+
+VA - AM Gold 1977 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Don't Stop
+02. Linda Ronstadt - It's So Easy
+03. Daryl Hall & John Oates - Rich Girl
+04. Climax Blues Band - Couldn't Get It Right(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5830B3757AA7749FCAE831CE0063F0AFDE06E34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846757   (1051573) от 09.01.2026
+
+VA - AM Gold 1976 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pratt & McClain With Brotherlove - Happy Days
+02. Bay City Rollers - Saturday Night
+03. Peter Frampton - Show Me The Way
+04. Orleans - Still The One(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5D3036E7719D558E76CE5FF248C2A49827C17D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846709   (1051664) от 08.01.2026
 
 VA - AM Gold 1975 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
@@ -614,87 +695,6 @@ Captain Hollywood Project - Love Is Not Sex (1993) 1st German Press [APE|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62B352BC8FCD97062DAA4B7545CD75F145EC1165
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849645   (1053680) от 24.01.2026
-
-DJ Hooligan - 3 Years To Become A Ravermaniac (1995) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Rave>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagination Of House (Totally House Version) (05:14)
-02. It's A Dreamsong (06:31)
-03. The Culture (Original Mix) (06:28)
-04. Spacegirl (06:25)(   Читать дальше...   )Жанр: Eurodance, RaveПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66FA6E31F4C3A3CEA7133D56116AFABE078F80FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849643   (1053683) от 24.01.2026
-
-DJ Bobo - Dance With Me (1993) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:46)
-02. Somebody Dance With Me (3:34)
-03. Take Control... (4:31)
-04. Everybody (3:55)(   Читать дальше...   )Жанр: Eurodance, TechnoПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D4B5F222C852B8D81523DEC2DE26A132BDE9FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849632   (1053684) от 24.01.2026
-
-Snap! - The Madman's Return (1992) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Rap>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madman's Return (4:35)
-02. Colour Of Love (Massive Version) (5:33)
-03. Believe In It (5:08)
-04. Who Stole It? (5:10)(   Читать дальше...   )Жанр: Eurodance, RapПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA3050122DEBB6B8F0F4D6F94324BAF5AADB7ED
 ```
 
 

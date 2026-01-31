@@ -1,3 +1,198 @@
+###  Публикация: 357947   (586141) от 02.07.2011
+
+Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586141.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gate Of The Shimmering Cave
+2. Song Of The Creek
+3. Dancing Over Pools
+4. Celtic Mist
+5. When The Sun Loves Trees
+6. Silence Of The Eclipse
+7. Stream Garden
+8. Purple Waves
+9. Malibu Trail
+10. Beach Park(   Читать дальше...   )Жанр: RelaxПродолжительность: 00:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE57AD6B2E1DC86A789984355B5BF0EDE139EE59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301238   (586251) от 10.05.2019
+
+Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bridge Over Troubled Water (4:52)
+02. I Am A Rock (3:19)
+03. El Condor Pasa (3:18)
+04. Cecilia (2:44)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C14130395253D20C3ED7E41C05AE1BFF4B991311
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301244   (586252) от 10.05.2019
+
+Allegro Milano - Allegro Milano Spielt Die Schönsten Weihnachtslieder (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weisse Weihnachten (3:25)
+02. Leise Rieselt Der Schnee (3:12)
+03. Alle Jahre Wieder (3:30)
+04. Morgen Kommt Der Weihnachtsmann (3:05)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CDD4636421D921A1386DE514B2F06807E46703D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301198   (586254) от 10.05.2019
+
+Henry Jackman - Ralph Breaks the Internet / Ральф против интернета (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Zero (03:32)
+02. Sarah Silverman, Gal Gadot, Cast - Ralph Breaks the Internet - A Place Called Slaughter Race (03:28)
+03. Julia Michaels - In This Place (03:21)
+04. Henry Jackman - Best Friends (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87F3F26C3DBFFD9A44F21C25464B7CBC0B1A814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040515   (586446) от 05.08.2016
+
+David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Relax, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incantation
+02. The Letter
+03. Talavera
+04. Resurgam(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C605B6E8585DAADFD6773D928B2BC389285C549
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300947   (587143) от 09.05.2019
+
+Kenio Fuke - Piano e Natureza, Vol. 1-5 (2005-2018) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinita Sabedoria (4:11)
+02. Brilho da Lua (3:52)
+03. Árvore Dourada (4:57)
+04. Doce Brilho (4:16)(   Читать дальше...   )Жанр: New Age, Piano, Relaxation |Продолжительность: 00:48:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5C02CC3C3D7BBB25D708B91B191D6FB7CACA87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300794   (587150) от 09.05.2019
+
+Kayo Konishi & Yukio Kondo - Elfen Lied Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Classical, Contemporary>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lilium (Opening version) (1:34)
+02.Longing (2:12)
+03.Deep Sea (2:56)
+04.Flower-like (1:08)(   Читать дальше...   )Жанр: Electronic, Classical, ContemporaryПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE27D8C544503B0812F2D0BBE4C0EDFE800A36FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 56825   (587494) от 20.05.2022
 
 Vangelis - 11 альбомов (1971-2003) [FLAС|APE|Lossless|image, tracks + .cue] <NewAge>
@@ -506,195 +701,6 @@ Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6F4036E52366E3583C93BBFB022DFD4DCB2B284
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300707   (592774) от 07.05.2019
-
-Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mewtwo Awakes (01:19)
-02. Catching A Cubone (02:05)
-03. Bad News (01:17)
-04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECF53F865F012399DE549A3C298E5F751902E8E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233364   (593296) от 29.06.2018
-
-Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lossless|WEB-DL|tracks] <Balcan Folk Rock, Gypsy Jazz, Folk Punk, Ska>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scared of Dental Drills (3:28)
-02. Tarentella (3:40)
-03. Mila Gora (4:16)
-04. Comandante (2:40)(   Читать дальше...   )Жанр: Balcan Folk Rock, Gypsy Jazz, Folk Punk, SkaПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808D5613F1AD22FD480FCF6D97CB1E44D36D332B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300182   (593697) от 05.05.2019
-
-Joy Williams - Front Porch (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canary
-02. Front Porch
-03. When Does A Heart Move On
-04. All I Need(   Читать дальше...   )Жанр: Folk, Country, AmericanaПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D5B4ECCAAB8A56C04F8AAF764CDA989E9EEA9BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548640   (593903) от 06.05.2022
-
-Кметъ - Солнце, Ладога И Киев (2022) [FLAC|Lossless|WEB-DL|tracks] <Pagan Folk Metal, Groove Metal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Кий, Щек, Хорив и Лыбедь (00:05:07)
-02 - Выше Солнца (00:04:32)
-03 - Капище (00:04:54)
-04 - Иду на Вы (00:04:12)(   Читать дальше...   )Жанр: Pagan Folk Metal, Groove MetalПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20AD6701DCDF7E8BCC3D4E2E5867561A1967EE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548938   (593906) от 06.05.2022
-
-Vartra - Basma (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aina [00:05:54]
-02 - Jerovine [00:06:01]
-03 - Inanna [00:04:41]
-04 - Hajd u Kam [00:05:13](   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7685465CE31A0CD2D20AFDE06D8061925AF92845
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233084   (593937) от 28.06.2018
-
-Robin Spielberg - On the Edge of a Dream (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Easy Listening, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Edge of a Dream
-02. We Meet Again
-03. Drifting
-04. Spellbound(   Читать дальше...   )Жанр: New Age, Easy Listening, PianoПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA7DEF5E1822B743D56607C60057DAE782014F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039543   (594560) от 02.08.2016
-
-Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eva (Pianist: Patrick Doyle)
-02. Igor
-03. Scamper & Brain
-04. Schadenfreude(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD166E2862EE403277058EB6FCCBA9B9F41BC5BD
 ```
 
 

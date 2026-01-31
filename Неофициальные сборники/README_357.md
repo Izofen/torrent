@@ -1,3 +1,30 @@
+###  Публикация: 916931   (589935) от 10.07.2015
+
+VA - Ищу тебя Новые хиты шансона (2015) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_589935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Группа Централ - Держись
+002. Евгений Любимцев - Никто меня не любит
+003. Виталий Волин - Птица
+004. Сергей Черновской - Мадам(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC2C87CC0412DAACBFD604725BBAB7C8E7BEDCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917065   (589994) от 10.07.2015
 
 VA - Summer Dance (2015) [MP3|320 кб/с]<House, Bigroom, Progressive, Funky>
@@ -666,33 +693,6 @@ VA - Summer Dance Party (2015) [MP3|320 кб/с]<Club, Dance, Hands Up>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B66070F3A83895A0C2DABC456D44999122FD64AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915264   (592337) от 05.07.2015
-
-VA - Vocal Trance Seduction Vol 5 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Miller, Nicole McKenna - This Time Last Year (Original Mix) (07:04)
-02. Jan Martin - There's You (LTN Remix) (06:55)
-03. Lisaya ft. Hanna Finsen - Time To Live (Original Mix) (07:25)
-04. Julie Thompson with Dragon & Jontron - Loved (Sied van Riel Remix) (06:38)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1E1FA3FF9883D0AF7C221B2A95229B7668AC20
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1846171   (1051230) от 06.01.2026
+
+Hardwell - Hardwell On Air 527 (Yearmix 2025) (2026-01-02) [MP3|320 Kbps] <Techno, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardwell – Sanctuary (Intro Edit)
+02. Hardwell & Olly James – Lights Out
+03. Hardwell & Olly James vs. Hardwell vs. Tyla – Flatline vs. Spaceman vs. Water (Hardwell Mashup)
+04. Zedd & Foxes vs. Domeno & Michael Sparks – Clarity vs. Locked & Loaded (Hardwell Mashup)(   Читать дальше...   )Жанр: Techno, Big RoomПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB447124C4115CDE9DD401A73BCF3C2AC24AE69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846318   (1051313) от 24.01.2026
 
 VA - Tomorrowland Brasil (2025) [MP3|320 Kbps] <Techno, House, Trance>
@@ -668,33 +695,6 @@ VA - Silent Shore Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4947CF787A2704BDE1E5CC0B8A0579186CB4FBF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848676   (1052926) от 18.01.2026
-
-VA - Levitated Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Rocca - Once In A Lifetime (Extended Mix) [7:17]
-02. Made Of Light & Vanessa Berni - Enjoy The Silence (Extended Mix) [7:22]
-03. Alternate High - Hope (Extended Mix) [6:41]
-04. Manuel Rocca - Brighter Than Sunshine (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0429E141382DE36F3E0D12A8E2252AEEE02DF5CE
 ```
 
 

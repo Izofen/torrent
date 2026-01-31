@@ -1,3 +1,30 @@
+###  Публикация: 1149332   (601040) от 10.07.2017
+
+VA - White And Gold: Popular Dance Hit (2017) [MP3|320 Kbps] <Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_601040.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Burak Yeter - Tuesday (feat. Danelle Sandoval) 04:02
+002. Bruno Mars - 24K Magic 03:47
+003. Alle Farben & Janieck - Little Hollywood 03:05
+004. Maroon 5 - Don't Wanna Know 03:35(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 08:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8076C03071F7BE046C9A76F463C7BC6409B30D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149215   (601100) от 10.07.2017
 
 VA - Deep In My Soul: Deep House Mix July (2017) [MP3|320 Kbps] <Deep House, Dance, Electro>
@@ -668,33 +695,6 @@ DJ AFRO - InterPopHeroes (2018) [MP3|320 Kbps] <TecHouse, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2554E5F57A55DE69F3613CE42D9CD0350FB358EC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149237   (602401) от 09.07.2017
-
-VA - Classical Music (2017) [MP3|320 Kbps] <Classical, Classical Crossover, Vocal Opera>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2Cellos - Game Of Thrones Medley
-002. Sarah Brightman - Dust In The Wind
-003. Royal Liverpool Philharmonic Orchestra - (Everything I Do) I Do It For You
-004. George Frederick Handel Overture to Samson: I. Andante - Adagio(   Читать дальше...   )Жанр: Classical, Classical Crossover, Vocal OperaПродолжительность: 07:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781A4292CA4DDADD1F2674344D669F928D7FDECE
 ```
 
 

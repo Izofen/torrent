@@ -1,3 +1,30 @@
+###  Публикация: 1209044   (779501) от 25.02.2018
+
+VA - Ladies Of Synth Vol.2 (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Retrosynth>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ships In The Night  -  Myriologues  3:30
+02.  Roxi Drive & Neon Black  -  Behind The Mask  4:40
+03.  The Van Dammage  -  Two Sides  5:22
+04.  From Apes To Angels  -  New Skin  3:54(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrosynthПродолжительность: 03:25:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C254C4F9CED0AF9350876EE3F7EE2DE02DA7D0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208695   (779524) от 25.02.2018
 
 VA - Vocal Hits Vol.4 (2018) [MP3|320 Kbps] <Vocal Trance>
@@ -668,33 +695,6 @@ Sam Feldt - After The Sunset (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5874450711664DFA1A3CB1918D1F78B8B457B839
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208027   (780298) от 20.02.2018
-
-Schwefelgelb - Den Umgekehrten Atem (2017) Fleisch [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Industrial>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Im Wasser (04:42)
- 02. Das Armellose Hemd (05:32)
- 03. Stillhalten (05:59)
- 04. Um Meine Haut (05:34)Жанр: Techno, Electro, IndustrialПродолжительность: 00:21:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4407FC220F134324528604A283D319FEA29AC2
 ```
 
 

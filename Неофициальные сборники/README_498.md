@@ -1,3 +1,30 @@
+###  Публикация: 1014545   (776204) от 08.05.2016
+
+VA - Holiday Atmosphere: Beach Trance Progressive (2016) [MP3|320 кб/с] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_776204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Acoustic Beam - Expectation of Love
+002. Sodality - Limnara (Original Mix)
+003. Alex Numark - Summer Memories
+004. Nikolauss & Valexki - Shakti (Original Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 10:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7CD056A073D812E0FC6335858DFFA42197C379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014454   (776205) от 08.05.2016
 
 VA - Beach Workout DJ Power (2016) [MP3|320 кб/с] <House, Progressve, Club>
@@ -668,33 +695,6 @@ VA - Нежная страсть Самые Мелодичные Хиты Рун
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6581305C7C84975E70828D697BD197B3C52B4788
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014048   (776931) от 06.05.2016
-
-VA - Скиталец (Хроника звездной саги) (2016) [MP3|320 кб/с] <Space Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Alex Masi - And The Wind Cries Shawn (03:52)
-02 Blue Drift - Deep Space (05:01)
-03 Erik Norlander - Fanfare for Absent Friends (06:08)
-04 Quantum Fantay - Journey from Earth (05:43)(   Читать дальше...   )Жанр: Space RockПродолжительность: 01:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C7934F2D9F58A2AAFA33ED6FEDAF802DCA1211
 ```
 
 

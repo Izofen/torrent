@@ -1,3 +1,30 @@
+###  Публикация: 1488937   (1001442) от 13.08.2021
+
+VA - Music News vol.122 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001442.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Любятинка & Рома Штайн - Набери (03:11)
+ 002. Adam Maniac & Jaral - Пьяный Без Вина (02:26)
+ 003. AJ Tracey & T-Pain - Summertime Shootout (03:39)
+ 004. Akcent & Midi Culture - Kylie (Remix) (02:36)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8C50078A1CCAA8C83A2D811C275CDA366A2A22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488935   (1001450) от 13.08.2021
 
 VA - EDM Crazy Night Music Party (2021) [MP3|320 Kbps] <EDM, Pop Dance, Dance House>
@@ -668,33 +695,6 @@ VA - Spinnin' Records Top 100 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:031F5DA0E2168A3EA1D42BD4E5D9758DF783FC69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487910   (1002822) от 08.08.2021
-
-VA - The Official UK Top 100 Singles Chart 06.08.2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Bad Habits
-02. The Kid Laroi, Justin Bieber - STAY
-03. Jonasu - Black Magic
-04. Dave, Stormzy - Clash(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F31102179EFDDB233530678FF72945134218C25
 ```
 
 

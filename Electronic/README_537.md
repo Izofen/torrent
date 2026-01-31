@@ -1,3 +1,30 @@
+###  Публикация: 1840706   (1047498) от 06.12.2025
+
+VA - The Orient Collective: Mystical Stories (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaisser Bouzriba - Deep In My Soul (5:59)
+02. Mikhail Catan & Tibetania - Omen (6:18)
+03. Masrit & Tibetania - Treacherus Dunes (6:29)
+04. Inessa & Tibetania - Kalahari (5:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 03:25:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BE7613D97F5371BC1DCB437984C60BFACFB2C5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840681   (1047511) от 06.12.2025
 
 VA - A Journey Through Time and Trance (2025) [MP3|320 Kbps] <Trance>
@@ -668,33 +695,6 @@ VA - The Best Releases 2025 of High Emotions Recordings (2025) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAC8FBF04EAE28B988755C826F6A83BBA268A6E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842312   (1048604) от 15.12.2025
-
-VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren & Jon Bon Jovi - Take The Leap (A State of Trance Year Mix 2025 Intro) [1:55]
-002. Armin van Buuren feat. JAI RYU - Let It Be For Love (Extended Mix) [5:29]
-003. Armin van Buuren & Omnia - Love (Extended Mix) [5:28]
-004. Ruben De Ronde & Amber Revival - Illuminate (Extended Mix) [5:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 12:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E02D3ED1750872045329D1ECE4BDEF9BC793EC7
 ```
 
 

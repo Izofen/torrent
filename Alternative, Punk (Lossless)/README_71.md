@@ -1,3 +1,30 @@
+###  Публикация: 1354597   (987053) от 23.01.2020
+
+Jolly Goods - Slowlife (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eating Fries (04:06)
+02. The Misanthrope Years (04:34)
+03. Desintegration (04:09)
+04. The Moon (04:27)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F802D9BE2D8826B1B1E8B85E5AF5F7E6240582A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587310   (987696) от 22.01.2020
 
 Nickelback - Greatest Hits (2012) 2CD [FLAC|Lossless]<Alternative Rock, Post Grunge>
@@ -722,33 +749,6 @@ Circa Waves - Happy (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D3EA688CE09CAD6FAE765F596C0584DF67CB149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487591   (1002524) от 09.08.2021
-
-VA - Triple J'S Hottest 100 Vol.19 (2012) [FLAC|Lossless]<Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002524.jpg" />
-</div>
-
-
-###  Подробнее
-
-Triple J Hottest 100 - ежегодный музыкальный сборник, основанный на голосовании, проходящем на национальном австралийском радио Triple J, в в котором слушатели выбирают лучшего исполнителя года. Голосование проходит через интернет и начинается примерно за две недели до Нового Года и подводит его итоги, учитывая композиции, выпущенные только за этот год. 100 наиболее (   Читать дальше...   )CD1
-
-01. Gotye - Somebody That I Used To Know (Ft. Kimbra) (4:04)
-02. The Black Keys - Lonely Boy (3:13)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 02:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CADF5255AB02994F6EEB45A81240B5313C91623
 ```
 
 

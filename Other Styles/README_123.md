@@ -1,3 +1,192 @@
+###  Публикация: 1128428   (727189) от 25.04.2017
+
+Stive Morgan - Eclipse Of The Moon (2017) [MP3|320 Kbps] <Ambient, Chillout, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Solar Wind part 1 (3:52)
+02.  Solar Wind part 2 (5:14)
+03.  Eclipse Of The Moon (5:01)
+04.  Child Of War (4:21)(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F2C804604A90C3191EC0A275FED4D79003CCC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022896   (727232) от 03.06.2016
+
+Yanni - The Dream Concert Live from the Great Pyramids of Egypt (2016) [MP3|320 кб/с] <Instrumental, New Age, Easy Listening>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Man's Dream (Live) (2:47)
+02. For All Seasons (Live) (6:01)
+03. Yanni: Welcome (Live) (3:45)
+04. Felitsa (Live) (4:51)(   Читать дальше...   )Жанр: Instrumental, New Age, Easy ListeningПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25D2BD15EE53E5FBC8336526B9F2B839C4C4F54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022586   (727363) от 03.06.2016
+
+Kelsea Ballerini - The First Time (2015) [FLAC|Lossless|image + .cue] <Country, Modern Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. XO (2:54)
+02. Peter Pan (3:20)
+03. Love Me like You Mean (It 3:20)
+04. Square Pegs (3:23)(   Читать дальше...   )Жанр: Country, Modern CountryПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DED4C5B676388E55E2411553DC11DD1654B8F2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284646   (727426) от 22.02.2019
+
+ДиДюЛя - Седьмое чувство (2018) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колесо времени (Велюровый вальс)
+02. Покорители пространства (Ветряные мельницы)
+03. Танец с дождём (Причудливые круги)
+04. Люди индиго (Объект перемен)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:36:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F388CD9E83F459C6DF3B571269664DA474CBBBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128474   (727435) от 25.04.2017
+
+Ashley Monroe - The Blade (2015) [FLAC|Lossless|tracks + .cue] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  - On To Something Good (3:48)
+02  - I Buried Your Love Alive (3:14)
+03  - Bombshell (3:17)
+04  - Weight Of The Load (3:59)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27C5C25A3DBBB7990CB4D73CB2228AF8A27A7EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128441   (727550) от 25.04.2017
+
+VA - 50 New Age Deep Meditation Tracks (2017) [MP3|320 Kbps] <New Age, Downtempo, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Great Meditation Guru - New Age Deep Meditation
+02. Mindfulness Meditation Unit - Sun Salutation
+03. Sounds of Nature Kingdom - Cleansing Rain
+04. Sauna & Massage Academy - Serenity Falls(   Читать дальше...   )Жанр: New Age, Downtempo, ChilloutПродолжительность: 03:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A9165245911C081C82BD71C552B21D6E4E59CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022698   (727585) от 03.06.2016
+
+Julian Bream - Guitar for Relaxation (2007) [FLAC|Lossless|tracks] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_727585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dedicatoria (from Cuentos para la juventud) [00:01:48]
+02. Larghetto [00:04:45]
+03. Sempre espressive [00:02:20]
+04. Pavane pour une infante defunte [00:06:49](   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A15ECC45CB43DFE7F089DBC6758D4737E0740E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284587   (727747) от 22.02.2019
 
 Piano Peace - Piano & Ocean (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
@@ -511,195 +700,6 @@ DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F96A47E36880F951A7002E0116062B0941EE433
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127723   (730358) от 22.04.2017
-
-Дидюля & Chris Wonderful - Аквамарин (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Свадебное путешествие
-2. Страна дураков
-3. Белый месяц
-4. Посох шамана(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40FC5E40E806650361036B41874E60F4C3BECC35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127461   (730477) от 22.04.2017
-
-Two Steps From Hell - Battlecry Anthology (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Soundtrack, Classical, Epic, Instrumental>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730477.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Battlecry Anthology» - оркестровые и инструментальные ремикс-версии с альбома «Battlecry». На саундтрек попало 43 композиции общей длительностью более 2-х часов. Подборка является компиляцией оригинальной музыки. Выпуском пластинки занимался лейбл Two Steps from Hell - американская компания по музыкальному продакшну, которая базируется в Санта-Монике, Калифорния. (   Читать дальше...   )01. Across The Blood Water (Instrumental) (3:34)
-02. Across The Blood Water (Orchestral) (3:40)
-03. Amaria Silverbird (Orchestral) (6:39)
-04. Victory (Instrumental) (5:22)(   Читать дальше...   )Жанр: New-Age, Soundtrack, Classical, Epic, InstrumentalПродолжительность: 02:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7079C78F6527448F6F00FC8C5ACFA852FC8BFE6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021432   (730495) от 31.05.2016
-
-Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [MP3|320 кб/с] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730495.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Seven Seas - 1984
-01. The Seven Seas (3:59)
-02. So Bad - Pipes of Peace (3:46)
-03. Thriller (4:22)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B9E73F9E4A0DD800F6F09BC2FE19427F6FB8D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021371   (730681) от 31.05.2016
-
-Pekka Tiilikainen & Beatmakers - Rautalanka Collection (2006) [MP3|320 кб/с] <Instrumental, Guitar, Beat, Rautalanka, Surf>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leskiaidin tyttaret-twist (Widow's Daughters Twist)
-02. Taivas itkee (Heaven's Crying)
-03. Muisto vain jaa (Only A Fool Breaks His Own Heart)
-04. Uudelleen jos luokses tulla voisin (Mr. Salanov Theme)(   Читать дальше...   )Жанр: Instrumental, Guitar, Beat, Rautalanka, SurfПродолжительность: 01:08:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82D85A3DE3C898376A63D8B9EB130ABCA39A4BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283858   (730742) от 19.02.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here, There and Everywhere + Hey Jude - Symphonic Rock Orchestra
-02. Chopin's Dreams (Etude) - Wave's Computer Orchestra
-03. Hello Mary (BachGounod Ave Maria) - Philharmonics of London
-04. Hummelflug + Ungarischer Tanz No.5 + Leichte Kavallerie + Carmen - Symphonic Rock Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181879192174FD9CD2A8CA09379D73B36B01C049
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283780   (730946) от 19.02.2019
-
-VA - Are You Lonesome Tonight. 23 Romantic Instrumentals (unknown year) Unofficial Release [FLAC|Lossless|image + .cue] <Jazz, Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camels Pick-Nick
-02. Linger A While
-03. Concerto D'Aranjuez
-04. Plaisir D'Amour(   Читать дальше...   )Жанр: Jazz, Easy Listening, InstrumentalПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31678EAE6D17502EBD2926752D2D62584AF40E98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021847   (730969) от 31.05.2016
-
-Geoffrey Downes - Evolutio (1994) [MP3|320 кб/с] <Instrumental, Electronic, Soft Rock>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Africa    03:26
-02. Livin' On A Prayer    03:48
-03. Nights In White Satin    03:09
-04. Little Lies    03:17(   Читать дальше...   )Жанр: Instrumental, Electronic, Soft RockПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC7605EBB949CF4B673882967E07FBD6E1E74C9
 ```
 
 

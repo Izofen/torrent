@@ -1,3 +1,30 @@
+###  Публикация: 1562063   (512506) от 07.07.2022
+
+VA - Chillout Summer Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - World Feel (original mix) (4:04)
+02. Beamy - Fragments (original mix) (4:48)
+03. Martin Hiska - Returning (6:34)
+04. Chillson - Don't Look Back In Anger (feat Marc Hartman) (5:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:989A5BC1F7ACF2C16CF751C1A9EA23C9D5F3025D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315443   (512853) от 20.07.2019
 
 VA - Melicia (2003,2006) [FLAC|Lossless|tracks|tracks + .cue] <Psy-Trance>
@@ -675,33 +702,6 @@ VA - Workout Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44FC837A5159048B57AB597F9C31B5063CF0E20D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242431   (515137) от 22.08.2018
-
-VA - Ultimate Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enfortro - We Came To Conquer (Original Mix)
-02. Air Project & Arsen Gold - Quantum (Original Mix)
-03. Mariomos - Golden Age (Original Mix)
-04. Precious Affliction - Use The Force (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 04:52:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5EDC463C736EE620E889CF3E093B3BD453C21DF
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1369563   (901641) от 24.03.2020
+
+VA - Beatport Electro House: Sound Pack #36 (2020) [MP3|257-320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901641.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Orsen - Before The Storm
+002. Fabri Lopez - Divine Air
+003. Dorian Craft - Avila (Original Mix)
+004. Yeophis - Another Beach(   Читать дальше...   )Жанр: HouseПродолжительность: 13:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CCB13CC9F5788CA79A47CF9E32FE5FC8A1329C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369553   (901729) от 24.03.2020
 
 VA - Mystic Adventures (2020) [MP3|320 Kbps] <New Age, Ambient, Enigmatic>
@@ -668,33 +695,6 @@ VA - Beatport Trance: Sound Pack #335 (2021) [MP3|320 Kbps] <Trance, Electro Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F0002AD5F08BA4335FF4B1A07FBA6F0F1C25764
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492090   (902404) от 30.08.2021
-
-VA - Beatport Jackin House: Sound Pack #337 (2021) [MP3|320 Kbps] <Jackin, Funky House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_902404.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. S-Project - I Need feat Laura Welle
-002. Jerem A - Color Me
-003. Penford & Pearson - So Brand New
-004. Andradez - Splash (Original Mix)(   Читать дальше...   )Жанр: Jackin, Funky House, Nu DiscoПродолжительность: 09:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2551F80FBA5267E7C00BCC7C2EA58CF66A64682
 ```
 
 

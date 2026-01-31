@@ -1,3 +1,30 @@
+###  Публикация: 1132352   (702825) от 08.05.2017
+
+Stars Crusaders - Welcome To Hydra (2017) [MP3|320 Kbps] <Synthpop, Futurepop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue II (01:49)
+02. The Great Exodus (03:50)
+03. Once Again (05:22)
+04. Mystic Forest (04:41)(   Читать дальше...   )Жанр: Synthpop, FuturepopПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E0CBA1647E6FECDDB188D10745565A9A7DFA09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132163   (702912) от 08.05.2017
 
 Valdi Sabev - Imagined Vol. 1 (2017) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
@@ -670,33 +697,6 @@ Marsheaux - Inhale (Remixes) (2019) Undo Records Ltd. [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DB216E3985B9347AE7D1D4AB632234CB97F35CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286844   (705363) от 06.03.2019
-
-Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop, Minimal, New Wave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuerst Ich (3:14)
-02. Ich Bin Nicht Die (3:52)
-03. Mata Hari (4:20)
-04. Morderinnen Kusst Man Nicht (3:38)(   Читать дальше...   )Жанр: Synth-pop, Minimal, New WaveПродолжительность: 00:37:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ECC1670216F65B23F7ABABF9D88A42FB7238BBA
 ```
 
 

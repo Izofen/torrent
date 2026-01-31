@@ -1,3 +1,30 @@
+###  Публикация: 1094374   (929290) от 18.01.2017
+
+VA - Звездная вечеринка. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929290.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Первушин - Поиск 3:00
+002. Adam Levine - Go Now 3:53
+003. Кай Метов & Татьяна Буланова - Прощай Любовь Моя 3:43
+004. Milen - Желанная 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E41BDB0F3AFEBEC677F1960FF0D7DBC128B801
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094628   (929298) от 18.01.2017
 
 VA - Danza Kuduro Dedicated Parade (2017) [MP3|320 Kbps] <Reggae, Calypso, Dancehall, Acapella, Dancehall, Instrumental>
@@ -672,33 +699,6 @@ VA - Радио Шансон. С тобою рядом (2016) [MP3|256 kbps] <Ш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5BA934A8473FDB5B7B0E3785F60BA941193795D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094084   (930951) от 17.01.2017
-
-VA - Trance Kaleidoscope (2017) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_930951.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aurosonic, Sue Mclaren - Captured By Gravity (Original Mix) 8:08
-002. Fabio Xb & Liuck Feat Roxanne Emery - Nowhere To Be Found (Craig Connelly Remix) 6:23
-003. Juventa - A Thousand Words (Original Mix) 7:41
-004. 4 Strings - Wondering (Original Mix) 6:02(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 11:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5103F4B1D78B8D16148FA5969B44799A78B5E5
 ```
 
 

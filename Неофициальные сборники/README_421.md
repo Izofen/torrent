@@ -1,3 +1,29 @@
+###  Публикация: 1030533   (674706) от 30.06.2016
+
+VA - Total Aerobic Workout (110-130 BPM) (2016) [MP3|192-320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_674706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenan G. - Clothes
+02. DJ Bobo - Fiesta Loca
+03. DJ Gollum feat. DJ Cap vs. NICCO - Together Forever (Easter Rave Hymn 2k16)Жанр: DanceПродолжительность: 03:19:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964DDA7FFF36C7B65848050D2FA1C8567FE4346A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030263   (674708) от 30.06.2016
 
 VA - Русская Дискотека ХХ Века - 8 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -683,33 +709,6 @@ VA - My Favourite Hits of 1965 (7CD) от DON Music (2016) [MP3|320 Kbps] <Easy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD5C155719169D5E16405E609A1B88DD5828E480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030118   (676397) от 29.06.2016
-
-VA - Зарубежная Дискотека ХХ Века - 25 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laser Cowboys - Radioactivity ( From The Ukraine 1986 )
-02. Fancy - Chinese Eyes ( 1984 )
-03. Monte Kristo - Sherry Mi-Sai ( 1988 )
-04. Nero - A. E. I. O. U. ( Special DJ Version 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 1:13:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3517B8FCBD8E296EA4CCE6A085881D6B2F69B2
 ```
 
 

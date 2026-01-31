@@ -1,3 +1,30 @@
+###  Публикация: 1280144   (763653) от 01.02.2019
+
+VA - Absolute Dance Winter 2019 [MP3|320 Kbps] <Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763653.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Teknova - Katyusha 2K19 (Melbourne Bounce Mix) 3:16
+002. Adam K & Soha - Need To Feel Loved (Extended Mix) 5:32
+003. Triplo Max - Shadow 2:57
+004. Scooter - Move Your Ass! (Noisecontrollers Remix) 3:27(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836D1D0445EE56B9E5D2F0DAB507F846CC55052F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394382   (763671) от 05.07.2020
 
 VA - Громкие новинки Июля (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - Euro Dance Party Vol.2 (2017) [MP3|320 Kbps] <Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72A7DC35A047BD698D29C976586A0E116F932DF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126887   (764481) от 19.04.2017
-
-VA - Euro Dance Party (2017) [MP3|320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764481.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Set Fire To The Rain (Bourg's Escape In Euro Remix)
-002. Artik & Asti Feat. Run DMC - Половина (V.Bashmakov Eurodance Rmx)
-003. Lacuna - Celebrate The Summer (DJ Walkman Remix)
-004. Aruba Ice & Greysound - Hold Me (Andry Makarov Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50263400880E639F6C373E5DEE388B43569B4B36
 ```
 
 

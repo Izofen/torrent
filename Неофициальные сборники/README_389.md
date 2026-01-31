@@ -1,3 +1,30 @@
+###  Публикация: 1143425   (636946) от 17.06.2017
+
+VA - Relaxing Instrumental Jazz Music (2017) [MP3|320 Kbps] <Smooth Jazz, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636946.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Jazz Piano Bar Academy - Cool Instrumental Song  3:29
+002.  Classical Romantic Piano Music Society - Erotic Dance  3:03
+003.  Cocktail Party Music Collection - Atmospheric Jazz  3:18
+004.  Good Morning Jazz Academy - Jazzy Romance  3:07(   Читать дальше...   )Жанр: Smooth Jazz, InstrumentalПродолжительность: 08:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4789CAE06EC91D4BF7DE8A02FD77D8CCC26FCC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143219   (637078) от 17.06.2017
 
 VA - Jazz Iluzion (2017) [MP3|320 Kbps] <Jazz, Blues>
@@ -699,33 +726,6 @@ VA - Singing in the Car Fresh Hits Acoustic Covers Folk Afternoon Acoustic (2016
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:441CFC760C71907C0BE3461D19352C4D0EAEF075
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033501   (638158) от 11.07.2016
-
-VA - Peaceful Sounds for Deep Sleep (2016) [MP3|320 Kbps] <Downtempo, Chillout, Ambient>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_638158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Waugh - Inner Peace
-02. Michael Keck - Restful Chimes Breeze
-03. Bobby Cole - The Sound of a Chinese Waterfall
-04. Jim Chappell - Seahorses(   Читать дальше...   )Жанр: Downtempo, Chillout, AmbientПродолжительность: 02:25:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F00A885A1E2E2D02DD96131864F6B8A07DFE372
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1140603   (654982) от 07.06.2017
+
+VA - Deephouse Yearning (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_654982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Performative Mode – City Freaks 06:38
+02. Self Explanatory – That Stuff 06:34
+03. Chiffre 100 – Watching Through 06:34
+04. Najwars – No Longer Supported 06:18(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55568F19D59B44531BE496273F5F1CE1C4F57B79
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904065   (655169) от 02.06.2015
 
 Fatboy Slim - Halfway Between The Gutter & The Stars (15th Anniversary) (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks, Electro, House, Big Beat>
@@ -681,33 +708,6 @@ VA - Softly Best Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE391E3B153284CAB388BF2749AE34A2A23C73FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904031   (656992) от 01.06.2015
-
-VA - Palm Garden Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonsugi - Himerius - Darkness Lounge Paradise Mix [07:01]
-02. Seefeld Avec Mady - Ride On [03:44]
-03. Maurizio Piacente - You and Me [03:45]
-04. Sam Swift - Wonderful World [04:57](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F41DB2A23B6869BC0B9E076408BAE4CE02E309
 ```
 
 

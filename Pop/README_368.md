@@ -1,3 +1,84 @@
+###  Публикация: 1844499   (1050112) от 26.12.2025
+
+Bee Gees - Greatest (1979) 2 x CD, Compilation, Reissue, 1987, Polydor [FLAC|Lossless|image + .cue] <Pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Greatest - это сборник лучших хитов группы Bee Gees. Альбом был выпущен лейблом RSO Records в октябре 1979 года и представляет собой ретроспективу творчества группы за период с 1975 по 1979 год. Это была идеальная квинтэссенция звучания, которое вывело Bee Gees на вершину поп-музыкального мира. В то время это вызвало некоторое невысказанное недовольство у старых (   Читать дальше...   )CD1:
+01. Jive Talkin' (3:45)
+02. Night Fever (3:32)
+03. Tragedy (5:03)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:22:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5BC42DFBE78D6A2EC5D441A38DE68F8C07E7117
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844762   (1050179) от 28.12.2025
+
+VA - Venti Compilation 11 (2025) 2 CD [OGG Vorbis|480 Kbps] <Italo-Disco, Disco, Hi NRG, Electro, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ken Laszlo - This Life (I Venti Remix)
+02. Atrium - Dream With Me
+03. David Dima - Time Machine
+04. Gotcha! - This Is Your Time (Original)(   Читать дальше...   )Жанр: Italo-Disco, Disco, Hi NRG, Electro, Synth-popПродолжительность: 02:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FB5E252F23754371ECDC2AB443B55CA0FB5F11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844528   (1050319) от 27.12.2025
+
+Андрей Защитник - Таро (Deluxe album) (2026) [MP3|320 Kbps] <Indie-Folk, Indie-Pop, Synthwawe>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Таро
+02 Руна Любви
+03 Тёмный обряд
+04 Защитный заговор(   Читать дальше...   )Жанр: Indie-Folk, Indie-Pop, SynthwaweПродолжительность: 00:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA4F38F50953A960034FCAB4F09B42ED120CA4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844934   (1050357) от 29.12.2025
 
 Baby's Gang - Challenger (Deluxe Edition) (2016) [OGG Vorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Synth-pop>
@@ -52,7 +133,7 @@ magnet:?xt=urn:btih:F7FF0A62A21E275BCC42A2F0CBE5D9FC232FE7BF
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845659   (1050760) от 
+###  Публикация: 1845659   (1050760) от 02.01.2026
 
 VA - Smash Hits Of The 80's (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop, Pop Rock, Synth-pop>
 
@@ -133,7 +214,7 @@ magnet:?xt=urn:btih:62F435186CB6DE28DD24AB249B6AF537C75F4B60
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845735   (1050855) от 
+###  Публикация: 1845735   (1050855) от 03.01.2026
 
 VA - AM Gold 1963 (1991) Remastered, 1995, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 
@@ -160,7 +241,7 @@ magnet:?xt=urn:btih:4D26A08DE94BD7D20B25D98D649CC94B61BCE3B3
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845733   (1050856) от 
+###  Публикация: 1845733   (1050856) от 03.01.2026
 
 VA - AM Gold 1962 (1991) Remastered, 1994, Steve Carr [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Rhythm & Blues, Soul>
 
@@ -187,7 +268,7 @@ magnet:?xt=urn:btih:684EF3E868602C4BAC757C27F433AA8A7198506A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845951   (1051085) от 
+###  Публикация: 1845951   (1051085) от 04.01.2026
 
 VA - AM Gold 1965 (1990) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 
@@ -214,7 +295,7 @@ magnet:?xt=urn:btih:2B627B7367B5C01C30F3C845765DCF73861817D6
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845936   (1051089) от 
+###  Публикация: 1845936   (1051089) от 04.01.2026
 
 Божья Коровка - Новогодние-застольные (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 
@@ -241,7 +322,7 @@ magnet:?xt=urn:btih:5AAF1C9D917DB3011A09DB3BD5821084588561F2
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845808   (1051092) от 
+###  Публикация: 1845808   (1051092) от 04.01.2026
 
 VA - AM Gold 1964 (1991) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 
@@ -614,87 +695,6 @@ VA - AM Gold 1979 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:218C534EDF8DABA64D8F560BACE89428EEB96E87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846831   (1051571) от 09.01.2026
-
-VA - AM Gold 1978 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Gilder - Hot Child In The City
-02. The Sweet - Love Is Like Oxygen
-03. Boston - Don't Look Back
-04. John Paul Young - Love Is In The Air(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:15:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76DDF681E329B9FE44E48530FCFB5D49515DE70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846763   (1051572) от 09.01.2026
-
-VA - AM Gold 1977 (1997) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Don't Stop
-02. Linda Ronstadt - It's So Easy
-03. Daryl Hall & John Oates - Rich Girl
-04. Climax Blues Band - Couldn't Get It Right(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5830B3757AA7749FCAE831CE0063F0AFDE06E34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846757   (1051573) от 09.01.2026
-
-VA - AM Gold 1976 (1996) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pratt & McClain With Brotherlove - Happy Days
-02. Bay City Rollers - Saturday Night
-03. Peter Frampton - Show Me The Way
-04. Orleans - Still The One(   Читать дальше...   )Жанр: Rock, Funk / Soul, Pop, Soft RockПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B5D3036E7719D558E76CE5FF248C2A49827C17D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1203256   (788669) от 01.02.2018
+
+Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lostly – Since (Album Mix)
+02. Lostly – The Art of Acid (Album Mix)
+03. Lostly & Emma Gillespie – Nightwalker feat. Emma Gillespie (Album Mix)
+04. Lostly – Rage at the Stars (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EF9F4766BFDEB6EA8E6012858A61D4D8004437
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203163   (788676) от 01.02.2018
 
 VA - Dream Mood Energy (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ The Winterhouse - Until Voices Wake Us (2017) DataObscura [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19E91EEF892311900BC1D5EC22489750D35AFBF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202877   (789105) от 31.01.2018
-
-Paul Menska - Travel Memoirs (2016) Terminal Dream [FLAC|Lossless|WEB-DL|tracks] <Ambient, Abstract>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Travel Memoirs (04:20)
-02. Sundown Night (04:06)
-03. Garden Birds (04:56)
-04. Night Walks (04:06)(   Читать дальше...   )Жанр: Ambient, AbstractПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A66EA6D90FF585F4B94F01C14350ACC915BBB9E1
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1143671   (635509) от 18.06.2017
+
+VA - Heliopause: Energy Exdendet Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_635509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mhammed El Alami & Ben Samy - Ocean Dream (Extended Mix)
+002. Johnny Yono - Severed Ties (Extended Mix)
+003. James Kiedis - Here I Stand
+004. Davey Asprey - Fallout (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 11:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC900AADEB090DD6123543915EFEE3341F54348D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908032   (635564) от 13.06.2015
 
 VA - Музыкальный подарок от Europa Plus (2015) [MP3|320 кб/с]<Pop, Dance, Eurodance>
@@ -679,33 +706,6 @@ VA - German Top 100 Single Charts 16.06.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF2DDA578ECD8215EA9D7EC167A1F4F6B9BC28B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143425   (636946) от 17.06.2017
-
-VA - Relaxing Instrumental Jazz Music (2017) [MP3|320 Kbps] <Smooth Jazz, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Jazz Piano Bar Academy - Cool Instrumental Song  3:29
-002.  Classical Romantic Piano Music Society - Erotic Dance  3:03
-003.  Cocktail Party Music Collection - Atmospheric Jazz  3:18
-004.  Good Morning Jazz Academy - Jazzy Romance  3:07(   Читать дальше...   )Жанр: Smooth Jazz, InstrumentalПродолжительность: 08:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4789CAE06EC91D4BF7DE8A02FD77D8CCC26FCC3
 ```
 
 

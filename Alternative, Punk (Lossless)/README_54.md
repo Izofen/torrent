@@ -1,3 +1,27 @@
+###  Публикация: 668189   (726220) от 14.06.2013
+
+P J Harvey & John Parish - A Woman A Man Walked By (2009) [FLAC|Lossless]<Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_726220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative Rock, Indie RockПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128818   (726260) от 26.04.2017
 
 Gorillaz - Humanz (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hip-Hop>
@@ -662,33 +686,6 @@ Magic City Hippies - Water Your Garden (2022) [FLAC|Lossless|WEB-DL|tracks] <Ind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB585A7D678046DF28F7E414DCECEA41206600E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526674   (738157) от 25.01.2022
-
-Palace - Shoals (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Said It Was Easy (2:10)
- 02. Shame On You (3:20)
- 03. Fade (4:27)
- 04. Gravity (5:28)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E11D84BA0E09B63209E4D60AED1CD4E64EE0D2A
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1304383   (563850) от 26.05.2019
+
+VA - Guitar Track - Instrumental Collection by Pop-Music Vol.1 (2018) [MP3|320 Kbps] <Metal, Hard-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_563850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.nobody.one - Razoresolve (04:53)
+02.Head & Head - Pepper and Sol (05:04)
+03.Кирилл Коняев - Spectrum (05:06)
+04.Inceptum - Prologue (03:23)(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A13A0506328264B0CEBBC63DAD905B107A5ED7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304381   (563870) от 26.05.2019
 
 VA - Guitar Track - Instrumental Collection by Pop-Music Vol.2 (2018) [MP3|320 Kbps] <Metal, Hard-Rock>
@@ -698,33 +725,6 @@ VA - The Golden Soul (2022) [MP3|320 Kbps] <Pop, Jazz, RnB, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1BC88FBF401192E949B5CDF5C722ADEB24056C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152487   (565392) от 23.07.2017
-
-VA - Record Super Chart #495 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yellow Claw - Open  3:31
-02.  Fedde Le Grand vs. Ian Carey - Keep On Rising (Sensation The Final Anthem)  4:48
-03.  Dzeko - Fluxland 2017  2:39
-04.  Abel Ramos & Albert Neve - Flat Beat  4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5616BA134DBC5F2F7E49A5DC025FD995451EF006
 ```
 
 

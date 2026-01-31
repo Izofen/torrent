@@ -1,3 +1,30 @@
+###  Публикация: 1312410   (532557) от 04.07.2019
+
+VA - Uplifting Trance Sessions Vol.15 (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_532557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flatlex - Frozen Sunset (Original Mix) 6:33
+02. Nico Cranxx - Only A Memory (Extended Mix) 6:58
+03. DreamLife & Aleksey Gunichev - Wonderful Morning (Original Mix) 7:43
+04. Henry Moe x Mike Phoebus & Amidst - Spring Blossoms (Original Mix) 5:17(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3264C83C3E3409A66281AFC106E588379DEC52F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312419   (532563) от 04.07.2019
 
 Jeremiah Kane - Discography 6 Releases (2017-2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
@@ -661,33 +688,6 @@ Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871D72964FB38C6BA1D92466C544989F54031112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239789   (535245) от 07.08.2018
-
-VA - Best Of Trance 2018 Vol.05 (2018) [MP3|320 Kbps] <Trance, Progresive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mango & Astroleaf - We Tried (Talamanca Vocal Remix) 7:29
-02. Andromedha - Purple Skies (Original Mix) 4:38
-03. Sound Quelle - Orlaz (Original Mix) 5:17
-04. Airdraw & Jo.E feat. Aaren - Bryde's Whale (New Ordinance Edit) 7:06(   Читать дальше...   )Жанр: Trance, Progresive TranceПродолжительность: 02:03:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB4A6A4569039B1B3B92C270DAC6CA8D8846202E
 ```
 
 

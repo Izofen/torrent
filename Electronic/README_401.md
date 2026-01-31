@@ -1,3 +1,30 @@
+###  Публикация: 1204759   (784396) от 07.02.2018
+
+ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Gone (08:11)
+02. Ascent & Argus - Glaciers of Oblivion (08:36)
+03. Followed by Light (08:32)
+04. Wind Song (07:55)(   Читать дальше...   )Жанр: Balearic, Downtempo, AmbienПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92DCA40C3A3036F61E1F56DBA83FF806CCE9130F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204725   (784398) от 07.02.2018
 
 VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
@@ -668,33 +695,6 @@ VA - Psychedelic Awakening (Compiled by Ace Ventura) (2018) Future Music Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFC76AFC59CA162F466A224AEF95005FAFB0D753
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204247   (784956) от 05.02.2018
-
-Headphone Science (Forbid, HdSc) - Discography 15 Releases (2003-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Leftfield, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_784956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Here? (03:19)
- 02. Nowhere (04:50)
- 03. Let It Go (03:44)
- 04. 401 (03:21)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/ExperimentalПродолжительность: 00:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB109725B8955CAFFA8FE78642B22A910213877
 ```
 
 

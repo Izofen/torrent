@@ -1,3 +1,30 @@
+###  Публикация: 1107998   (866477) от 23.02.2017
+
+VA - The Sweetest Taboo Vol.2: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensotango - Libre
+02. Gabriel Calia - Brilliant Case
+03. La Vida Loca - Gonna Fly Now
+04. Paul Stevens - Nice to Be with You(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76484635CE9A57CC096A0D6DBA582C4428B70F14
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107622   (866478) от 23.02.2017
 
 VA - Disco Nights, Vol. 2 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -668,33 +695,6 @@ VA - Ibiza Forecast (2017) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C2B2C0CBCF4B1498633C202F78CE996F3723E60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107396   (868331) от 22.02.2017
-
-VA - Fantastic Lounge (Deep And Chillhouse Hit's) (2017) [MP3|320 Kbps] <Lounge, Deep, Chillhouse>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ephemeral - Ordinary Day (Alma Mix)  3:01
-02.  Blue Side - Swords (Soave Rebuild Version)  3:31
-03.  Playgate - Rome Boulevard (Radio Cut)  3:11
-04.  Shangly Joe - Cycling (Cut Ball)  2:59(   Читать дальше...   )Жанр: Lounge, Deep, ChillhouseПродолжительность: 00:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10C3AEEAF86D2899E4DEFD1A4D0CEB14B93FA31
 ```
 
 

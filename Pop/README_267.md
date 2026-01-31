@@ -1,3 +1,84 @@
+###  Публикация: 1523936   (748098) от 13.01.2022
+
+VA - ZYX Italo Disco New Generation Vol. 18 (2021) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Lonely Night (Flemming Dalum Remix) (6:23)
+02. George Aaron - Midnight Love (Extended Version) (6:27)
+03. Victor Ark & Daniela - Bacia Me (Besame) (Spanish Remix) (6:52)
+04. Tom Hooker & Tam Harrow - You And I (Extended Version) (5:17)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67FF702393E0AF6D8975188BAF8BC413A29A23F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281926   (748290) от 10.02.2019
+
+VA - Disco Night Fever (1979) 3LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Village People - Y.M.C.A. (4:50)
+02. Sylvester - I Who Have Nothing (4:00)
+03. Unknown Artist - Grease (3:22)
+04. Ritchie Family - I Feel Disco Good (3:36)(   Читать дальше...   )Жанр: Electronic, Funk Soul, Disco, PopПродолжительность: 03:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A2A6B81C6D2D77219AB4023366E10BE4038FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281390   (748302) от 10.02.2019
+
+VA - Power Of Love The Ultimate Collection (2019) 5CD [MP3|320 Kbps] <Pop, Indie, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748302.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01:
+01. Huey Lewis and the News - The Power Of Love
+02. Kim Carnes - Bette Davis Eyes
+03. Cher - If I Could Turn Back Time(   Читать дальше...   )Жанр: Pop, Indie, RockПродолжительность: 06:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E02A6228CDA5C25FBC75FB132605A18B7ECD93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396160   (748401) от 14.07.2020
 
 La Bionda - 4 Albums (1978-1980) LP Mint [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -612,87 +693,6 @@ Rico Seith - Ich zeig dir meine Welt (2009) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97B6FA5F84F6022E73A81236B2B0EA90B6680ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281493   (751505) от 08.02.2019
-
-Макс Барских - 7 (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Берега
-2. Никто
-3. Зачем
-4. Неземная(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6A4F0A54C7DF91A80B25FB4F79A247678112B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523356   (751544) от 11.01.2022
-
-Minacelentano - The complete recordings (2021) 2xCD, Compilation, Remastered, Sony Music [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз, приуроченный к двадцатипятилетию первого совместного альбома Мины и Челентано - "Mina Celentano" 1998 года, достигнувшего вершины итальянского хит-парада и получившего две платиновых сертификации. В 2016 году вышел ещё один студийный альбом дуэта - "Le migliori", который превзошёл успех предшественника, получив семь платин. На этом сборнике (   Читать дальше...   )CD - 1:
-01. Niente E' Andato Perso
-02. Eva
-03. A Un Passo Da Te(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15648CA7CE5657A0D173CDD0A0D0D9C929BD2224
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281504   (751608) от 08.02.2019
-
-Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. imagine
-02. needy
-03. NASA
-04. bloodline(   Читать дальше...   )Жанр: Pop, Hip-Hop, R&BПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A8448677C845CFE762D759FDF4C14AADD754218
 ```
 
 

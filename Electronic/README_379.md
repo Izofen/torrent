@@ -1,3 +1,30 @@
+###  Публикация: 1215595   (758217) от 26.03.2018
+
+VA - Back To Love 03.03 (2003) [FLAC|Lossless|tracks] < House, Disco, Hip-Hop, Acid House, Garage House >
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Frankie Knuckles - The Whistle Song (EK 12'' Mix) (7:02)
+02.Lisa Stansfield - People Hold On (New Jersey Jazz Mix) (6:48)
+03.Sydney Youngblood - If Only I Could (Extended Version) (6:30)
+04.Crystal Waters - Gypsy Woman (She's Homeless) (Basement Boy 'Strip To The Bone' Mix) (6:52)(   Читать дальше...   )Жанр: House, Disco, Hip-Hop, Acid House, Garage HouseПродолжительность: 02:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527A98B681BD910C56788CFF5FFE7BD334B16CF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215453   (758220) от 26.03.2018
 
 Steve Parker - Interplanetary Dust LP (2018) Planet Rhythm [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -668,33 +695,6 @@ VA - Groovedelicious, Vol. 2 (40 Deep & Tech House Sounds) (2016) [MP3|320 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F016A402FC18015FD86A441E9C89FEBAE547D84B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017281   (761226) от 17.05.2016
-
-VA - Afternoon - Acid Jazz & Chill Out (2016) [MP3|320 кб/с] <Lounge, Chill Out, Jazzy>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_761226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beluga's Trio - The Spirit of the Hawk (04:19)
-02. Beluga's Trio - Touch the Sky (02:48)
-03. Shelly Sony - Roar (03:57)
-04. Shelly Sony - Diamonds (04:59)(   Читать дальше...   )Производство: Music BrokersЖанр: Lounge, Chill Out, JazzyПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192C86374FF023F8ADFF566B820C56F79A394622
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1102519   (891415) от 09.02.2017
+
+VA - Tropical Dream Born to Relax (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Stay on Course [00:06:05]
+02. Enrico Donner - Ocean Breathes [00:05:49]
+03. Cane Garden Quartet - Bom Dia [00:05:47]
+04. Baghira - A Thrill of Anticipation [00:05:36](   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B5EEAE1F47A5769397E502FD63365C8FEA13592
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994310   (891542) от 07.03.2016
 
 VA - Die Hit-Giganten - Hits Der 90er (2004) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Euro House>
@@ -672,33 +699,6 @@ VA - Sensual Lounge Affair: Selected Lounge and Chillout Vibes for Love (2017) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A87C7D300DCDD04993378487DDA03A6C95B81B18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101458   (894842) от 07.02.2017
-
-VA - Deep Red Chillout (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Recurring Events  6:16
-02.  Enrico Donner - Lido Shuffle  5:57
-03.  Cane Garden Quartet - Shine A Light On Me (feat. DJ Riquo)  5:23
-04.  Blue Wave & Don Gorda - Lost For Words  5:20(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C291FC0C50A3CB4B37C2D479DB99CCD5AC502997
 ```
 
 

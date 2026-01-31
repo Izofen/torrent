@@ -1,3 +1,192 @@
+###  Публикация: 322114   (754925) от 10.07.2020
+
+Ennio Morricone - The Very Best Of (1995) [APE|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man With The Harmonica (2:56)
+02. Chi Mai (5:06)
+03. Cockey's Song (4:05)
+04. For A Few Dollars More (2:40)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77E5E8C422EB56614DBCE94D6552E28500D52DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 663023   (754996) от 31.05.2013
+
+Wise Hand - Manschoud (1999) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manschoud (6:31)
+02. Timeless (3:46)
+03. Safi (5:46)
+04. People (7:35)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C040631310DA7E4BDE5E2AD372563A042AD30F9A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395059   (755191) от 10.07.2020
+
+Atom Music Audio - Exogen: Metahuman Themes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyborg [03:05]
+02. Savior of the World [02:17]
+03. Firestorm [02:37]
+04. Xavier [02:49](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0528A4B33CB44D67AA7F825CB0306635A79FB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395269   (755275) от 10.07.2020
+
+Ennio Morricone - Famous Morricone Soundtracks (2020) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ennio Morricone - Morricone: Jill's Theme (2016 Version)
+02. Ennio Morricone - Gabriel's Oboe (From "The Mission")
+03. Ennio Morricone - Morricone: On Earth As It Is In Heaven (2016 Version)
+04. Ennio Morricone - Morricone: Chi Mai (2016 Version)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 03:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4B487499C709E0864C859B1C0481F70DD59BCA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522131   (755290) от 09.01.2022
+
+Temple Song Hearts - Temple Song Hearts XIV (2020) [FLAC|Lossless|WEB-DL|tracks] <World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haibe Ajike Amar Sakal
+02. Be Brave
+03. Dure Aji Bahu Dure
+04. My Silence Speaks(   Читать дальше...   )Жанр: World, MeditativeПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C5D8775CA3C33A72661F9E90A502B86C4A6075
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395055   (755402) от 10.07.2020
+
+Atom Music Audio - Epic Nature Series: Earth (Planet of Life) (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Earth [02:55]
+02. Planet of Life [03:30]
+03. Vast Landscape [02:50]
+04. Gift of Life [02:40](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E37D94F455E3F5FA04AEB60B3736E6E2BF72CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017963   (755591) от 20.05.2016
+
+VA - OST - The Angry Birds Movie (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Pop, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blake Shelton - Friends
+02. Demi Lovato - I Will Survive
+03. Matoma - Wonderful Life (Mi Oh My)
+04. Imagine Dragons - On Top of the World(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7B009A6B8A15A86123EA36FCE89EA022D6B644
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018615   (755677) от 20.05.2016
 
 Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -506,195 +695,6 @@ magnet:?xt=urn:btih:569753CF4030056F82269635BCE3572E94C957DD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED21EC2460E31BD1FFFC13FF20CE40046720497
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214833   (763074) от 23.03.2018
-
-Oscar Javelot - Inner Presence (2018) [MP3|320 Kbps] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naher zu mir (To be one) (03:53)
- 02. So sicher wie im Himmel (04:42)
- 03. Good Time (04:19)
- 04. Segel im Wind (03:17)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64233814E65B5814DDB35E8D9A79E2CC237BEAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017271   (763124) от 16.05.2016
-
-2002 - Believe (2012) [FLAC|Lossless|tracks + .cue] <NewAge, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Believe.
-02 - A Dream Creation.
-03 - Chain of Life.
-04 - We Meet Again.(   Читать дальше...   )Жанр: NewAge, RelaxПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86DA092D0753515235B091C21F6226B9F838119
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214625   (763173) от 23.03.2018
-
-David Wright & Carys - Prophecy (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watching for Nephele 3:55
-02. Serinus Rising 5:07
-03. Night Tide 6:29
-04. Diving Skywards 3:44(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1F9E576903B49C49E1D8D2B58348413ADF59D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521752   (763444) от 04.01.2022
-
-VA - Dark Country 1-5 (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Saraceno - Evil Ways (Justice Mix) (3:27)
-02. Robin Loxley & Jay Hawke - Crop Won't Ever Come (3:52)
-03. Blues Saraceno - Judgement Day (4:26)
-04. Blues Saraceno - Run On (3:29)(   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 03:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F99BA3F465FD3835A9AD8C7627ADA42FB858DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 316806   (763488) от 06.04.2011
-
-Тролль Гнёт Ель - Хмъёльнир (2011) [MP3|320 kbps]<Folk-Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хмъёльнир (04:06)
-02. Beer Mantra (04:40)
-03. Ave Celia! (04:28)
-04. Камаринская (03:34)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89D710CAA4C6CDB01DB3E31C69878D6C0011FC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521639   (763533) от 04.01.2022
-
-Claudio Simonetti - Стальные руки / Hands of Steel - Vendetta dal Futuro (1986) 2021 [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hands Of Steel
-02. Paco Querak
-03. Atomic Cyborg
-04. Arms Of Steel(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C094E9C8BFFB71343956594022A59C54913FA45F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394455   (763716) от 05.07.2020
-
-VA - Sons of Anarchy - The Complete Fantasy Playlist (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Stage & Screen, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voidoid - Sons of Anarchy Theme (2:19)
- 02. Tim Barton - Personal Jesus (3:47)
- 03. Top Guns - Born to Lose (2:52)
- 04. Calli Malpas - Titanium (3:22)(   Читать дальше...   )Жанр: Rock, Stage & Screen, SoundtrackПродолжительность: 01:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D710452ED138D03B69F5B1360D9BCDB2BEDEFFD6
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 990814   (910064) от 26.02.2016
+
+Millimetric - Reconfiguration (2011) M-Tronic [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, EBM>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoking Kills (The Hacker Remix) (06:57)
+02. Dans Mes Yeux (Lyynk Remix) (05:11)
+03. Manic Depression (David Carretta Remix) (07:27)
+04. Colargol (Adriano Canzian Remix) (06:53)(   Читать дальше...   )Жанр: Techno, Electro, EBMПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3C094639010A57B8DDA74600DFF3FA62CD7490
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990619   (910113) от 26.02.2016
 
 VA - Suntribe Vol.8 (2004) [FLAC|Lossless|tracks + .cue] <House>
@@ -656,33 +683,6 @@ Chris Oblivion - The Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy/Goa Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E766CDC05058C4D2F4D5095E4B676B96120E2E5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368197   (912270) от 18.03.2020
-
-VA - Sunset Moods: Tulum (A Selection of Finest Sundowner Island Moods & Grooves) (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Afro House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arco – Touch the Sun (06:40)
-02. Karol XVII & MB Valence & Lazarusman – Whispers | Gorge Extended Remix (07:04)
-03. Mika Olson – Drift Away (06:54)
-04. Matthew1626 – Don't Give Up (06:42)(   Читать дальше...   )Жанр: EDM, Deep House, Afro House, Nu DiscoПродолжительность: 01:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D517AF5D27C490F032CEB1BAB96D31648DE4E193
 ```
 
 

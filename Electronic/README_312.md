@@ -1,3 +1,30 @@
+###  Публикация: 1230552   (614060) от 13.06.2018
+
+Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Environment (06:10)
+ 02. Road to Nowhere (04:18)
+ 03. Solar Halos (05:01)
+ 04. Beyond the Edge (05:14)(   Читать дальше...   )Жанр: Ambient, SpaceПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23602095E43B601B4BC4D9C93243BB985DA7803D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 684903   (614182) от 31.07.2013
 
 VA - Trancemaster vol.01-7006 (1992-2012) [MP3|320 кб/с]<Trance, Electronic>
@@ -671,33 +698,6 @@ Michael E - Behind Closed Doors (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905223AEF6E8E9F93EF9FD8CACB2C2B8E1D1AC98
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146274   (616341) от 28.06.2017
-
-Michael E - Behind Closed Doors (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chill Out, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_616341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Try  (6:26)
-02.  Over The Hills & Far Away  (6:25)
-03.  Balearic Soul  (6:01)
-04.  Behind Closed Doors  (7:13)(   Читать дальше...   )Жанр: Downtempo, Chill Out, LoungeПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CB3405EC0D36D339B6F5947E4B0EB8953D03DD
 ```
 
 

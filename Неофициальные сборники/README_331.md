@@ -1,3 +1,30 @@
+###  Публикация: 924709   (557275) от 04.08.2015
+
+VA - 100 золотых зарубежных хитов 80 - 90-х (2015) [MP3|320 кб/с]<Dance, Disco, Eurodance, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_557275.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Ross - Valentino Mon Amour
+002. Annie Anner - Night In The City
+003. Antares - Ride On A Meteorite
+004. Apotheosis - O Fortuna(   Читать дальше...   )Жанр: Dance, Disco, Eurodance, PopПродолжительность: 08:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2257DB57DFEF950A950E7528192FD8A96CE89FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924716   (557307) от 04.08.2015
 
 VA - Музыка Нашествия 2015 (2015) [MP3|320 кб/с]<Rock>
@@ -670,33 +697,6 @@ VA - Фитнес 50 треков Vol.2 (2019) [MP3|320 Kbps] <Club, House, Othe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78A87DEA6CC7BEB0FC1D5AC181C14086081B1259
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153567   (558279) от 27.07.2017
-
-VA - Top Selection Trance Today (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mind-X - Fantasy (Extended Mix)  6:11
-02.  Paul Denton - Zombie (Original Mix)  6:59
-03.  Mehdi Belkadi - Beautiful Goodbye (Original Mix)  6:02
-04.  Steve Allen & UDM pres. Nightflyers - Nightflyers  3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE88E5D08A052BA22FA203E634D09ABCA74BC36
 ```
 
 

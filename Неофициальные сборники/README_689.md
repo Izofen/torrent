@@ -1,3 +1,30 @@
+###  Публикация: 1840449   (1047231) от 05.12.2025
+
+VA - Solo Projects From Ария (1985-2025) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маврин - Крылья. instrumental
+02. Дубинин & Маврин - Ужас и Страх. live
+03. Беркут - Берёзы
+04. Маврин - Иллюзия(   Читать дальше...   )Жанр: RockПродолжительность: 07:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFCC5983B274B177B574F182265FFA7F8276734B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840791   (1047588) от 07.12.2025
 
 VA - 60 minutes. Old School Dance Music vol.32 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Piano House, Garage House, Nu Disco>
@@ -668,33 +695,6 @@ VA - Pop Positive Hub (2025) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35797521A4C045663985CC207F5F3631A666575C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842377   (1048734) от 15.12.2025
-
-VA - National Pop Dance Music Vol.127 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048734.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. We Are The Night - Night At Noon (03:30)
- 002. Yh - Fading Echoes (03:20)
- 003. Selena - I Could Fall In Love (04:41)
- 004. Synne Sorgjerd - Jeg Gar Ned Med Dette Skipet (03:07)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 11:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDF6DAF62E6ACF15F0C2BCBB5D8A2BAF5EDE2A2
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 1389730   (783348) от 14.06.2020
+
+Giorgio Costantini - Atmosphere (432 Hz) (2015) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age, Modern Classical, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain (432 Hz Version) (2:54)
+ 02. Cantus (432 Hz Version) (3:56)
+ 03. Adagio (432 Hz Version) (4:39)
+ 04. Eolian (432 Hz Version) (3:17)(   Читать дальше...   )Жанр: Electronic, New Age, Modern Classical, PianoПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B5E8C6C8DEC68A8471DC2D54C87AFFA99EA1EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205046   (783767) от 09.02.2018
+
+Justin Johnson - If Walls Could Talk (2016) [MP3|320 Kbps] <Roots Acoustic Instrumental, Americana, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summertime
+02. Tennessee Turkey (And a Carolina Chick)
+03. Wayfaring Stranger
+04. Snowy Morning Coming Down(   Читать дальше...   )Жанр: Roots Acoustic Instrumental, Americana, Folk, Country, BluegrassПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FCE343916E413C20B81975A8C0F9006BE94AF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205192   (783770) от 09.02.2018
+
+VA - Fifty Shades Freed (Original Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hailee Steinfeld & BloodPop® – Capital Letters (3:39)
+02. Liam Payne & Rita Ora – For You (Fifty Shades Freed) (4:05)
+03. Black Atlass – Sacrifice (feat. Jessie Reyez) (3:29)
+04. Whethan & Dua Lipa – High (3:16)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C87F30CF48B5F60739C42E85517E50515DFB4E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204862   (784020) от 08.02.2018
+
+Armik - Pacifica (2018) [FLAC|24/96|Lossless|WEB-DL|tracks|] <Nuevo Flamenco>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pacifica (4:20)
+02. Forever In Love (5:10)
+03. Caribbean Dreams (4:28)
+04. Heaven In Your Eyes (4:33)(   Читать дальше...   )Жанр: Nuevo FlamencoПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33E2A943F496220C7A0EBF4D5FF8F0DE3D08614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205086   (784027) от 08.02.2018
+
+Jeff Russo - Видоизмененный углерод | Altered Carbon (Original Series Soundtrack) (2018) Lakeshore Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altered Carbon Main Titles (01:40)
+02. Consciousness (05:23)
+03. Last Stand Kovacs V1 (00:34)
+04. Bancroft Shows Kovacs (03:45)(   Читать дальше...   )Жанр: Ambient, SoundtrackПродолжительность: 00:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5487561DFD14A73353003D8EA0D27629C3CF23C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204702   (784065) от 08.02.2018
+
+Opii - Encounters (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Enigmatic, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Figures Of Mist (07:04)
+02. Moonlight Talk (04:42)
+03. Path To Eternity (07:45)
+04. Deep Blue (04:14)(   Читать дальше...   )Жанр: New Age, Enigmatic, ChilloutПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB38ABFF511EC02FCC3E402D18454BD5C9B1965
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389293   (784247) от 11.06.2020
+
+Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack 2 (2020) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. From Other Eyes
+02. Surprise
+03. Molly's Kitchen(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23374548CBE37C1D133E17F3E46CE3AB3DAB809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204538   (784342) от 07.02.2018
 
 Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
@@ -504,194 +693,6 @@ Hooman Rad - Quiet Dream of a Sweetbrier (2017) [MP3|320 Kbps] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E63B6D50D3C6D4541AEA35ED75B8AF4B8EF4AA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123653   (786182) от 09.04.2017
-
-Erwann Kermorvant, Axelle Renoir - 36 Quai des Orfevres (Original Soundtrack) (2004) [FLAC|Lossless|tracks] <Stage & Screen, OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Camille (4:12)
-02. 36 (4:02)
-03. The Armoured Van (3:44)
-04. Club (3:42)(   Читать дальше...   )Жанр: Stage & Screen, OSTПродолжительность: 00:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86E7403D5DCC5C60F0B1964D02D88F603536CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123668   (786379) от 08.04.2017
-
-VA - Sunrise Energy Morning Meditation (Deep Meditation Music) (2017) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Interstellar Meditation Music Zone - Sunrise Energy (Morning Meditation)  3:43
-02.  Mantra Yoga Music Oasis - Open Your Eyes (Power Day)  3:55
-03.  Relax Time Universe - Relax For Mind And Body  3:17
-04.  Relax Time Universe - Breathing Technique (Slow)  3:36(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 03:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB96F21987582C67091329B7C37C2ACFB560102D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388281   (786746) от 06.06.2020
-
-Loretta Lynn - Don't Come Home-A-Drinkin' (1967) [FLAC|Lossless|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Come Home A Drinkin' (With Lovin' On Your Mind) (2:10)
-02. I Really Don't Want To Know (2:57)
-03. Tomorrow Never Comes (2:51)
-04. There Goes My Everything (2:48)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF4DD2748C626219C6D85F128D395391F02DB97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388011   (786759) от 06.06.2020
-
-John Prine - John Prine (1971) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illegal Smile (3:14)
-02. Spanish Pipedream (2:41)
-03. Hello In There (4:30)
-04. Sam Stone (4:15)(   Читать дальше...   )Жанр: Rock, Folk Rock, Country RockПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA7A47D72C78551CEF0A380F8290CEE6F30E365B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512453   (787081) от 25.11.2021
-
-Deep Forest - Sweet Lullaby Remixes (1992/2007) 2 singles & Remixes [APE|Lossless|image + .cue, tracks + .cue] <World music, Ambient, House>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Forest первыми, среди тяготеющих к этносу групп, придали прежде пунктирным и хаотическим «вкраплениям» элементов world music законченную, совершенную форму, эталоном которой можно считать выдающийся хит группы «Sweet Lullaby». Этот дебютный сингл дуэта стал международным бестселлером, выведя на лидирующие позиции европейских хит-парадов первый альбом Deep Forest.1992 - Sweet Lullaby (5-Remixes)
-1992 - Sweet Lullaby (7-Tracks)
-2007 - Sweet Lullaby RemixedЖанр: World music, Ambient, HouseПродолжительность: 03:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5997EF8360BB6928554DD8969C3ECC7CA17878
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512385   (787113) от 25.11.2021
-
-Gary Ryan - Midnight Guitar (2007) [MP3|320 Kbps] <Instrumental, Guitar, Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mallorca Op.202 (6:45)
-02. Recuerdos De La Alhambra (4:35)
-03. Lute Suite No. 4 in E Major (BWV 1006a) - Prelude (4:45)
-04. Lute Suite No. 4 in E Major (BWV 1006a) - Gavotte En Rondeau (2:54)(   Читать дальше...   )Жанр: Instrumental, Guitar, ClassicalПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832C108DCF06ACD25771BA2AF8D5F2385AB709AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276700   (787534) от 17.01.2019
-
-Shinnobu - The Enigma VII (Star Seeds) (2019) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787534.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Indigo (5:14)
-2.By Peace (5:05)
-3.Awakening Within Me (5:57)
-4.Like a Shadow (6:09)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43BE3F23EAB563F0E3F3ED151989FC738A26795C
 ```
 
 

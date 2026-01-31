@@ -1,3 +1,30 @@
+###  Публикация: 1386030   (795874) от 27.05.2020
+
+VA - Midnight Rhythm Disco: New Generation (2020) [MP3|320 Kbps] <Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795874.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Bach - In The Night
+002. Dita Ishita - Knock
+003. Right Direction - Midnight Rhythm
+004. The Morning After - Get It(   Читать дальше...   )Жанр: Disco, Dance, PopПродолжительность: 11:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363C6D26A866B2F8496B8936E21D3E26078D1E55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385963   (795879) от 27.05.2020
 
 Gary Glitter - 100% Gary Glitter (2020) [MP3|320 Kbps] <Rock, Glam Rock>
@@ -668,33 +695,6 @@ VA - Hardstyle Dance: Fitness Energetic Sounds (2021) [MP3|320 Kbps] <Hard Dance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE517E3814D68A675E569D6FBDC836F497BDDE19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011802   (796307) от 28.04.2016
-
-VA - Попсовый армагедон от Русского радио (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796307.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Артем Пивоваров - Стихия
-002. Bahh Tee - Как Ты Посмела
-003. Александр Антонов - Это Все Что Я Могу
-004. Artem Display - Жизнь Хороша(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:174B046C593B559D63A044B03D10A2DEE09AD894
 ```
 
 

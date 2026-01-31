@@ -1,3 +1,30 @@
+###  Публикация: 1015151   (774925) от 10.05.2016
+
+VA - Top list. Dance sound (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774925.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Lambert - Ghost Town
+002. Walk The Moon - Shut Up and Dance
+003. Nicky Jam & Enrique Iglesias - El Perdon
+004. Silbermond - Leichtes Gepack(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C501A4F8AFA4B139561B52D89F187E587647793
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277859   (775011) от 22.01.2019
 
 VA - Dance (2019)[MP3|320 Kbps] <Pop>
@@ -663,33 +690,6 @@ VA - Top Club Music World Hits 2516 (2016) [MP3|320 кб/с] <House, Future Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8518767DCBFABDF31946FD56EF98D9059BA24507
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014952   (775841) от 09.05.2016
-
-VA - Progressive Beats Best of Music Vol. 2 (2016) [MP3|320 кб/с] <Trance, House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cosmic Gate - Exploration Of Space (Mark Sixma Remix) 4:21
-002. JES - Dreamweaver (Roger Shah Club Mix) 8:06
-003. Denis Kenzo Feat. Vika - What I See (Original Mix) 7:00
-004. The Chainsmokers - New York City (Dash Berlin Extended Remix) 5:27(   Читать дальше...   )Жанр: Trance, House, ProgressiveПродолжительность: 09:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C98ECF9CC7D12F5FE3943B18387F1C5B6ABA730
 ```
 
 

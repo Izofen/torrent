@@ -1,3 +1,30 @@
+###  Публикация: 1152884   (1028272) от 02.03.2021
+
+The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1028272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Years (prologue) (6:09)
+02. Gloria (4:50)
+03. WeMoveForward (8:08)
+04. Days of Thunder (5:24)(   Читать дальше...   )Жанр: Synthwave, SynthpopПродолжительность: 14:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12DD0B70655F0F7571A6C31315AFC829D029FFC6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202913   (1028348) от 02.03.2021
 
 Alka - Discography 5 Releases (2007-2020) Electronic Eel Rec. [FLAC|Lossless|tracks+.cue, tracks] <IDM, Electro, Glitch, Downtempo, Ambient>
@@ -663,33 +690,6 @@ Taavi Laatsit (Galaktlan, Kulgurid, Vonsuck, Uni) - Discography 14 Releases (199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB7BC685198C654B283FE54709EF7560601660B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036561   (1028705) от 28.02.2021
-
-Aligning Minds (Daniel A. Merrill, A Path Untold) - Collection 4 Releases (2011-2015) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Psychill, Dubstep, Glitch>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Consciousness Aqueduct (05:48)
- 02. Empyrealms (07:15)
- 03. Inwardly Majestic (06:54)
- 04. Sansing's Glimpse (06:17)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDM, Downtempo, Psychill, Breaks, Dubstep, Ambient, Glitch •Продолжительность: 04:30:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D941C953773677976F57FB4C88B050123E2A0AD
 ```
 
 

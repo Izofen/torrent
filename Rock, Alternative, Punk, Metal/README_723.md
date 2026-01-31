@@ -1,3 +1,327 @@
+###  Публикация: 1568976   (455727) от 11.08.2022
+
+Fast Eddie - Shake A Tail Feather (2022)  [FLAC|24/96|tracks|WEB-DL] <Rock, Rhythm & Blues, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shake A Tail Feather
+ 02 - I Don't Need No Doctor
+ 03 - Sugar Coated Love
+ 04 - Sweet Sensation(   Читать дальше...   )Жанр: Rock, Rhythm & Blues, SoulПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:415DAE7D2C000F5B7B8BCCB990A1993BD342750C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408323   (455748) от 12.09.2020
+
+Роман Разум и ансамбль Новороссия - Нас Миллионы Русских (2020) [MP3|256-320 Kbps] <Военная песня, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:01:24]
+02. Дети рисуют Мир [00:04:09]
+03. Нас миллионы Русских [00:03:56]
+04. Город спит [00:03:31](   Читать дальше...   )Жанр: Военная песня, RockПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2E36265027C81DDC4F37DBC5C533ACE68B0380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942316   (455754) от 30.09.2015
+
+Queensryche - Condition Human (2015) [MP3|320 кб/с]<Heavy/ Power/ Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arrow Of Time
+02. Guardian
+03. Hellfire
+04. Toxic Remedy(   Читать дальше...   )Жанр: Heavy/ Power/ Progressive MetalПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B9E9400EF03C06C0FB8AC8F5CC14272A4FD923
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569090   (455802) от 11.08.2022
+
+Norma Jean - Deathrattle Sing for Me (2022) [MP3|320 Kbps] <Chaotic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 1994 [00:03:32]
+02 - Call for the Blood [00:03:14]
+03 - Spearmint Revolt [00:05:02]
+04 - Memorial Hoard [00:04:49](   Читать дальше...   )Жанр: Chaotic MetalcoreПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:464449D4B14A1C7FBDFA0EE665F05769DD8B66C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568994   (455809) от 11.08.2022
+
+Coal Chamber - The Complete Roadrunner Collection 1997–2003 (2013) box set [FLAC|Lossless|image + .cue] <Alternative, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Headstones And The Walking Dead
+02 - Big Truck (Hand-On-Wheel Mix)
+03 - Pig (Original Version)
+04 - Bradley (Going Postal Mix)(   Читать дальше...   )Жанр: Alternative, Nu MetalПродолжительность: 01:09:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DF7B0918E8D9446E68166F5E03B18B0E9EEA25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569108   (455811) от 11.08.2022
+
+Yard Act - The Overload (2022) 2CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455811.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1 - The Overload:
+01. The Overload (3:16)
+02. Dead Horse (3:39)
+03. Payday (2:54)(   Читать дальше...   )Жанр: Alternative Rock, Post-PunkПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00092B0B4BDE44E31EFC7A5B83AE9362772FA09
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568914   (455819) от 11.08.2022
+
+(Echo) - Head First into Shadows (2016) [FLAC|Lossless|image + .cue] <Melodic Doom, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455819.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Blood and Skin
+2.	A Place We Used to Call Home
+3.	Beneath This Lake
+4.	Gone(   Читать дальше...   )Жанр: Melodic Doom, Death MetalПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF91FFDA6089D2419EE8022D269FD9C8E14D47D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569032   (455821) от 11.08.2022
+
+Artificial Brain - Artificial Brain (2022) [FLAC|Lossless|WEB-DL|tracks] <Technical, Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Artificial Brain (00:02:38)
+02 - Glitch Cannon (00:03:38)
+03 - Celestial Cyst (00:04:30)
+04 - A Lofty Grave (00:04:37)(   Читать дальше...   )Жанр: Technical, Progressive Death MetalПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B1B4F2134CB32AB1EE756EB17C95A97F11CC310
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569066   (455823) от 11.08.2022
+
+Asgard - Chamane (1998) (EP) [FLAC|Lossless|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chamane (03:09)
+02. The Wheel of Light (04:04)
+03. Images of an Heavenly World (01:28)
+04. Transe (03:58)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6AC4975921C56B02DB70E2B53F3841EFDF4452D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569099   (455825) от 11.08.2022
+
+Askog - Varpnaper (2021) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Svalt (04:20)
+02. Vinter (05:39)
+03. Tid (05:07)
+04. Mеne (07:23)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C00AC4D424CC920BC9E31793F428A2754B2443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569031   (455827) от 11.08.2022
+
+Arthemore - Czlowiek (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (00:01:18)
+02 - 29 (00:04:57)
+03 - Sadny dzien (00:05:14)
+04 - Prosta droga do nikad (00:06:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5855820F584567F4D0F47CC053266B5E8AE2C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568965   (455829) от 11.08.2022
+
+Artamene - Ziggurat (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Infinite Escape (00:05:27)
+02 - Fear of Darkness (00:04:10)
+03 - Heavy Motion (00:03:54)
+04 - Mayhem (00:03:50)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87A1C2957151BB213007380C763229B50E83BB10
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569098   (455831) от 11.08.2022
 
 Askog - Varg (Demo) (2020) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -370,328 +694,6 @@ Sneglefeber - Sneglefeber (2020) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53B0D3E574C1D55BC5C6A6CE81FAD20DFC90EE6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 868761   (456500) от 02.09.2017
-
-Чебуратор - 18 альбомов (2005-2016) [FLAC|Lossless|tracks]<Brutal death metal, Grindgore, Goregrind>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456500.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Brutal death metal, Grindgore, GoregrindПродолжительность: 22:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55C8BB120139A62208962A939BCDAF42025493B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321750   (456570) от 25.08.2019
-
-Tool - Fear Inoculum (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear Inoculum
-02. Pneuma
-03. Invincible
-04. Descending(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0EF09F5A269F614FF9EBA5A34E8D6BE0918B45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162621   (456617) от 02.09.2017
-
-Porno Wolves - Shine Like Gold (2015) [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea Beast (04:25)
-02. World Illuminated (05:19)
-03. Tel Aviv (03:15)
-04. Rock Hard City (05:37)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DA3F51C4368D8864D8549EA7B838084A780B6D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 371427   (456629) от 13.09.2018
-
-The Heavy's - Mega Metal Marathon (2008) [FLAC|Lossless|tracks + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456629.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Heavy's - проект швейцарских музыкантов. В 1989 г. вышел Metal Marathon, В 1992 году имела место быть вторая часть, которая носила название More Metal Marathon. Кроме двух вышеозначенных дисков, выходило множество их переизданий. В 2008 выходит в свет его 2-дисковое переиздание, которое включает оба альбома. Около двухсот песен-хитов последних десятилетий разных (   Читать дальше...   )Жанр: RockПродолжительность: 01:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D541713112179ED4722AC2B576DD526A3532E3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321413   (456793) от 25.08.2019
-
-Van Halen - Balance (1995) Japan Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Seventh Seal (05:18)
-02. Can't Stop Lovin' You (04:07)
-03. Don't Tell Me {What Love Can Do} (05:56)
-04. Amsterdam (04:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA57AD0E0BFB1EC227CD4FC71A84902DA184CAEE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321657   (456801) от 25.08.2019
-
-Elvis Presley - Elvis Movies (2006) [FLAC|Lossless|image + .cue] <Rock'N'Roll, R&B, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love me Tender (2:43)
-02. Loving You (2:15)
-03. Jailhouse Rock (2:29)
-04. King Creole (2:10)(   Читать дальше...   )Жанр: Rock'N'Roll, R&B, SoulПродолжительность: 00:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0242143DA2EF4082E09EB8E99FE80BAFAE5A05A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162812   (456816) от 02.09.2017
-
-Sweet - Level Headed Tour Rehearsals 1977 (2014) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Action (3:49)
-02. Yesterday's Rain (5:00)
-03. California Nights (4:14)
-04. Stairway To The Stars (3:11)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B60074199AEBFEAB8ADCC71EEE7BB3BCB797C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247119   (456836) от 13.09.2018
-
-Metallica - Live In Lisbon - Altice Arena - Portugal - February 1st (2018) [FLAC|Lossless|image + .cue] <Thrash, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardwired
-02. Atlas, Rise!
-03. Seek and Destroy
-04. Harvester Of Sorrow(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 02:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37A2BCF19BDC8B596173E5BC3DC3185D9CDB11B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246666   (456939) от 13.09.2018
-
-Rammstein - Verbrannte Erde (Der Arena, Berlin-Treptow - 27.09.1996) Live Bootleg [MP3|320 кб/с]<Industrial Metal, NDH>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456939.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:39] 01. Intro + Rammstein
-[04:22] 02. Herzeleid
-[03:42] 03. Bestrafe Mich
-[04:37] 04. Der Meister(   Читать дальше...   )Жанр: Industrial Metal, NDHПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E193D92CFBB18181FC5509645D17CB4F99640F1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246879   (456948) от 13.09.2018
-
-Dream Theater - Images And Words (1992) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pull Me Under (8:14)
- 02. Another Day (4:23)
- 03. Take The Time (8:21)
- 04. Surrounded (5:30)(   Читать дальше...   )Жанр: Heavy Metal, Prog RockПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05095DC68E54FBAAA4C1F975A8AC952B9A802077
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247009   (456990) от 13.09.2018
-
-Dream Theater & The Octavarium Orchestra - Score (20th Anniversary World Tour) (2006) 3CD [FLAC|Lossless|tracks + .cue] <Symphonic Rock, Prog Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456990.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. The Root of All Evil (8:22)
- 02. I Walk Beside You (4:11)
- 03. Another Won (5:22)(   Читать дальше...   )Жанр: Symphonic Rock, Prog Rock, Heavy MetalПродолжительность: CD1 - 00:58:26
-CD2 - 01:00:49
-CD3 - 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12207EE6CDD8D7DD1F31F0E88568FEAC01898338
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247017   (457120) от 13.09.2018
-
-Dream Theater - Live At Budokan (2004) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_457120.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. As I Am (7:26)
- 02. This Dying Soul (11:44)
- 03. Beyond This Life (19:37)(   Читать дальше...   )Жанр: Heavy Metal, Prog Rock, Symphonic RockПродолжительность: CD1 - 00:55:29
-CD2 - 00:56:45
-CD3 - 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3AF831B1A79E2682726C791C28508C00ECCA2A
 ```
 
 

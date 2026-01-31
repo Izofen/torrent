@@ -1,3 +1,30 @@
+###  Публикация: 915264   (592337) от 05.07.2015
+
+VA - Vocal Trance Seduction Vol 5 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Miller, Nicole McKenna - This Time Last Year (Original Mix) (07:04)
+02. Jan Martin - There's You (LTN Remix) (06:55)
+03. Lisaya ft. Hanna Finsen - Time To Live (Original Mix) (07:25)
+04. Julie Thompson with Dragon & Jontron - Loved (Sied van Riel Remix) (06:38)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1E1FA3FF9883D0AF7C221B2A95229B7668AC20
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915336   (592386) от 05.07.2015
 
 In-Grid - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|128 кб/с]<Pop, Speech>
@@ -668,33 +695,6 @@ VA - Русская тусовка №5 (2016) [MP3|256 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7670EAEAA485555D9EE6D697C22B129C45B8F466
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039928   (593652) от 03.08.2016
-
-VA - Transparent World Melodies (2016) [MP3|320 Kbps] <Trance, Progressive, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John 00 Fleming -  Altered Senses 7:06
-02. A.R.D.I -  Silicon Society (Original Mix) 7:08
-03. Richard Durand Ft. Simon -  Always The Sun (Ahmet Atasever Remix) 7:20
-04. Alex M.O.R.P.H -  Not All Superheroes Wear Capes (Radio Edit) 3:14(   Читать дальше...   )Жанр: Trance, Progressive, EnergyПродолжительность: 08:48:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01AB9DE14E1CC3F29757E0C916477B06A39CEC2D
 ```
 
 

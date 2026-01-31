@@ -1,3 +1,203 @@
+###  Публикация: 529267   (567596) от 31.07.2012
+
+Wil Bolton - Under A Name That Hides Her (2012) [MP3|320 кб/с]<Meditative, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567596.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:43) 1. Clearing
+..(6:21) 2. Blackpoint
+(5:42) 3. Skyview
+(5:53) 4. Barbed
+(6:29) 5. Dissolve
+(6:23) 6. PassingЖанр: Meditative, AmbientПродолжительность: 00:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93AF65E4A428142D768A2F17E29CFE161A0DBD51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921967   (568026) от 29.07.2015
+
+Luca Stricagnoli - Luca Stricagnoli (2015) [MP3|320 кб/с] <Instrumental, Acoustic, Guitar, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с гитарной сенсацией из Италии - Лука Стриканьоли (Luca Stricagnoli).
+Лука является одним из самых захватывающих новых музыкантов виртуозно владеющий акустической гитарой. Он обходит нормальные пределы классической аккустички и адаптирует её к любому музыкальному жанру: от поп-музыки до рока, от саундтреков к оригиналу.
+
+Он довольно молод, всего каких (   Читать дальше...   )01. Thunderstruck (4:11)
+02. Braveheart (3:15)
+03. Conquest of Paradise (2:18)
+04. Paradise (3:38)(   Читать дальше...   )Жанр: Instrumental, Acoustic, Guitar, New AgeПродолжительность: 00:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E32D1DB88B4DA739137E78829EBDEA36999DA84
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921930   (568053) от 29.07.2015
+
+David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-2014) Season 1-3 [MP3|260-320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How It Was Done (02:45)
+02. God Rest His Soul (01:44)
+03. Floating Dust (03:29)
+04. #SherlockLives (02:50)(   Читать дальше...   )Жанр: OSTПродолжительность: 03:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E737FD4F189B973B054C00E83C28BBA897705897
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921862   (568124) от 29.07.2015
+
+Joe Hisaishi - Sonatine (1999) [FLAC|tracks+.cue]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sonatine I - Act Of Violence (03:40)
+02. Light And Darkness (06:49)
+03. Play On The Sands (04:43)
+04. Rain After That (00:26)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E828710FD44174ECB809AD7E0A3B6593D6444680
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921850   (568196) от 29.07.2015
+
+James Newton Howard - Snow White & The Huntsman (2012) [FLAC|tracks+.cue]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snow White
+02. I'll Take Your Throne
+03. Tower Prayers
+04. Something for What Ails You(   Читать дальше...   )Жанр: OSTПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3D098ED511B015CD638CF4B885C106951F3A98C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529177   (568236) от 30.07.2012
+
+Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Э́ннио Моррико́не (итал. Ennio Morricone)1. Chi Mai (5:05)
+ 2. Cockeye`s Song (4:22)
+ 3. Le Vent, Le Cri (5:20)
+ 4. Bye Bye Colonel (2:03)
+ 5. La Tragedia Di Un Uomo Ridicolo (2:15)
+ 6. Orient Express (4:12)
+ 7. Once Upon a Time In Revolution (4:15)
+ 8. Dimenticare Palermo (2:55)
+ 9. Mille Ecchi (3:21)
+ 10. Ricatto (3:02)(   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63774FD3282C2A93AA2FAC8896919809EE55A4EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555559   (568733) от 04.06.2022
+
+Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_568733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amar Ashru Hasi
+02. Maner Jatana
+03. Mangal Hok
+04. Shunite Chahina(   Читать дальше...   )Жанр: World, Mantras, MeditativeПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2067B101F7C821A390A80C23889646F3F82FD2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554691   (568748) от 04.06.2022
 
 Andy Jonas (Angel X) - Summer In Your Heart (1996) Maxi-Single [APE|Lossless|image + .cue] <Enigmatic, New Age>
@@ -534,200 +734,6 @@ Vartra - Luna Noua (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A7CD6B0FEF44F6E8D49723DED58157380439533
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043144   (572371) от 16.08.2016
-
-Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечность (Music From The Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Logo And Prosper (01:45)
-02. Thank Your Lucky Star (02:13)
-03. Night On The Yorktown (05:34)
-04. The Dance Of The Nebula (02:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988DB1F52AD8FE0EC354C1E2E9B7A5EEE8BFE53F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234227   (572491) от 04.07.2018
-
-Deep Forest & Gaudi - Epic Circuits (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interstellar
-02. Taiyo
-03. Brassy Sunrise
-04. Ghostly Disco(   Читать дальше...   )Жанр: Ambient, Downtempo,New AgeПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A46CEB1A0BFDF0392C0B7E0CD2DA815D41B6B07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043146   (572683) от 16.08.2016
-
-VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonnie "Prince" Billy - The Dragon Song (02:29)
-02. Lindsey Stirling - Something Wild (feat. Andrew McMahon In the Wilderness) (03:44)
-03. The Lumineers - Nobody Knows (03:09)
-04. St. Vincent - Something on Your Mind (03:01)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC25BB8D15609D2BE62169B7038C40CD18A1B89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043147   (572709) от 16.08.2016
-
-VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonnie "Prince" Billy - The Dragon Song (02:29)
-02. Lindsey Stirling - Something Wild (feat. Andrew McMahon In the Wilderness) (03:44)
-03. The Lumineers - Nobody Knows (03:09)
-04. St. Vincent - Something on Your Mind (03:01)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:15:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD17C13FBFDF1B71C7FAFCADF9A2849A00A83499
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303446   (572750) от 21.05.2019
-
-Ilyin - EP-0002. Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572750.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Faith
-2. Conscience
-3. WordЖанр: Instrumental, Neo-Classic, MetalПродолжительность: 00:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FE38AEB34C5FB197F2665D5E2B402EACC2097AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527922   (573300) от 28.07.2012
-
-X Cultures - One World, One People (1999) [MP3|320 кб/с]<New Age, Ethnic, Folk, Trans-Global Mix>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573300.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Welcome To Crossing Cultures
-2. Dreams of Happiness
-3. Sufi Mali
-4. Baganda / Dance Of Life
-5. Temptations
-6. Sudanese Dance
-7. Waterfalls
-8. One World One People
-9. Larissa
-10. Free Your Mind(   Читать дальше...   )Жанр: New Age, Ethnic, Folk, Trans-Global MixПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A171A0C7A8B4E93EE8A94CAA344ECFA7210C3078
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920759   (573573) от 26.07.2015
-
-Andrew Lockington - Землетрясение в Сан - Андреас / Разлом Сан-Андреас / San Andreas: Original Motion Picture Soundtrack (2015) [FLAC|tracks+.cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Andreas Main Theme (1:42)
-02. Natalie's Rescue (5:17)
-03. Caltech (2:06)
-04. Divorce Papers (3:28)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A5E1D27C772AE4E142AE7A574C61E89C4BC42D
 ```
 
 

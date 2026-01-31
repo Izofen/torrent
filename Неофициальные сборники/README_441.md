@@ -1,3 +1,30 @@
+###  Публикация: 1026666   (702504) от 16.06.2016
+
+VA - Trip to Ibiza 2014. Chill Out (2016) [MP3|320 кб/с] <Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antica Fabbrica Del Suono - La Demografia Dell'intellett (D-Soriani chilly mix)  04:54min
+02. Innate Joy - Morning Instinct  06:05min
+03. Chillwalker - Dancing in the Sunrise (Bossa Beach cut)  05:21min
+04. Living Room - Urbanism  04:06min(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 04:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FA7ADCA3CCD134BDFFC919FF356169D0C7F254
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026738   (702513) от 16.06.2016
 
 VA - Flash Party Line DJ (2016) [MP3|320 кб/с] <House, Future House, Bigroom>
@@ -670,33 +697,6 @@ VA - Дэнс 90-х (2018) [MP3|320 Kbps] <Eurodance, Dance, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A4DDEF9250F74E481176455FFA77C12A80DF4A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026269   (703956) от 15.06.2016
-
-VA - Megahits Sommer 2016 (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kungs vs. Cookin' On 3 Burners - This Girl
-02. DNCE - Cake By The Ocean
-03. Willy William - Ego (Radio Edit)
-04. Galantis - No Money(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0986243DEB9857DE78DE3F0527C6DFF85E344E76
 ```
 
 

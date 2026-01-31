@@ -1,3 +1,30 @@
+###  Публикация: 1526112   (738429) от 24.01.2022
+
+The Art Of Noise - Balance (Music For The Eye) (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Synth Pop, Experimental, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Definition Three) (0:15)
+ 02. Driving Rain Plus (6:59)
+ 03. The Case For A Complete Performance (3:08)
+ 04. Blue Murder (1:23)(   Читать дальше...   )Жанр: Synth Pop, Experimental, AmbientПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E97AC45D5B88C0BA89AF9F8A40CE044D20BCFB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525880   (739136) от 22.01.2022
 
 Tony Birch - Gamechanger (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
@@ -661,33 +688,6 @@ VA - Female Vocal Trance (2019) [MP3|320 Kbps] <Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D20DD8683C43F9332DA96EA64F4B88F7C9245CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021378   (740978) от 29.05.2016
-
-LTN - People I'll Never Forget (Remixes) (2016) [MP3|320 кб/с] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LTN — Autumn Leaves (Sunny Lax Radio Edit) (06:04)
-02. LTN feat. Arielle Maren — Let Me Go (Johan Vilborg Radio Edit) (04:35)
-03. LTN — A Long Walk To Freedom (Lycii & Joe Lyons Radio Edit) (05:52)
-04. LTN — Fuego De Amor (Katrin Souza Radio Edit) (06:56)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743F81CCFEEC27287AA14D74D82C37A8A0563181
 ```
 
 

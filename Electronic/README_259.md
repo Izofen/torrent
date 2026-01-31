@@ -1,3 +1,36 @@
+###  Публикация: 543212   (488708) от 08.09.2012
+
+VA - Erotic Affairs Porn Lounge Sensations (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rainy Days (Porn Remix)  - Key of Dreams
+02. Zelig (G Point Mix)  - L Style
+03. Love That Gone Away (Lingerie Mix)  - South Soul
+04. Tonodi (Lesbo mistress Mix)  - Mag Two Ensemble
+05. Sun (High Heels Version) - Lounge Emperor
+06. Zevenar (Bitch Mix)  - Paul P.
+07. Magic Love (Woman Mix)  - Bortolotto & Tornello
+08. Sole Luna Stelle (Godiva Mix)  - All Red
+09. The Black Parade (Night Mix)  - Mark Sia
+10. Spy Tramp (Blow Job Mix)  - Stenwood Age(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72AB35C6D71B4DAFCE5BA2A427510540A930912
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318993   (488726) от 09.08.2019
 
 The Planets - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, New Wave, Pop Rock>
@@ -680,33 +713,6 @@ Frameworks - Kings (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Exp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0694F3B96D9A9F860F20DA8083C9D4AE5A7A6953
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158565   (492096) от 16.08.2017
-
-VA - Vocal House Essentials Vol.2 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_492096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hitfinders - Miami (feat. R. Ghelli, Felipe Romero) (S&A Ocean Drive Mix)  5:19
-02.  Made In Italy - Everyday (051 Project 90's Taste Mix)  6:14
-03.  Lorenzo Gallo - I Want to Be (feat. Gigliola) (Alex Raimondi Remix)  7:13
-04.  Alex Raimondi - I Hate You (feat. Steph B.) (Frystal DJ Remix)  5:17(   Читать дальше...   )Жанр: HouseПродолжительность: 01:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA412EDB254B5282A350E4AB54833218694DE354
 ```
 
 

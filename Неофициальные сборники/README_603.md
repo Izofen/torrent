@@ -1,3 +1,30 @@
+###  Публикация: 991054   (907824) от 27.02.2016
+
+VA - Auto Dance Party N1 (2016) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907824.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello (Ryan Kenney Remix).mp3
+002. Afrojack Ft. Pitbull & Mike Taylor & Gumanev & Shishkov - Summer Thing  (ATOM MIX MASH UP).mp3
+003. Agua Sin Gas By Antoine Clamaran - Oh Yeah (Original Mix).mp3
+004. Alex Hill - Regen The Sky (Original Mix).mp3(   Читать дальше...   )Жанр: HouseПродолжительность: 08:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB5C3F1CF03B14174D74D4E3E27236A037E1AC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990965   (907921) от 27.02.2016
 
 VA - Праздничный хитовичок 1 (2016) [MP3|256 кб/с] <Поп, Танцевальная>
@@ -665,33 +692,6 @@ VA - Record Super Chart #472 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B7D26479256D35F950483443CBACB3D1AC1D4AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098608   (908725) от 30.01.2017
-
-VA - Trance Elegance On This Year 008 (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Aurosonic & Axelpolo ft. Cathy Burton - Loving Overflow (Original Mix)  6:34
-02.  A.R.D.I & Linnea Schossow - Your Everything  4:03
-03.  Independent Art - Lines Of Hope (Original Mix)  7:39
-04.  Hamza Khammessi - A World For Us (Original Mix)  6:33(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Vocal, Tech Trance, BlissfulПродолжительность: 02:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06FA928DEDD7B55E33C465ED6F3B5052950891EC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1493254   (895369) от 03.09.2021
+
+VA - Music News vol.128 (2021) [MP3|320 Kbps] <Pop, Soul, Dance, (Other)>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Anastezzia feat. Selena Mayer - Кружева (03:04)
+ 002. ALBA feat. Александра Белякова - Catch Me (02:54)
+ 003. Alderson - Ягодный Juice (02:02)
+ 004. After School House - Веснушка (02:39)(   Читать дальше...   )Жанр: Pop, Soul, Dance, (Other)Продолжительность: 05:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AD2FB96FE584E8CD0FBF6F7B0ACE31EEF932D06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101241   (895381) от 06.02.2017
 
 VA - Top DJ. Клубный хит (2017) [MP3|320 Kbps] <Dance, Club>
@@ -667,33 +694,6 @@ VA - Be Happy (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5D00C1AFAB1896C6E5B938622AA1D3104EA2820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993049   (897525) от 04.03.2016
-
-VA - Dance Club Empire 100 hits (2016) [MP3|320 кб/с] <Club, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_897525.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Falency - In The Moonlight
-002. Frits Wentink - Blaise Montoya (Feat. Loes Jongerling)
-003. Dj Le-Roy - She's On Fire (Original Mix)
-004. Alfrenk - Big Up (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 08:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3479B389AB6D801E70F8A87B3FBC1089C066D21
 ```
 
 

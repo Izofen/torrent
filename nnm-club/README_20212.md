@@ -1,672 +1,676 @@
-###  Публикация: 1276583   (788224) от 16.01.2019
+###  Публикация: 1204049   (785431) от 04.02.2018
 
-Twilight Force - Heroes of Mighty Magic (2016) [FLAC|Lossless|tracks + .cue] <Power Metal>
+VA - Timeless in Space: Universe Lounge Journey (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788224.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785431.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Battle of Arcane Might (5:07)
- 02. Powerwind (5:17)
- 03. Guardian of the Seas (5:39)
- 04. Flight of the Sapphire Dragon (5:40)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:28
+01. Raphael Van Sandern - Timeless in Space - Space Edit Mix
+02. Substrata - Theresa - Electronic Dance Pop Mix
+03. Crimson Stone - What Is the Meaning - Electronip Space Night Mix
+04. Roleystone - Galactica - Space Club Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B906EDC459C65ABDA53FD2C55669F524C914ADE7
+magnet:?xt=urn:btih:B929FB28766E4021AF2E3C455E9AFC28803CB12A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276391   (788225) от 16.01.2019
+###  Публикация: 1203973   (785432) от 04.02.2018
 
-Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
+Auto Reverse - Loneliness Of The Deep Space Traveller (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro, Synthwave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apparent Magnitude (06:24)
+02. The Sirius Conspiracy (05:52)
+03. Quantum Leak (06:08)
+04. Neon Galaxy (05:20)(   Читать дальше...   )Жанр: Electro, SynthwaveПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3615A5CAD0A1F9350657126070F022ADC694B66F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203906   (785433) от 04.02.2018
+
+John Dummer Blues Band - Cabal (1969) Reissue, 2003, Sunrise Records [MP3|320 Kbps] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788225.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785433.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alger 69
-02. Day by Day
-03. My Girlfriend
-04. Away Alive(   Читать дальше...   )Жанр: Vocal Jazz, World, PopПродолжительность: 00:34:41
+1. I Need Love
+2. Just A Feeling
+3. No Change With You
+4. Young Fashioned Ways(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6B2714925AFF218FCB80208184E5DE2BF94BCA4
+magnet:?xt=urn:btih:781F9E84AE745A2BE41F3D5E264B158F2A5A3460
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276348   (788226) от 16.01.2019
+###  Публикация: 1203834   (785434) от 04.02.2018
 
-Maayan Nidam - Sea of Thee (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House, Electronic>
+VA - Chillout Lovers: Introspective Chillout Sounds (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788226.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dust And Dirt (04:06)
-02. Die Sonne Innere (08:00)
-03. Acid Kiss (06:41)
-04. In A Lair Of My Other (05:27)(   Читать дальше...   )Жанр: Tech House, Deep House, ElectronicПродолжительность: 00:51:10
+01.  Vincenzo Ricca  -  Oceanic Love (Original Mix)  5:00
+02.  Marga Sol  -  Feelings For Free (Original Mix)  5:06
+03.  Flor De Lis  -  Carinhoso (Original Mix)  1:55
+04.  Gianni Tommas  -  Peacefull Aim (Original Mix)  5:08(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AED58E5BB1A33E1500767831BF62DEA360E9254A
+magnet:?xt=urn:btih:86E91D1615AA63288A2DB9199BB28D15A3348BE1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276603   (788227) от 16.01.2019
+###  Публикация: 1203945   (785435) от 04.02.2018
 
-VA - Reanimate Music Volume 1 (Mixed by Somna) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anden State - Dogma (Extended Mix)
-02. Formal One - Neon City (Original Mix)
-03. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
-04. Somna & Blu Eyes - Drawn To You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95FBD9537238B13466B11EE58B89CF17A35A951F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276598   (788228) от 16.01.2019
-
-VA - Markus Schulz - Global DJ Broadcast - World Tour Los Angeles (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New World Punx - Torque (Markus Schulz Big Room Reconstruction)
-02. Skyrim - The Song of Dragonborn (Markus Schulz Festival Mix)
-03. Faithless vs. VIZE - Glad You Came from Insomnia (Markus Schulz Mashup)
-04. Virtual Self - Ghost Voices (Markus Schulz Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D3462C725316AE8A2043F894FB2980164D0D9C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276460   (788229) от 16.01.2019
-
-VA - Gym Floor Energy 2019 [MP3|320 Kbps] <House>
+VA - Age Of Love 10 Years (2018) [MP3|320 Kbps] <Progressive House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788229.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785435.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spikaa Feat. Deja - Home (Radio Mix) 3:11
-02. Eros Pandi - Second Chances (Radio Mix) 2:43
-03. Gianni Camelia Feat. Sabrina Christian - Don't Stop The Beat (Luke Db Remix Edit) 2:40
-04. Skelectro Feat. Norah B. And Itto - No Time (Original Mix) 3:13(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:40
+01. Age Of Love - The Age Of Love (Jam & Spoon Watch Out For Stella Mix) 06:48
+02. Niels van Gogh - Pulverturm (DJ Tomcraft Remix) 09:12
+03. The Pusher - Sinthy (Pluto Mix) 05:56
+04. BBE - Seven Days And One Week 08:27(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 08:00:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:870AA17436018D0A5AB8551C2182155C52CAFBFE
+magnet:?xt=urn:btih:DAC174DAA67E9E1EEC23620D7D5E5CC75A9DF3AD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276492   (788230) от 16.01.2019
+###  Публикация: 1203984   (785436) от 04.02.2018
 
-Money Pro 2.0.4 [Multi/Ru]
+Линда Ховард | Гора Маккензи (2018) [MP3]
 
->>Архив торрентов
->>Архив 4Apple
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788230.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
-
-Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+Когда школьная учительница и старая дева Мэри Элизабет Поттер столкнулась с Вульфом Маккензи, отцом бросившего школу мальчика, она оказалась лицом к лицу с ожесточенным и опасно-привлекательным мужчиной, который до сих пор расплачивается за несовершенное преступление. Но в том, в ком горожане видят опасного полукровку, Мэри разглядела честного, хорошего человека. (   Читать дальше...   )Жанр: Любовный романПродолжительность: 09:31:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EEC44C6B8CDDFB89AE675B5980AD2F3EA65F129
+magnet:?xt=urn:btih:ADABF6D1EFECB92F4C702CD0D7A3FC8D859E96C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276409   (788231) от 16.01.2019
+###  Публикация: 1203969   (785437) от 04.02.2018
 
-VA - New Music Releases Week 52 of 2018 (2018) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+Antendex - Take Shelter (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Acoustic>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788231.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785437.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Altson 45 - Back To You
-002. Clarv - Blizzard
-003. Savoir Adore - When The Summer Ends (Rac Mix)
-004. Bbno$, Y2k, Lewis Grant - Thankful(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:24:59
+01. Gravitational Phantom (05:32)
+ 02. Spring Will Come As Always (04:38)
+ 03. Home-grown Drone (06:20)
+ 04. Boreal Estate (04:04)(   Читать дальше...   )Жанр: Ambient, AcousticПродолжительность: 00:37:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7A3BA139987C8179F64F9469E282BDBBEC5898F3
+magnet:?xt=urn:btih:0D9896C655FA3CD1CB37168EC04A79957C91A48B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276589   (788232) от 16.01.2019
+###  Публикация: 1204100   (785438) от 04.02.2018
 
-VA - It's a Cool, Cool Christmas (2000) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+Приход храма Св. Духа сошествия на Лазаревском кладбище (изд.) | Молитвенное последование с покаянным каноном о грехе убийства чад во утробе (аборте) (2017) [PDF, DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788232.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Grandaddy - Alan Parsons in a Winter Wonderland (02:59)
-02. The Dandy Warhols - Little Drummer Boy (03:12)
-03. The Webb Brothers - Every Day Is Christmas (02:55)
-04. Eels - Everything’s Gonna Be Cool This Christmas (02:48)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:12:16
+Для покаяния в грехе аборта существует исповедь, на которой священник в частном порядке назначает епитимью в соответствии с духовным и телесным состоянием кающегося, возрастом, состоянием здоровья и прочими обстоятельствами. Аборт – один из самых тяжких грехов. Святая Церковь, согласно канонам, отлучала совершивших грех аборта от причастия на 10 лет, наравне с убийцами. (   Читать дальше...   )Жанр: МолитваФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92DD6B7AC4362CD5DE30A614B3283CD8BB4C7003
+magnet:?xt=urn:btih:7451E1E91D0794A678F260128556D815A4B6C4D2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276576   (788233) от 16.01.2019
+###  Публикация: 1203929   (785439) от 04.02.2018
 
-Suffocation - Human Waste (1991) EP, 1994, Relapse Records [FLAC|Lossless|tracks + .cue] <Death Metal>
+VA - Art of Lounge (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788233.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Infecting the Crypts (4:38)
- 02. Synthetically Revived (3:38)
- 03. Mass Obliteration (4:29)
- 04. Catatonia (3:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:23:17
+01. Talking Toy - Oort Cloud - Epic Soundtrack Intro Mix
+02. Leslie Dhani - What I Need - Deep House Dance Mix
+03. Out Of Balance - Black Sky Falling - 808 Lounge Mix
+04. Madam Charlton - Your Voice Is in My Mind - Vocal Pop Lounge Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:49:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F5A9576FCDBF253444AE242397AA60BAA43A939
+magnet:?xt=urn:btih:933F93CDFFF6FEAFB532342405A7CD0056C6E436
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276471   (788234) от 16.01.2019
+###  Публикация: 1203891   (785440) от 04.02.2018
 
-KCNcrew Pack 01-15-19 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788234.jpg" />
-</div>
-
-
-###  Подробнее
-
-KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.4 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9238CF9CB909F5CF4CF9054E961DB2D105910D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276482   (788235) от 16.01.2019
-
-Mike LeDonne - The Groover (2010) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock With You [6:59]
-02. Blues For McCoy [6:36]
-03. Little Mary [6:39]
-04. I'm Goona Make You Love Me [8:24](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9BF447F23945057EF04ACB7C8E018B14C179DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276596   (788236) от 16.01.2019
-
-Disgorge (US) - Cranial Impalement (1999) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deranged Epidemic (3:07)
- 02. Atonement (3:18)
- 03. Cognative Lust of Multilation (2:41)
- 04. Period of Agony (3:15)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146FF9AE43C9B9F3854EED2ECAB2AC08684BE978
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203142   (788237) от 02.02.2018
-
-А. Янтарев | Тактика ВКП(б) по отношению к буржуазным и мелкобуржуазным партиям (1928) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из основных задач брошюры — показать, как меньшевики, являвшиеся уже с момента возникновения РСДРП чистейшими оппортунистами, силою вещей должны были сами превратиться, и превратились, в одну из мелкобуржуазных партий, полностью перейдя в лагерь врагов рабочего движения.
-
-Специальная глава брошюры посвящена изложению, правда, по необходимости очень краткому, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD831DE9A0041AE5AEC409B62114D66ACE0BEDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203519   (788238) от 02.02.2018
-
-VA - Progressive Psychodelic Trance Vol.2 (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+VA - The Official UK Top 40 Singles Chart 02.02.2018 [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788238.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Cosmic Tone  -  Spirit Technology (Original Mix)  7:28
-02.  Static Movement & Mindwave  -  Sources (Original Mix)  8:14
-03.  Arunarush  -  Reactivate (Original Mix)  7:28
-04.  Juiced  -  Under The Rain (Original Mix)  5:20(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:43:15
+01. Drake - God's Plan
+02. Ramz - Barking
+03. Eminem - River (feat. Ed Sheeran)
+04. Dua Lipa - IDGAF(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:25:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95AE25AEC2000311EFFD72F7D465726EEBAF3A98
+magnet:?xt=urn:btih:45E6C389F7126A955FDD90DFA40B6F6DD6B1192E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203279   (788239) от 02.02.2018
+###  Публикация: 1277284   (785441) от 20.01.2019
 
-VA - Suanda Music Radio Top 25 (January / February) (2018) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
+Труды Первого Всероссийского Съезда по борьбе с торгом женщинами и его причинами [2 тома] (1911-1912) [PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Труды первого всероссийского съезда по борьбе с торгом женщинами и его причинами, происходившего в С.-Петербурге с 21 по 25 Апреля 1910 года.
+
+Среди вызванных условиями современной жизни прискорбных явлений, содействующих физическому и нравственному развращению населения, одно из первых мест принадлежит торговле женщинами и проституции во всех ее видах.
+(   Читать дальше...   )Жанр: История, политология, экономика, психология, криминология, правоведение, документалистика, публицистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68201265E55CD31751EFDE65DB1505A0CB0DAA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277350   (785442) от 20.01.2019
+
+Валера Шунт - Жизнь босяцкая (2000) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Жизнь босяцкая
+02. Заочницы
+03. Русская идея
+04. Случайная встреча(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90EE9ADEF76C49AE7E20FFA35BF9EE0C29DEEF4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277167   (785443) от 20.01.2019
+
+Lutz Rahn - Solo Trip (1978) Reissue CD, 2012, MIG [MP3|320 Kbps] <Electronic, Krautrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий клавишник (родился 10/11/1951, в Гамбурге). Владелец Brucken-Studio. Известен своей постоянной работой в группе Novalis. Выпустил единственный - предлагаемый сольный альбом.01. Solo Trip (2:07)
+02. Yeti (4:02)
+03. Galaxy Taxi (5:06)
+04. September (3:46)(   Читать дальше...   )Жанр: Electronic, KrautrockПродолжительность: 00:29:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA14CFD9E1E253DB246B228CF03854CF02B29E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277330   (785444) от 20.01.2019
+
+Архимандрит Кирион (Ониани) | Юродивый Гавриил (Ургебадзе). Преподобноисповедник (2017) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга архимандрита Кириона (Ониани) «Юродивый Гавриил» посвящена удивительному грузинскому старцу, преподобноисповеднику и юродивому Гавриилу (Ургебадзе) (1929-1995), канонизированному Грузинской Православной Церковью в 2012 году. С детства было очевидно, что он — избранник Божий, предназначенный для особого служения. В книге есть описание его жития, интересные воспоминания (   Читать дальше...   )Жанр: ПравославиеФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1D0308EC2C3422E90E029FC08FBCDC5AC0BB11
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277368   (785445) от 20.01.2019
+
+Evergrey - The Atlantic (2019) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Silent Arc
+02. Weightless
+03. All I Have
+04. A Secret Atlantis(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDAD2D959E22617AF9ED659D0324E027611663C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277324   (785446) от 20.01.2019
+
+AnyTrans for Android 6.5.0 (build 20190117) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785446.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyTrans for Android - предназначен для быстрой и удобной передачи файлов с компьютера на android девайс и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш android девайс буквально в два счета и так же просто вытащить их оттуда.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0BEB9B84DA986D59ECA213DC3E778249A52F49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277492   (785447) от 20.01.2019
+
+The Thing With Five Eyes - Noirabesque (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Electronic>
 
 >>Electronic
->>Trance
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788239.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
-02.  Feel  -  The Nutcracker (Original Mix)  3:27
-03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
-04.  Hamzeh & Ahmad Ai  -  Lachrymose (Original Mix)  3:56(   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 01:34:25
+01. Salem (6:14)
+02. Alma (4:39)
+03. Hedra (5:24)
+04. Zigurhat (4:32)(   Читать дальше...   )Производство: Svart Lava Records 003Жанр: Dark Ambient, Dark Jazz, Electronic, Arabica, CinematicaПродолжительность: 00:49:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86D1BAAF1DB7DC988F9F2799ACD69DD1AD7262E6
+magnet:?xt=urn:btih:EECDBB83FE5AE3567ADE3EC0F01F12F920D3FEB9
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203550   (788240) от 02.02.2018
+###  Публикация: 1277425   (785448) от 20.01.2019
 
-Freddy  Johnson  And  His  Orchestra - 1933 - 1939 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Ф. А. Ротштейн (общ. ред.) | Албанский узел (1925) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788240.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sing About The Swanee [03:18]
-02. My Baby's Gone [02:59]
-03. Sweet Georgia Brown [03:11]
-04. Foxy And Grapesy [03:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:15
+Из объекта истории Албания, воссозданная в урезанных границах после империалистической войны в виде независимой республики, стремится стать ее субъектом; по — удастся ли ей это или нет — она, несомненно, заставит еще много говорить о себе. Ее географическое положение на побережье Адриатики придает ей совершенно исключительную важность, несоизмеримую ни с ее протяжением (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, культурология, религиоведениеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DC06924F764E70F95A85063ECCD107B95A59DE3
+magnet:?xt=urn:btih:B66C49E248E8A1097232922A6108E3B460F68F5E
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502252   (788241) от 22.11.2021
+###  Публикация: 1277429   (785449) от 20.01.2019
 
-Avira Phantom VPN Pro 2.37.4.17510 RePack by elchupacabra [Multi/Ru]
+Э. Ходжа | Сверхдержавы: 1959-1984. Из политического дневника (1986) [PDF]
 
->>3
->>4
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788241.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Avira Phantom VPN — является новым эффективным приложением, которое предлагает все преимущества частных виртуальных сетей в ненавязчивой форме. Разблокируйте запрещенные сайты и сервисы и улучшите безопасность Интернет-подключений с помощью современной и надежной VPN-службы.Язык интерфейса: Русский, Английский и другие
+Книга отражает много острых и важных событий международной политической жизни, происшедших за четверть века (июнь 1959 — декабрь 1984). Но, в особенности, внимательно и постоянно следя за всеми аспектами политики и акций Соединенных Штатов Америки и Советского Союза, в своей книге товарищ Энвер Ходжа подвергает их глубокому анализу. Он объясняет, как возникли сверхдержавы, (   Читать дальше...   )Жанр: История, политология, экономика, документалистика, публицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26EACFCE872905CB1B6363675A49F9C1B4C66CA8
+magnet:?xt=urn:btih:6AD2D4404A8B0434F75362A7EC5158DE67F29084
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093424   (788242) от 22.11.2021
+###  Публикация: 1277433   (785450) от 20.01.2019
 
-F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack Other s [Дополненное издание]
+Э. Ходжа | Размышления о Китае: 1962-1977 [2 тома] (1979) [PDF]
 
->>3
->>След.
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788242.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-F.E.A.R. 2: Project Origin — продолжает популярную серию шутеров от первого лица F.E.A.R. Вас снова ждет захватывающий, пропитанный ужасом сюжет, всепоглощающая атмосфера постоянного необъяснимого страха, реалистичная детализированная графика, новое суперсовременное оружие и множество безжалостных врагов.
-Вечно молодая наводящая ужас девочка Альма вырывается из разрушенной (   Читать дальше...   )Тип издания: RepackРазработчик: Monolith ProductionsЖанр: Action (Shooter, Horror), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+«Размышления о Китае» взяты из Политического дневника товарища Энвера Ходжа. Помещаемые в настоящем томе размышления охватывают один из сложнейших периодов развития КНР с начала 1962 по декабрь 1972 год, включающий полную зигзагов политику КПК в отношении КПСС и советского руководства; так называемую, Культурную революцию; смычку с американским империализмом и т. (   Читать дальше...   )Жанр: История, политология, экономика, документалистика, публицистикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBF7B755D24E5A7BC986D2D6EA857F6B39D277C6
+magnet:?xt=urn:btih:4E71804B24E69110C4C92A2D699EA1ECE397C9F7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 641155   (788243) от 22.11.2021
+###  Публикация: 1277311   (785451) от 20.01.2019
 
-Стервятники / Scavengers (2013) HDRip [VO]
+VA - Turn Up The Volume - Radio Versions (2019) [MP3|320 Kbps] <House, Dance, Club, Funky>
 
->>След.
->>Зарубежные Фильмы (SD)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788243.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Научно-фантастический фильм про космических искателей «ничейных» товаров, энергии и сокровищ. Когда команда под предводительством Эмерсон находит инопланетный Генератор Хаоса, их ждет неприятная встреча с бывшим партнером — злобным капитаном Джекелем.Производство: США, California PicturesЖанр: фантастика, боевик, триллерРежиссер: Трэвис ЗаривныАктеры: Шон Патрик Флэнери, Джереми Лондон, Луиз Линтон, Келли Вилден, Джэми Стрэйндж, Марк Выстрач, Расселл Ричардсон, Тайлер Поэлль, Джон Ли Амес, Pavlos SkountzouПеревод: Одноголосый любительскийЯзык озвучки: РусскийПродолжительность: 01:33:27
+01. Niels van Gogh, Steelfish-Love & Money (Radio Edit)
+02. Audax, Adriano Pagani, Dimy Soler-Fire & Ice (Radio Edit)
+03. Tocadisco-Feeling Irie (Radio Edit)
+04. MXB-Bottle Runs Dry (MBP Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Club, FunkyПродолжительность: 01:22:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:562A88AADEE5ECEA09809D1EC0E279804A0D104D
+magnet:?xt=urn:btih:2AF143FF97121C937F607DE52CC9029C8F7F8AC1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511760   (788244) от 22.11.2021
+###  Публикация: 1277512   (785452) от 20.01.2019
 
-XYZ School, Артем Гансиор | Movie Man (2021) WEB-DL [AD]
+Журнал | Дачный клуб №2 (февраль 2019) [PDF]
 
->>3
->>След.
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788244.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О ХУДОЖНИКАХ ПО ПЕРСОНАЖАМ
-При взгляде на персонажа, созданного талантливым художником, у зрителя немедленно возникает с ним эмоциональная связь — он сразу понимает, что это за герой, включает воображение и домысливает его характер и предысторию.
-НА КУРСЕ ТЫ НАУЧИШЬСЯ:
-Создавать детализированных антропоморфных персонажей(   Читать дальше...   )Производство: XYZ SchoolЖанр: ДизайнПродолжительность: 213:42:37
+В журнале собрана информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты заготовок и блюд из урожая, собранного на своих грядках, а также советы народной аптечки.Жанр: Дом, сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB64B1D2B961EDF372F1D265F530866E490D36D1
+magnet:?xt=urn:btih:C94E239D10E234D50C05F456D047575F739DEBEF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351063   (788245) от 22.11.2021
+###  Публикация: 1277445   (785453) от 20.01.2019
 
-Гарри Поттер: Коллекция / Harry Potter: 8-Film Collection (2001-2011) UHD BDRip [H.265/2160p-LQ] [4K, HDR, 10-bit]
+Our Lady Of The Flowers - Holiday In Thule (2019) 13 Records [FLAC|Lossless|tracks+.cue] <Ambient, Field Recording, Dub Techno>
 
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788245.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия романов, написанных английской писательницей Джоан К. Роулинг, является летописью жизни молодого волшебника Гарри Поттера и его друзей: Гермионы Грейнджер и Рона Уизли. Все они являются студентами в Хогвартс. Основная фабула истории касается борьбы Гарри против Лорда Волдеморта - темного волшебника, который намеревается стать бессмертными, свергнуть мастера (   Читать дальше...   )Производство: США, Великобритания / Warner Bros. Pictures, Heyday Films, 1492 PicturesЖанр: Фэнтези, Приключения, СемейныйРежиссер: Крис Коламбус, Альфонсо Куарон, Майк Ньюэлл, Дэвид ЙэтсАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Ричард Харрис, Алан Рикман, Мэгги Смит, Робби Колтрейн, Том Фелтон, Мэттью Льюис, Иэн ХартПеревод: Дублированный, Двуголосый профессиональный x4, Многоголосый профессиональный x4, Авторский x6Субтитры: русские (форсированные, полные), английские (полные, для слабослышащих)Продолжительность: 02:32:22 / 02:41:04 / 02:21:44 / 02:37:12 / 02:18:25 / 02:33:32 / 02:26:05 / 02:10:27
+01. Initiation (04:55)
+ 02. Quantum Prayer - One (04:30)
+ 03. A Glowing, Floating Light (07:00)
+ 04. Ripples in Shallow Water (09:59)(   Читать дальше...   )Жанр: Ambient, Field Recording, Dub TechnoПродолжительность: 01:00:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94610597C1F2700A757BC9DC82A20D5137C633D0
+magnet:?xt=urn:btih:0581FE8AB81A4EC93CAA39481D7D51DBD8A488F2
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511801   (788246) от 22.11.2021
+###  Публикация: 1277394   (785454) от 20.01.2019
 
-Farming Simulator 22 (2021) [Ru/Multi] (1.1.1.0/dlc) License FAIRLIGHT
+Starbreaker - Dysphoria (2019) Japan [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 
->>3
->>4
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788246.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Farming Simulator 22 – очередная часть серии симуляторов фермера, в которой вас ждет около 400 единиц техники от более сотни реальных бендов и новые сельскохозяйственные культуры, а также смена сезонов. Кроме этого игра предлагает улучшенную оптимизацию, продвинутый искусственный интеллект и поддержку модов от пользователей.Тип издания: LicenseРазработчик: Giants SoftwareЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+01. Pure Evil
+02. Wild Butterflies
+03. Last December
+04. How Many More Goodbyes(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:49:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:573CE994696DC6F458CA68E71129EC6423AA87C2
+magnet:?xt=urn:btih:C198655D7120BB46DFCDA5D9DEC5A801F01F400D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511862   (788247) от 22.11.2021
+###  Публикация: 1277371   (785455) от 20.01.2019
 
-Тайна Сен-Тропе / Mystere a Saint-Tropez (2021) WEB-DL [H.264/1080p-LQ]
+Frozen Land - Frozen Land (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 
->>След.
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788247.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Убийство — это не повод для смеха. Обычно. Но вот попробуйте сдержать улыбку, когда преступление происходит среди харизматичных богачей на курорте Сен-Тропе, а расследование ведет весьма эксцентричный и не самый смышленый сыщик. Мотив есть у каждого, а вот с дедукцией — явно дефицит! Чтобы распутать это дело, горе-детективу придется притвориться дворецким и затеряться (   Читать дальше...   )Производство: Франция, Бельгия | Canal+ (fr), Ciné, Curiosa Films, France 2 Cinéma, France TélévisionЖанр: комедия, криминал, детективРежиссер: Николя БенамуАктеры: Кристиан Клавье, Бенуа Пульворд, Тьерри Лермитт, Жером Коммандёр, Росси де Пальма, Вирджини Хок, Жерар Депардье, Венсан Дезанья, Николя Бриансон, Жиль АльмаПеревод: Дублированный (iTunes)Язык озвучки: РусскийПродолжительность: ~01:29:57
+01. Loser's Game
+02. Delusions of Grandeur
+03. The Fall
+04. Underworld (Manala)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:49:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92A690E73F0B65C6D833878A6B0601F768BC6F34
+magnet:?xt=urn:btih:7EB19AA4AA7F3BCC356E195707242C714A537690
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510087   (788248) от 22.11.2021
+###  Публикация: 1277237   (785456) от 20.01.2019
 
-Мосгаз. Западня (2021) WEBRip (сезон 8, серии 1-8 из 8)
+Lividity - Used, Abused, and Left for Dead (2006) [FLAC|Lossless|tracks + .cue] <Death Metal>
 
->>Отечественные сериалы
->>
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788248.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1980 год. Предолимпийская Москва. Перед МУРовцами поставлена задача: не допустить в столице ни одного преступления, очистив город от всех неблагонадежных элементов. К выполнению привлечен даже убойный отдел. Черкасову и его команде поручена борьба с проституцией и «фарцой». Но, вместо этого, Иван Петрович вынужден расследовать одно убийство за другим. В центре событий (   Читать дальше...   )Производство: Россия / Красный квадрат, Студия Русский проектЖанр: детективРежиссер: Сергей ПоповАктеры: Андрей Смоляков, Марина Александрова, Владимир Юматов, Алексей Бардуков, Александр Голубев, Юрий Тарасов, Вадим Андреев, Сергей Угрюмов, Дмитрий Куличков, Александр ФеклистовПродолжительность: ~00:50:00 серия
+01. Raped for Rent (3:00)
+ 02. Gore Epitomite (0:47)
+ 03. Seven19 (2:58)
+ 04. Deviant Pleasures (2:28)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56999F15E065E47197BC013D0495D46072C1162A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510971   (788249) от 22.11.2021
-
-Windows 10 Enterprise LTSC 2021: Основные изменения
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_788249.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Microsoft выпустила новую версию Windows для долгосрочного канала обслуживания Windows 10 Enterprise LTSC 2021, предназначенную для корпоративных клиентов. Новый выпуск основан на Windows 10 Enterprise LTSC 2019 и включает набор функций, эквивалентный Windows 10, версия 21H2.В отличие от Windows 10 Enterprise LTSC 2019, Windows 10 Enterprise LTSC 2021 включает (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:27EA780C7E7AFFD0BCD3D48697851FED1B94F147
 ```
 
 

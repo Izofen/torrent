@@ -1,3 +1,30 @@
+###  Публикация: 1036079   (622827) от 19.07.2016
+
+Muncie Girls - From Caplan to Belsize (2016) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622827.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Learn In School
+2. Gone With The Wind
+3. Respect
+4. Balloon(   Читать дальше...   )Жанр: Punk Rock, IndieПродолжительность: 0:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E922A404323BE6543EF31765699F58163441A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294832   (624121) от 10.04.2019
 
 Gabriel and The Apocalypse - Alpha Bionic (2019) [FLAC|Lossless|tracks + .cue] <Alt. Metal, Industrial Rock, Female Vocal>
@@ -668,33 +695,6 @@ Biffy Clyro - Ellipsis (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F032614831BFEF608DA3E09C55C1528B13DAE1D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142664   (640787) от 15.06.2017
-
-Nickelback - Feed The Machine (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed The Machine (5:02)
- 02. Coin For The Ferryman (4:50)
- 03. Song On Fire (3:51)
- 04. Must Be Nice (3:43)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A3CFE8749609DACB608FEF541C34DC2040E4605
 ```
 
 

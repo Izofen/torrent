@@ -1,3 +1,30 @@
+###  Публикация: 1299109   (599910) от 01.05.2019
+
+MRUKS - Level Up (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, R&B, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_599910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project HP
+02. Knowledge
+03. Visual
+04. Green Door(   Читать дальше...   )Жанр: Funky, R&B, RetrowaveПродолжительность: 00:31:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97EB4B6EAEBFF88F68AA73F4AB2984039A9D504
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913742   (599974) от 01.07.2015
 
 Dance With the Dead - Into the Abyss (2014) [MP3|320 кб/с]<Electronic, Dreamwave>
@@ -662,33 +689,6 @@ VA - Sunset Lovers the Harmony of Sounds (2019) [MP3|320 Kbps] <House, Tech Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E69AC1A299A520ED1FE539386FCF14E645E1C16F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299200   (600858) от 30.04.2019
-
-VA - Delicious Bar Grooves Barcelona (2019) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delano's Friends - Top Of The Rhythm (Miami Rhythms's Deep Machinery) 3:33
-02. Yoshi Yoky - Gypsy Rain (Tokyo Deep Mix) 3:23
-03. Steven Light - The Magic Box (5th Avenue Mix) 3:12
-04. Long Island Groove - Gonna Meet You (Original Mix) 3:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D0070727D9E1D75290571D1BC8D973631A3D13
 ```
 
 

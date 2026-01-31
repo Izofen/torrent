@@ -1,3 +1,192 @@
+###  Публикация: 1312403   (530708) от 05.07.2019
+
+Gala - Gregorian Dance (1994) [MP3|320 Kbps] <New Age, Enigmatic, Eurodance, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Responsorios (6:19)
+02. Graduale (6:38)
+03. Cosmos (4:51)
+04. Aleluia (4:18)(   Читать дальше...   )Жанр: New Age, Enigmatic, Eurodance, AmbientПродолжительность: 01:05:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49971BBA626ED5F4CBE0834F6E6DECA3907725CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312212   (530711) от 05.07.2019
+
+Kyle Dixon & Michael Stein - Stranger Things 3 / Очень странные дела 3 (Original Score from the Netflix Original Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys and Girls (01:49)
+02. I Like Presents Too (01:27)
+03. Starcourt (03:05)
+04. Blank Makes You Crazy (01:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB194008692913F942311F34FE190B11CBDD3E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312712   (530719) от 05.07.2019
+
+Modern Sound Orchestras - Wind Of Change (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Of Change (3:14)
+02. Careless Whisper (3:09)
+03. Honesty (3:46)
+04. Michelle (3:30)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E48B6CE2CC7EC765AAE620258A0DC04FAD10F9F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312325   (530727) от 05.07.2019
+
+Michael Giacchino - Spider-Man: Far from Home / Человек-паук: Вдали от дома (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far From Home Suite Home (08:28)
+02. It's Perfect (00:31)
+03. World's Worst Water Feature (07:31)
+04. Multiple Realities (03:33)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:734B26B06E69E985AB9DFBAAF440BD02E04B3755
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1051996   (530789) от 12.09.2016
+
+Kevin Kern - When I Remember (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Should Waltz [00:06:07]
+02. Once Upon a Time [00:04:35]
+03. Say You Love Me [00:04:25]
+04. Chance Encounter [00:04:30](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E109F94C1C484C9557005D80F5057B46679B64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312200   (530814) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got a Friend in Me (02:04)
+02. I Can't Let You Throw Yourself Away (02:06)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312205   (530816) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я твой хороший друг (02:05)
+02. Ты не вздумай (02:09)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312331   (530821) от 05.07.2019
 
 Joseph Bishara - Annabelle Comes Home / Проклятие Аннабель 3 (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -513,205 +702,6 @@ Johnny Cash - The Real... Johnny Cash (2011) [FLAC|Lossless|tracks + .cue] <Coun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7CD2A775F3BF401080F9712A141F9A36F30D830
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926128   (535475) от 09.08.2015
-
-Medwyn Goodall - The Wisdom of Ages (2015) [MP3|320 кб/с]<New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anam Cara Reprise
-02. Love Conquers All
-03. Spin of the Reel
-04. The Wisdom of Ages(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E31371629ABD73564FEBAB8B44B2F746C1EE7D51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926227   (535582) от 09.08.2015
-
-VA - Blanck Mass Presents - The Strange Colour of Your Body's Tears Re-Score (2015) [MP3|320 кб/с]<Electronic, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll the Dice - Portal
-02. Helm - Eye Balm
-03. Helm - Mirrored Palms
-04. Helm - Silencer II(   Читать дальше...   )Жанр: Electronic, ScoreПродолжительность: 01:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E11CCC590C3AF3D328597858C2E66EBBF00ED7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312132   (535661) от 02.07.2019
-
-Jean Michel Jarre - The Best Of (2015) 2CD [FLAC|Lossless|image + .cue] <Electronic, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene4 [4:05]
- 02. Equinoxe 4 [6:40]
- 03. Magnetic Fields 2 [3:56]
- 04. Orient Express [4:12](   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 02:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999E690406BC79695202D451A9EB2BEC32347DD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227252   (535925) от 16.08.2010
-
-Music From The World Of Osho - Laughing Drums (2000) [WMA|357-449 kbps]<New Age, Worldbeat>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Свинг тенко		   (07:32)
-02 Танцующие барабаны	   (10:47)
-03 Ритм птицы		   (04:09)
-04 Тимфун		   (06:52)
-05 Ритм жизни		   (21:08)
-06 Спокойный Будда	   (08:09)Жанр: New Age, WorldbeatПродолжительность: 00:58:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532827   (536166) от 08.08.2012
-
-Raimonds Pauls / Раймонд Паулс - Zelta 60 (2CD) (1996) [MP3|320 кб/с]<Pop,Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ояр Раймонд Паулс (латыш. Ojrs Raimonds Pauls; (р. 1936) — советский и латвийский композитор, дирижёр, пианист, политический деятель. Народный артист СССР (1985). Почётный доктор Латвийской академии наук.
-Автор музыки множества эстрадных хитов, мелодий к фильмам. Инициатор международных конкурсов молодых исполнителей популярной музыки «Юрмала» и «Новая волна».
-В 1958 Раймонд Паулс получил высшее образование в Латвийской государственной консерватории им. Я. Витола, у профессора Германа Брауна по классу фортепиано. После окончания курса в 1958 году Раймонд Паулс работал в Рижском эстрадном оркестре, выступал с концертами в Грузии, Армении, на Украине. С 1964 года до начала 1970-х годов являлся руководителем этого оркестра.1. Kurzeme (3:11)
- 2. Perlu Zvejnieks (3:19)
- 3. Pie Juras Dzive Mana (3:59)
- 4. Vella Kalpu Dziesma (2:16)
- 5. Ta Es Tevi Milesu (2:50)
- 6. Tris Runci (3:58)
- 7. Genoveva (3:25)
- 8. Kerijas Dziesma (3:27)
- 9. Vieglpratiga Sirds (3:19)
- 10. Tala (3:27)(   Читать дальше...   )Жанр: Pop,InstrumentalПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D4A7701FD0A7959F61706CD4047CFB39A030A7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311630   (536318) от 02.07.2019
-
-Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serene [03:36]
-02. Oceans Apart [04:43]
-03. Wings of Eternity [03:38]
-04. Celestial Sphere [03:47](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729FA7D60079502A13E66370D94493A74D053C9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311625   (536387) от 02.07.2019
-
-Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epiphany [03:03]
-02. Turning Point [03:17]
-03. Reflection [03:23]
-04. Innocence [02:55](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:38:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC2C31713C78A248D82E7BC1B0732A32D7A14624
 ```
 
 

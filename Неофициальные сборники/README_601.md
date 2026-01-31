@@ -1,3 +1,30 @@
+###  Публикация: 1099517   (905313) от 01.02.2017
+
+VA - Ресторан Кураж от радио Шансон. Версия № 2 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905313.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Сборная Союза - Безответная Любовь 3:56
+002. Александр Талин - Арина 3:39
+003. Виктория Калистратова - Ну Прости Меня 3:39
+004. Александр Комиссар - Когда Предают 3:41(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EACE588399BD32342B6156930447D54855F124F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099515   (905314) от 01.02.2017
 
 VA - Отдыхаем душой на стильном радио Шансон (2017) [MP3|256 Kbps] <Шансон>
@@ -674,33 +701,6 @@ VA - Winter Hits Vol 2 (2017) [MP3|320 Kbps] <UK Garage, Club, Vocal, Dance, Dis
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68C6EEA15174AE3D71D19B562AA14BC7EB88F8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991451   (906316) от 28.02.2016
-
-VA - LUXEmusic Топ Февраль (2016) [MP3|320 кб/с] <Club House, Dance, Electro House, House Music, Mash Up, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Hello (DJ PitkiN Remix)
-02. Alekseev - Пьяное Солнце (OlegPerets & Ivan Flash Remix)
-03. Alex Kafer - Так говорят во сне (DJ Denis Rublev Remix)
-04. Anthony El Mejor pres. Мурат Насыров Cover - Я Это Ты (DJ Denis Rublev & DJ Anton Cover Mix)(   Читать дальше...   )Жанр: Club House, Dance, Electro House, House Music, Mash Up, PopПродолжительность: 03:21:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937B7E0E5E8EB82FAA65D29AC62B64AFB2E86C53
 ```
 
 

@@ -1,3 +1,321 @@
+###  Публикация: 441042   (875614) от 15.09.2021
+
+BigBang (Norway) - 11 Albums (1995 - 2013) 12 CD [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа BigBang была образована в 1992 году. Организатор банды, норвежский вундеркидистый пацан Oystein Greni вырос с убеждением, что предназначен для создания музыки, повлияла и работа своего отца, Тор С. Greni, игравшего в далеких 1960-70-х годов в группе Undertakers Circus на разогреве у великих Led Zeppelin, Jimi Hendrix и Curtis Mayfield. А как заядлый скейтбордист, (   Читать дальше...   )Жанр: RockПродолжительность: 08:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25AE9417433E7A57893B9AF10B77CCA3DE791331
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997255   (875821) от 16.03.2016
+
+Lords Of Black - II (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malevolently Beautiful (Intro)
+02. Merciless
+03. Only One Life Away
+04. Everything You're Not(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C9CF984FEC858631EDE106D0C8DC89C068627A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997254   (875828) от 16.03.2016
+
+Entombed A.D. - Dead Dawn (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midas in Reverse
+02. Dead Dawn
+03. Down to Mars to Ride
+04. As the World Fell(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5594B7B55C9FFCF96D3CA6101259CD7D2E2DEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997341   (875832) от 16.03.2016
+
+Destoyer 666 - Wildfire (2016) [FLAC|Lossless|image + .cue] <Black, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traitor
+02. Live and Burn
+03. Artiglio del Diavolo
+04. Hounds at Ya Back(   Читать дальше...   )Жанр: Black, Thrash MetalПродолжительность: 00:42:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67CB3F361106D9D56AC470D3D0BE01600CAB9C55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495952   (875841) от 15.09.2021
+
+Би-2 - Почта (2021) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875841.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Почта (cover Земфира)Жанр: RockПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3903495E25D7A789116126D115D5F8980D797B92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496014   (875843) от 15.09.2021
+
+Accept (JP) - Apogee (2021) [MP3|320 Kbps] <Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Rose In The Sand
+02. High Fort
+03. Bread And Water
+04. Ambiguous Loss(   Читать дальше...   )Жанр: Symphonic ProgПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE3B9C34BB8E1ACF4636E154A696DAC89886668
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495926   (875849) от 15.09.2021
+
+Barry Goudreau (Boston, Ernie And The Automatics, Orion The Hunter, RTZ, Cosmo) - 14 albums, 1 single, 20CD (1976-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барри Гудро - американский музыкант, наиболее известный как один из первых гитаристов мультиплатиновой группы Boston, принявший участие в записи первых двух самых успешных альбомов. Пока Том Шольц шестой год обдумывал каким должен быть третий альбом Boston в 1980 году Барри Гудро выпустил свй сольный одноименный альбом Barry Goudreau, 1984 году Гудро сформировал (   Читать дальше...   )--------------------------
+
+01. Learning How To Love (4:21)
+02. Remermber Our Love (4:53)(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, Blues Rock |Продолжительность: 14:16:59 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0A3D678296EE69EF08AC7190C6A24671C3BF76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495930   (875973) от 15.09.2021
+
+Stormbringer - Stormbringer (1983) Reissue, 1994, Self-Released[FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feels Like The Real Thing (4:40)
+02. Searching' (4:04)
+03. Intro (0:57)
+04. Rock' N Roll Paradise (6:10)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9A547CEB0A96DC0A6D0AD88AD8DEA6800D277B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495939   (875975) от 15.09.2021
+
+Blazon Stone - Damnation (2021) [FLAC|Lossless|WEB-DL|tracks] <Power, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damnation (Intro)
+02. Endless Fire Of Hate
+03. Raiders Of Jolly Roger
+04. Chainless Spirit(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F59292B9D3476F305BD3C9A773167748DC69CB7F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495944   (875978) от 15.09.2021
+
+Vandallus - 4 (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Short Fuse Groove
+02. Brainwashed
+03. Motor High City
+04. Livin For The Season(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA14608EB3E50DF5337B47158F0B06A1E17B4FA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495948   (875979) от 15.09.2021
+
+Metalsteel - Forsaken By The Gods (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forsaken By The Gods
+02. Dying Out
+03. For The Future
+04. Drop By Drop(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F61D0E73BBC2CF04B365F0D7A235ED78476EF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495874   (875980) от 15.09.2021
+
+Tower - Uriel (2021) [FLAC|Lossless|image + .cue] <Gothic Metal, Melodic Death Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Earth
+02. Mortal
+03. Uriel
+04. Diabolical(   Читать дальше...   )Жанр: Gothic Metal, Melodic Death Metal, Doom MetalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336AF2F13D8887BE6D09C3B3A675A10587D67381
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496058   (876063) от 15.09.2021
 
 Järnbörd - 2 Albums (2017-2021) [MP3|320 Kbps] <Punk, Crust, Grind, Harcore>
@@ -371,327 +689,6 @@ magnet:?xt=urn:btih:55F5C261486BB4B6B9CCBBAD8211A761B4EB5D50
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D1A937D10BF8429272373C5CB70C12A6665972B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105265   (876735) от 17.02.2017
-
-Stonelight - Into the Unknown (2016) [FLAC|Lossless|image + .cue] <Symphonic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude 01:14
-02. Sound of the Unknown 04:45
-03. Insanity 04:19
-04. Echo 06:20(   Читать дальше...   )Жанр: Symphonic Heavy MetalПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438612D224265A72DA5D19356765A76D96E24C75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105290   (876738) от 17.02.2017
-
-In Aeternum - The Blasphemy Returns (2016) [FLAC|Lossless|image + .cue] <Back, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfpack 04:41
-02. Stench Of Victory 05:03
-03. Majesty Of Fire (2016 Version) 05:31
-04. I Am Elite (War Cover) 02:31Жанр: Back, Death MetalПродолжительность: 00:17:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45122E3E251B341AA8C4433987C7ED45F59ACF14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996806   (876848) от 15.03.2016
-
-Эпидемия - Дует Ветер Ледяной (2015) 2CD Live [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Последний рассвет
-02. Нити судьбы
-03. Я молился на тебя
-04. Звон монет(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A34395399E74166B75DFCC4A818736E03E67D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495830   (877249) от 14.09.2021
-
-The Cranberries - Remembering Dolores (2021) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877249.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Never Grow Old
-2. Schizophrenic Playboy
-3. The Glory
-4. What You Were(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B3E79A86EC1D163E93F6C45B41BB8C9606117E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495803   (877429) от 14.09.2021
-
-Dirkschneider & The Old Gang - Arising (2021) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face Of A Stranger
-02. Every Heart Is Burning
-03. Where The Angels FlyЖанр: Heavy MetalПродолжительность: 00:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C6521A7C2DA137F666A206DCD75B67DFCF3B78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495805   (877431) от 14.09.2021
-
-Dirkschneider & The Old Gang - Arising (2021) EP [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Face Of A Stranger (04:57)
- 02. Every Heart Is Burning (05:31)
- 03. Where The Angels Fly (04:57)Жанр: Heavy MetalПродолжительность: 00:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1ACAD6CB22D04DB0F4FBB4380F78678073C087
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495763   (877451) от 14.09.2021
-
-Ancient Empire - Priest Of Stygia (2021) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortal (05:08)
- 02. Beyond The North Wind (04:01)
- 03. Priest Of Stygia (05:30)
- 04. Island Of The King (06:10)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3777D9B2050AD76300C2D6126670B3FC679893A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495761   (877455) от 14.09.2021
-
-Ancient Empire - Priest Of Stygia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immortal
-02. Beyond The North Wind
-03. Priest Of Stygia
-04. Island Of The King(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D75DC070ACD880207EDA8E15B00FA770D0429D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495759   (877551) от 14.09.2021
-
-Syndone - Kama Sutra (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Only Make Believin 3:27
-02. Nirvana 2:52
-03. Carousel 2:32
-04. Into the Kama 5:51(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B600B054F3090BD9858FB95849BCFAFF88766E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495670   (877556) от 14.09.2021
-
-Andreas Aarflot - Det rivna pianot (1978) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Rock, Prog Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877556.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sista båten från Shanghai - 05:04
-2. Svedolfs telefonkiosk - 03:38
-3. Vägar - 04:36
-4. Surayya - 03:29(   Читать дальше...   )Жанр: Jazz-Rock, Prog Rock, FusionПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514996D543EDAC010A12BD20A24D4F1F18A0C8E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997058   (877568) от 15.03.2016
-
-Lords Of Black - II (2016) Japanese Edition [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malevolently Beautiful (Intro)
-02. Merciless
-03. Only One Life Away
-04. Everything You're Not(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3467336BF709E99934846B2D9555EBEE91EB723
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997001   (877575) от 15.03.2016
-
-Mechina - Andromeda (2016) Single [FLAC|tracks|WEB-DL]<Industrial, Symphonic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877575.jpg" />
-</div>
-
-
-###  Подробнее
-
-[09:22] 01. Andromeda (2011 Version)
-[08:39] 02. Andromeda (2016 Remixed Version)
-[08:39] 03. Andromeda (2016 Instrumental Version)Жанр: Industrial, Symphonic Death MetalПродолжительность: 00:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3244731935D1D1E96985C4EBA402B6B0129F848B
 ```
 
 

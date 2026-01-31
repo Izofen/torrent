@@ -1,3 +1,30 @@
+###  Публикация: 1316291   (507760) от 24.07.2019
+
+Synthezman - Synthezman (2004) [FLAC|Lossless|tracks + .cue] <Synthpop, Techno, Minimal>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiral (3:35)
+02. Robot's Song (6:14)
+03. Futurepub Girl (5:22)
+04. Timeless (4:35)(   Читать дальше...   )Жанр: Synthpop, Techno, MinimalПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A045E78249E996ECFD9B17E11E5EFF0846FCA0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561034   (508059) от 10.07.2022
 
 Fancy Inc & KVSH & Bhaskar - So Track Boa Festival Belo Horizonte, Brazil (2022) [MP3|320 Kbps] <Electro House, House, Tech House>
@@ -685,33 +712,6 @@ VA - Deep House Music DJ Charts Ibiza (2015) [MP3|320 кб/с]<Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34724A4AA375E3E370F69F7DF542B4A80E54F4FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562063   (512506) от 07.07.2022
-
-VA - Chillout Summer Gems 2022: Chillout Your Mind [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary B - World Feel (original mix) (4:04)
-02. Beamy - Fragments (original mix) (4:48)
-03. Martin Hiska - Returning (6:34)
-04. Chillson - Don't Look Back In Anger (feat Marc Hartman) (5:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:989A5BC1F7ACF2C16CF751C1A9EA23C9D5F3025D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 903113   (659365) от 30.05.2015
+
+VA - Living For Lounge & Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_659365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Mindfulness [05:51]
+02. Cane Garden Quartet - Stay Strong [05:37]
+03. Kaxamalka - You Take My Breath Away [05:40]
+04. Bonsugi - Himerius - Darkness Lounge Paradise Mix [07:01](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 05:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6C7971853857F7409387B4D81C741D1D2F958F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139659   (659367) от 03.06.2017
 
 VA - Taste My Lipstik (2017) [MP3|320 Kbps] <Balearic, Downtempo>
@@ -674,33 +701,6 @@ VA - Enormous Tunes - Ibiza Nights 2017  [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D306E2BCF24834014CED0008C405AEBFC2414C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139200   (661396) от 01.06.2017
-
-VA - Running Beats Vol.14 - Musik Zum Laufen (Inkl 5 KM & 10 KM Mix) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Mix - 5 KM Power (Lauf Mix) 31:51
-02.  DJ Mix - 10 KM Power (Lauf Mix) 1:01:01
-03.  DJ Polique feat. J. Lauryn - Fuego Gasolina (Single Version) 3:24
-04.  R.I.O. - Headlong 2:58(   Читать дальше...   )Жанр: HouseПродолжительность: 03:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BE6150DDA16A5A76CD33F18C9F6DF76FAD19BA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1146274   (616341) от 28.06.2017
+
+Michael E - Behind Closed Doors (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chill Out, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_616341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Try  (6:26)
+02.  Over The Hills & Far Away  (6:25)
+03.  Balearic Soul  (6:01)
+04.  Behind Closed Doors  (7:13)(   Читать дальше...   )Жанр: Downtempo, Chill Out, LoungeПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CB3405EC0D36D339B6F5947E4B0EB8953D03DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146093   (616476) от 28.06.2017
 
 VA - Summer Party Dance Hits 2017 [MP3|320 Kbps] <Progressive House, Dance>
@@ -668,33 +695,6 @@ VA - Beautiful Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB3BFE0C75144EDD4BAFF2E896FC55F026A7AE04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544947   (618388) от 17.04.2022
-
-Swedish House Mafia - Paradise Again (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Electro House, Euro House, Bassline>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time (feat. Mapei) (04:41)
-02. Heaven Takes You Home (feat. Connie Constance) (03:34)
-03. Jacob's Note (feat. Jacob Muhlrad) (01:04)
-04. Moth to a Flame (feat. The Weeknd) (03:54)(   Читать дальше...   )Жанр: EDM, Electro House, Euro House, BasslineПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A66DA5DE1B5926F236DF38E9D081834A025CB92
 ```
 
 

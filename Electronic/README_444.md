@@ -1,3 +1,30 @@
+###  Публикация: 1110593   (852175) от 03.03.2017
+
+VA - Last Night In Miami (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bit Express - Bass Down Low (Anthony Maserati's Night Mix)  3:34
+02.  Leon Victory - Mad Lion Junglist (Raggadeep Mix)  3:33
+03.  Alex Martinez - Costa Blanca (Original Mix)  6:09
+04.  Bamboo Rhythms - Pushing On (Man On The Moon Mix)  4:15(   Читать дальше...   )Жанр: HouseПродолжительность: 01:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B7FD99A594BC0A4320AC3EFA7A15F0058AC967
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110401   (852176) от 03.03.2017
 
 VA - Deep House Paris Vol 3 (2017) [MP3|320 Kbps] <Deep House>
@@ -668,33 +695,6 @@ VA - Mind & Soul Music (Ambient Sounds & Down Beats) (2016) [MP3|320 кб/с] <L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9816C2A3819C6EB6F7BA73F691D395FB6F90FDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110081   (855669) от 01.03.2017
-
-VA - Deep House Republic Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855669.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andres Newman - Children - Deeper Mix 3:50
-002. ArtSpace - Far Away - Paradise Mix 4:11
-003. KTB - Another Day in Paradise - Highpass Remix 4:53
-004. Rico Van Basten - Take on Me 3:10(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:816B983AD47C31D04E6B2891808D42A5701D71C6
 ```
 
 

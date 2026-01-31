@@ -1,3 +1,30 @@
+###  Публикация: 1213893   (766591) от 19.03.2018
+
+VA - Redux Miami Selection (Mixed by Brent Rix) (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_766591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Miroslav Vrlik  -  Second Reset (Original Mix)  3:07
+02.  Brent Rix  -  Solar Flare (Original Mix)  3:48
+03.  Kiyoi & Eky  -  Hide Away (Original Mix)  3:33
+04.  DJ T.H. & Miss Cortex  -  Meeting In The Orchestra (Para X Edit)  3:40(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AA321BB3651813BE2630E42609EE1BF890CF52
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213929   (766593) от 19.03.2018
 
 Audub - Discography 4 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
@@ -668,33 +695,6 @@ Alcove - Universal Implication (1994) Visible Records [FLAC|Lossless|tracks+.cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEDCFDB2CD47964378E38AA15CE74F5571E6AAF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103645   (767839) от 15.04.2017
-
-Sylver - Turn The Tide (2000) Maxi Single [FLAC|Lossless|tracks] <Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_767839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn The Tide (Radio Edit) (04:05)
-02. Turn The Tide (CJ-Stone Radio Edit) (03:29)
-03. Turn The Tide (The Original Mix) (08:00)
-04. Turn The Tide (Airscape Remix) (07:24)(   Читать дальше...   )Жанр: Electronic, TranceПродолжительность: 00:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6354255CFC0F443142BC6F2FE6AB17765815B671
 ```
 
 

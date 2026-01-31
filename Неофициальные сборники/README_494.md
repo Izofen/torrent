@@ -1,3 +1,30 @@
+###  Публикация: 1015897   (772567) от 12.05.2016
+
+VA - Новая Клубная Сборка лето 2016. 50 хитов (2016) [MP3|320 кб/с] <Club, Dance, Deep House, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adele - Hello (Astero Radio Remix)
+ 2. Alekseev vs Modernator - Пьяное Солнце (Denis Denisoff Mash Up)
+ 3. Alex Kafer - Так говорят во сне (Dj Denis Rublev remix)
+ 4. Andrey Keyton Feat. Irina Gi - Everlasting Pictures (Mr. DJ.Monj Remix)(   Читать дальше...   )Жанр: Club, Dance, Deep House, RemixПродолжительность: 03:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD67BA691B5F2E243B6556062B7088053E6B3869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 318389   (772582) от 06.04.2011
 
 VA - Record Super Chart № 184 (2011) [MP3|320 kbps]<House, Electro, Trance, Dance>
@@ -679,33 +706,6 @@ VA - Let's Rock !!! (2016) [MP3|160-320 кб/с] <Hard, Heavy, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A5713BA8D0B3F927527AC52D801A6765A91CC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015566   (773930) от 11.05.2016
-
-Ozzy Osbourne - The Best Hits (2016) [MP3|320 кб/с] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Don't Wanna Stop
-02 - Perry Mason
-03 - Can't Save You
-04 - Dreamer(   Читать дальше...   )Жанр: RockПродолжительность: 02:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC812E0E420486D90BB07CFBE277D852731D3A8
 ```
 
 

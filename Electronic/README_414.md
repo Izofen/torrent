@@ -1,3 +1,30 @@
+###  Публикация: 1154625   (792472) от 31.05.2020
+
+Mint (Biotron Shelf) - Discography 20 Releases (2004-2015) Boltfish Recordings, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Glitch, Downtempo, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. October Mist (02:25)
+ 02. Three Ten To Euston (03:49)
+ 03. Formless Geometry (06:58)
+ 04. A Tree Without Birds (02:18)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDMПродолжительность: 10:00:24 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD4C7983FCBF5EA46CE3DBAD3F6F924F0DD9957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123403   (792482) от 07.04.2017
 
 VA - Jazz House Instrumental: Jazzy Soulful Tracks and Instrumental Club Tunes (2017) [MP3|320 Kbps] <Deep House, Chill House, Jazzy>
@@ -661,35 +688,6 @@ FM-84 - Los Angeles (2015) EP [MP3|320 Kbps] <Electronic, Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36C2126C223E88399A0233D072CD1C2E6804F8CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123060   (793373) от 06.04.2017
-
-VA - Electronic Sound Presents Coldcut: The Ninja Mix (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло 25 лет с тех пор, как Coldcut - диджейский дуэт Мэтта Блэка и Джонатана Мора - основал собственную студию в качестве дома для электронной музыки вдали от разлагающего влияния крупных лейблов.
-Сначала они представляли свои миксы в лондонском музыкальном магазине, где за прилавком работали только черные, а также на пиратских радиочастотах.
-Они продолжили революцию (   Читать дальше...   )01. Roots Manuva - Don't Breathe Out  (2:28)
-02. Romare - Who Loves You?  (1:28)
-03. Sarathy Korwar - Dreaming (Tenderlonius Remix)  (1:38)
-04. Letherette - Shanel  (1:12)(   Читать дальше...   )Релиз состоялся: 27.01.2017Жанр: Electronic, Hip Hop, HouseПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7B238577AFD770CFCAA7BF682F0F32F7CA4006F
 ```
 
 

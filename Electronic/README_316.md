@@ -1,3 +1,30 @@
+###  Публикация: 1543831   (623685) от 14.04.2022
+
+VA - FGVIII (Mixed by Miss Monique) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Monique - FG VIII (Continuous DJ Mix) (57:06)
+02. Kamilo Sanclemente - From The Sky (Original Mix) (8:55)
+03. Kamilo Sanclemente - Venus (Original Mix) (7:51)
+04. Juan Deminicis - Aldebaran (Original Mix) (8:19)(   Читать дальше...   )Жанр: Progressive House, Melodic TechnoПродолжительность: 02:05:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:482AC2E464B8CECFA15547436BDA8BF2DB88F902
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544191   (623798) от 14.04.2022
 
 VA - Vocal Trance 2022 Vol 2 (2022) [MP3|320 Kbps] <Uplifting Trance>
@@ -660,33 +687,6 @@ VA - Future 80's Records Compilation Vol. IV (2018) [FLAC 2.0|44.1/16, 24|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC2E6EFB1F61BFDAC05499CFF6A57B700506D153
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144379   (625921) от 23.06.2017
-
-VA - Visceral 050 (2017) [MP3|320 Kbps] <Progressive House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_625921.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. James Warren - Visceral 050 (Part 1) (01:04:36)
-2. Audio Units - Grainspace (original mix) (06:27)
-3. Jobe - Eunis (original mix) (08:11)
-4. Tone Depth - Eros (original mix) (08:39)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 04:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F54CC785263415F56C79FE1A06114F16CEAC2E
 ```
 
 

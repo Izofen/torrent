@@ -1,3 +1,327 @@
+###  Публикация: 979947   (957420) от 28.01.2016
+
+The Casualties - We Are All We Have (2009) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Carry On The Flag
+02 - We Are All We Have
+03 - Heart Bleeds Black
+04 - Rise And Fall(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8592AB6840CE18AD5D75B9B6A189F347C7057EED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979956   (957424) от 28.01.2016
+
+The Casualties - Under Attack (2006) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Under Attack
+02 - Without Warning
+03 - System Failed Us... Again
+04 - Social Outcast(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9968205414AA0E2635A2D8742DD6BAC93E5F2C90
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979969   (957426) от 28.01.2016
+
+The Casualties - On The Front Line (2004) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Casualties Army
+02 - On The Front Line
+03 - Leaders Of Today
+04 - Criminal Class(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B18A9EDB5C456119BFCE5664487612C41B89614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979984   (957429) от 28.01.2016
+
+The Casualties - Stay Out Of Order (2000 [MP3|320 кб/с] <Rock, Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - No Way Out
+02 - Proud To Be Punk
+03 - Street Punk
+04 - Fight For Your Life(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF74348FD3C06BE643402798BA4568F2152E0DB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979996   (957432) от 28.01.2016
+
+The Casualties - Underground Army (1998) [MP3|320 кб/с] <Rock, Punk, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unemployed
+02 - No Rules
+03 - Stay Out Of Order
+04 - Sell Out Society(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 00:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C88CC24D007EA4B5A58B2C0F42617D2677626CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360822   (958114) от 17.02.2020
+
+Wolfpakk - 5 albums (2011-2020) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958114.jpg" />
+</div>
+
+
+###  Подробнее
+
+WOLFPAKK - Амбициозный звездный Европейский проект, лидерами которого являются Альфа-волки, как сами прозвали себя Michael Voss (ex-Casanova, Mad Max) и Mark Sweeney (ex-Crystal Ball). Благодаря своей работе в качестве продюсера в ряде проектов Воссу удалось привлечь к совместной работе в группе большое количество именитых музыкантов. На сегодняшний день в период (   Читать дальше...   )--------------------------
+
+01. Nature Strikes Back (5:38)
+(feat. Michael Sweet, Jean-Marc Viller, Mikkey Dee)(   Читать дальше...   )Жанр: Hard Rock, Melodic Power Metal |Продолжительность: 04:52:03 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A4ACC9D5E4B6951C1B6335E9F5972C0A1A24869
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979939   (958183) от 27.01.2016
+
+Пикник - Большая игра (2015) 3CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Большая игра
+02. Нет берегов
+03. Египтянин
+04. Немного огня(   Читать дальше...   )Жанр: RockПродолжительность: 03:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF314B04BF40B7F5290089C059AE25F138BA4237
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979931   (958361) от 27.01.2016
+
+Нервы - Третье дыхание (2015) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я здесь!
+02. ЗТНБ
+03. На Луну
+04. Мы – Мир!(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E0ACCE93EA3450248BF480F7F515F00546D5B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979614   (958426) от 27.01.2016
+
+Serenity - Codex Atlanticus (2016) Japanese Edition [MP3|320 кб/с] <Symphonic, Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Codex Atlanticus
+02. Follow Me
+03. Sprouts Of Terror
+04. Iniquity(   Читать дальше...   )Жанр: Symphonic, Progressive Power MetalПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D9B65A814652261BB6FF81148AEA7988FE0C5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979659   (958428) от 27.01.2016
+
+Suede - Night Thoughts  (2016) Deluxe Edition [MP3|320 кб/с] <Alternative Rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When You Are Young (04:19)
+02. Outsiders (03:53)
+03. No Tomorrow (03:51)
+04. Pale Snow (02:42)(   Читать дальше...   )Жанр: Alternative Rock, BritpopПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42BC5AF5580DB1F53D7CBC6A567FF89B2293289B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979766   (958502) от 27.01.2016
+
+Carsten Lizard Schulz Syndicate - The Day The Earth Stopped Turning (2015) 2CD [FLAC|Lossless|image + .cue] <Hard 'n' Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Prize Is Shame [04:40]
+02. Head's Blowing A Fuse [05:11]
+03. Black Water Soul [04:58]
+04. Dogs [04:29](   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 01:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:727E1139D078A745EA84DBB66EAFB3D2AC867224
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360706   (959299) от 16.02.2020
+
+Альянс - Космические сны (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Навстречу холодному свету
+02. Космические сны
+03. Эй, мен, супермен!
+04. Ночь сомнения(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA88DD613E8F29E00D56A722A9C18B59A7F44D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 784737   (959334) от 16.02.2020
 
 Holy Mother - Agoraphobia (2003) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -371,349 +695,6 @@ Iced Earth - The Glorious Burden (2004) [FLAC|Lossless|image + .cue] <Thrash Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91BE28D91B22FF1A535F06F8C208541314376B2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360533   (960935) от 15.02.2020
-
-Therion - Gothic Kabbalah (2007) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <Sympho Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wand Of Abaris
-02. Three Treasures
-03. Path To Arcady
-04. TOF | The Trinity(   Читать дальше...   )Жанр: Sympho MetalПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640DB1B71F58B2D728AB728583C78746FC5305A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979219   (960950) от 25.01.2016
-
-Mark Knopfler - Privateering (2012) 2CD, Album, Mercury [FLAC|Lossless|image + .cue] <Blues, Piano Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_960950.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD2:
-01. Kingdom Of Gold 05:23
-02. Got To Have Something 04:00
-03. Radio City Serenade 05:13(   Читать дальше...   )Жанр: Blues, Piano BluesПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F08CFA260BC6A51F8C98A13C77425EFA1ED5014
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979016   (961037) от 25.01.2016
-
-Brunettes Shoot Blondes - Bittersweet (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bittersweet (02:48)
-02.Bang Bang! (02:57)
-03.Tomorrow (02:54)
-04.Knock Knock (02:19)Жанр: Alternative, Indie RockПродолжительность: 00:16:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F654A875EDA69E86C42A5FF505651C5D00A298CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978993   (961154) от 25.01.2016
-
-Abbath - Abbath (2016) Deluxe Edition [FLAC|Lossless|tracks+.cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To War
-02. Winter Bane
-03. Ashes of the Damned
-04. Ocean of Wounds(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A779287302DFBD071A2AD99BA3F8802242B88570
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454424   (961180) от 21.02.2013
-
-АнимациЯ - 2 Альбома (2010-2012) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. На минуту (02:48)
-02. Родина (02:57)
-03. Питерская (03:19)
-04. Дневник (03:40)
-05. Холодильник (03:18)
-06. Прелесть (04:37)
-07. Всё будет хорошо (03:29)
-08. Спички (03:15)
-09. Чукчи(Народная) (03:26)
-10. Точка отсчёта (03:03)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:40:34
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170390   (961420) от 29.01.2010
-
-ВИА "Круг" - Круг друзей (2003) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961420.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 170255   (961434) от 29.01.2010
-
-Transatlantic - Дискография (2000-2009) [FLAC|Lossless]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spinning (9:58)
-02. Lenny Johnson (4:20)
-03. For Such A Time (5:23)
-04. Lending A Hand (8:43)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747783   (961623) от 20.01.2014
-
-Alaskan - Despair Erosion Loss (2014) [FLAC|Lossless]<Atmospheric Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sacrifice  05:12
-02 - Fiend  07:33
-03 - Inferno  05:43
-04 - Submerged  05:16
-05 - Guiltless  07:20
-06 - Eternal  05:15
-
-Пост-метал коллектив из Оттавы,Онтарио (Канада), состоящий из участников групп The Vanishing Act, Whale Cry, Elephantoms & The WishlistЖанр: Atmospheric Sludge MetalПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F735A56182A891DEEB599E37BACF2FD29830EE09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621713   (961640) от 21.02.2013
-
-BY Effect - Первый шаг (2012) [FLAC|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Обратная сторона (04:21)
-02. Мы (03:30)
-03. Холод истин (04:11)
-04. Первый шаг (04:52)
-05. Для неё (04:29)
-06. Безумные звезды (04:23)
-07. Кризис (04:02)
-08. Легион (03:57)
-09. Период счастья (04:25)
-10. Не война (05:11)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 621703   (961736) от 21.02.2013
-
-Биплан - В jazz'е только девушки (2000) [FLAC|Lossless] <Rock, BritPop, IndiePop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Космонавты (02:34)
-02. Чао бамбино (02:43)
-03. Телефоны (02:51)
-04. Киносны (03:20)
-05. Родинки (03:35)
-06. Самолёты (02:26)
-07. Улыбки (02:19)
-08. Деньги (02:55)
-09. Киносны (Happyendless remix) (04:58)
-10. Улыбки (Matisse happy gibb rmx) (05:08)(   Читать дальше...   )Жанр: Rock, BritPop, IndiePopПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359978   (961791) от 14.02.2020
-
-Ozzy Osbourne - Ordinary Man (2020) [FLAC|Lossless|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight To Hell (03:46)
-02. All My Life (04:18)
-03. Goodbye (05:34)
-04. Ordinary Man (Feat. Elton John) (05:02)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E81DAFCF61A4539E60338CB74F7837BA121EFC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360011   (961804) от 14.02.2020
-
-Несчастный Случай - В городе Лжедмитрове (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Колодец памяти
-2. Радио 1
-3. В городе Лжедмитрове
-4. Радио 2(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B82E8FA0745FD20C6B27F0657AAA126A830925E
 ```
 
 

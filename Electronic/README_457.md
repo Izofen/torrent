@@ -1,3 +1,30 @@
+###  Публикация: 1372734   (883856) от 04.04.2020
+
+Gabriel Le Mar - Shared Fictions (2020) Le Mar Production [FLAC|Lossless|WEB-DL|tracks] <Ambient, Dub, Downtempo, Acid>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journey Within (07:15)
+ 02. Shared Fictions (07:09)
+ 03. Stay in Wonderland (06:42)
+ 04. Deep Focus (05:45)(   Читать дальше...   )Жанр: Ambient, Dub, Downtempo, AcidПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFC76B302CA81D6F1BFE4E293E18C747F7C7FFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372963   (883988) от 04.04.2020
 
 4T Thieves and Pandacetamol - She Danced On The Sand (2019) Kahvi Collective [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient>
@@ -666,33 +693,6 @@ VA - Romantic Music: Romantic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33B4890FE2F84C662DBFFDEC768ADF239D75FE28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103431   (885953) от 12.02.2017
-
-VA - Big Room Party Here (2017) [MP3|320 Kbps] <House, Electro House, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deugene - Deadliest Sound (Original Mix)  3:38
-02.  Aleo - Haribda (Original Mix)  4:27
-03.  Aho Andrian - Rain (Original Mix)  3:46
-04.  Batller - Beats On Fire (Extended Mix)  3:59(   Читать дальше...   )Жанр: House, Electro House, Big RoomПродолжительность: 04:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82DE1DD8D3DDB521337054FE4E1EE20F5CC08E9
 ```
 
 

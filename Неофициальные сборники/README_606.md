@@ -1,3 +1,30 @@
+###  Публикация: 990522   (912164) от 25.02.2016
+
+VA - Welkom To The Dancefloor (2016) [MP3|320 кб/с] <Dance, Club, Pop, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912164.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Derek Howell - Lickety Split (Original Mix)
+002. DJ Herby - Waht A Feels (Original mix)
+003. Rotan - Venus (Rotan Remix)
+004. Jim Noize - Amplify (Radio Edit)(   Читать дальше...   )Жанр: Dance, Club, Pop, ElectroПродолжительность: 08:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78697A79B9638736D288853D278F6D3BA3A092F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990484   (912291) от 25.02.2016
 
 VA - Collection (2016) [MP3|320 кб/с] <Electronic, Lounge, New Age>
@@ -688,33 +715,6 @@ VA - NME Exclusive Megamixes Vocal Trance (2020) [MP3|320 Kbps] <Vocal Trance, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98DC0452AE8348C3C7F59AF14030894CA81C959C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490996   (913949) от 23.08.2021
-
-VA - Progressive Classics (2021) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913949.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Vidal & Greenage - Summer Rain (Cj Art Downbeat Mix)
-002. Alexander Saykov - Boulevard (Original Mix)
-003. Axel Terblanche - Diurnal (Original Mix)
-004. Diego Ferran - My Paradise (David Duque Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 11:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E60AC79265BD17D14FC7F5494BE708AD522886C9
 ```
 
 

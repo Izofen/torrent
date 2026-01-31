@@ -1,3 +1,30 @@
+###  Публикация: 978854   (962525) от 24.01.2016
+
+VA - Chillhouse Winter Beats (2016) [MP3|320 кб/с] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_962525.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Salvatore Stallone - Silvia's Element
+2. White Beach (Crystal Blue Sea mix) - Best Of Chillout Lounge
+3. Erdinc Erdogdu - Enjoy The Silence
+4. I Live My Life (Beach Lounge Session) - Pearls Of Ibiza(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1EF17A18DE30977BD7399BC924D21E5F2A77CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978731   (962612) от 24.01.2016
 
 VA - Greek Lounge Deluxe Top 10 of All Times (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -665,33 +692,6 @@ VA - Beatport Deep House Great Mix (2016) [MP3|320 кб/с] <Deep House, Club, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1F399244DC02E9487EAEB78531C4BA4CAF4728E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978053   (964720) от 22.01.2016
-
-VA - Existence In Progress (2016) [MP3|320 кб/с] <Progressive House, Electro, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964720.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2 Faced Funks - Powerbass (Original Mix)
-002. Years & Years - King
-003. Duke Dumont - Won't Look Back
-004. Mind In A Box - Unforgiving World(   Читать дальше...   )Жанр: Progressive House, Electro, ClubПродолжительность: 09:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B0926878608373307F330181E4C6FE15E148B7
 ```
 
 

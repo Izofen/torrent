@@ -1,3 +1,30 @@
+###  Публикация: 1211623   (777241) от 08.03.2018
+
+VA - Love & Relax: Temptation (2018) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_777241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  DJ Rostej  -  Ethereal (Original Mix)  6:35
+02.  Soty  -  Butterflies (Original Mix)  4:17
+03.  Der Luchs  -  How Long (Original Mix)  5:05
+04.  Seven24 & Soty feat. Maria Opale  -  Don't You Cry (Original Mix)  4:39(   Читать дальше...   )Жанр: Downtempo, Chillout, VocalПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C4D6EA6E315DDB5DDD1B194A9ABE4374588CA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211496   (777246) от 08.03.2018
 
 VA - Russian Electronica Vol.3 (2018) [MP3|320 Kbps] <House, Electronica>
@@ -668,33 +695,6 @@ VA - Future Sound of Egypt 500 (2018) [MP3|320 Kbps] <Trance,Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40C38F8443493B3DB444A21912929B214C8B2F56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210928   (778230) от 05.03.2018
-
-VA - Relax Vibration Vol.03 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gene D.  -  5 Am In Ibiza (Original Mix)  4:36
-02.  Zetandel  -  A Letter To Kate (Original Mix)  4:41
-03.  Alex Field  -  About The Beautiful (Original Mix)  6:34
-04.  Mr.Udjin  -  Abstraction (Original Mix)  4:28(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AECC7F96E8895EA7E8F2DD2A20095C91E81307B
 ```
 
 

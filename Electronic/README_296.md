@@ -1,3 +1,30 @@
+###  Публикация: 1042077   (580591) от 11.08.2016
+
+VA - Most Wanted Chill & Lounge (2016) [MP3|320 Kbps] <Easy Listening, Soulful, Chill, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louisa Lessley - Wanda's Theme 04:43
+02. Chickenskin - Kissysweet 06:16
+03. Claudia Hunt - Little Sorrow 05:57
+04. Snik - Design (Radio Edit) 03:39(   Читать дальше...   )Жанр: Easy Listening, Soulful, Chill, LoungeПродолжительность: 07:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A9E242FE1009579B14BAD1E22FB0D3EF118FBBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041928   (580592) от 11.08.2016
 
 VA - La Nuit (Delicious Chill House Lounge Vol 2) (2016) [MP3|320 Kbps] <Deep House, Chill House>
@@ -674,33 +701,6 @@ VA - 50 Lounge and Chillout Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6D307A6087762CC50601B537B214E6880DE4837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041417   (583423) от 08.08.2016
-
-VA - 100% Hotel Deluxe Music Vol.7 - The Best in Lounge and Chill out Essential Luxury Hits (2016) [MP3|320 Kbps] <Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project Blue Sun - Color del Amor
-02. Simon Le Grec - I Need Somebody
-03. Charlie North - Big Blue Sky
-04. Mo'jardo - Say Hello(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:02:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D47748BDBDB00FD2249CCB13C099B078B8A85D5
 ```
 
 

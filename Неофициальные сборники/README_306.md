@@ -1,3 +1,30 @@
+###  Публикация: 1315127   (515020) от 18.07.2019
+
+VA - Planet Rap: Enhanced Radio Mix (2019) [MP3|320 Kbps] <Hip-Hop, Rap>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J.J. Pérez - Tantos Diferentes
+002. Skinny Bonez - Ron's Basement
+003. Rockstah - Der Pinguin
+004. Cozy - Get Used To Me(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 08:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E24D7FE814373B12C9CCE277534AF74B9CC56B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314949   (515023) от 18.07.2019
 
 VA - Roots Reggae (2019) [MP3|320 Kbps] <Reggae, Dub, SKA>
@@ -675,33 +702,6 @@ VA - Ibiza Residence (2015) [MP3|320 кб/с]<House, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:907FD15DDD0089A626DF6CB3B574B879D89EE387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930260   (516397) от 22.08.2015
-
-VA - Natural Lounge and Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_516397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mauri J – Judith’s Song
-02. P & V Guitarra – Mas Que Nada
-03. Moonlight Electric Orchestra – Waveform Sax
-04. David Maj – Marea(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6215437B5C1BB61DD570FB9FF19BBA850B2F2354
 ```
 
 

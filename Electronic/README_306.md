@@ -1,3 +1,30 @@
+###  Публикация: 1232284   (602331) от 23.06.2018
+
+Modd - Mesmerize Me (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mesmerize Me (4:30)
+ 02. Flight Flow (4:34)
+ 03. Velotrip (4:30)
+ 04. Abenaki (4:42)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6F733D073012D6A1E187D17651BB92BD8BFF6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231897   (602334) от 23.06.2018
 
 Immersion - Sleepless (2018) [MP3|320 Kbps] <Electronic>
@@ -666,33 +693,6 @@ VA - Lounge & Summer Vol. 1 (2019) [MP3|320 Kbps] <Lounge, Chill Out, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7E00E18A18C5F997D35F7AD6AB1993B485D3CEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297268   (603106) от 24.04.2019
-
-Paul Denton - Live @ Anomaly, Rong Afterparty, Tunnel Club Birmingham, United Kingdom (2019-04-06)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. John O'Callaghan & Deirdre McLaughlin vs. Karney - Stay Nothing (John O'Callaghan Noodle)
-03. Key4050 - The Truth
-04. Marco V - Godd(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B7D9B7BD4F558E5F2E13B2A94CA06FAD036E16
 ```
 
 

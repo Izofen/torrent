@@ -1,3 +1,30 @@
+###  Публикация: 1844857   (1050414) от 28.12.2025
+
+VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] <Electronic, Vocal, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sergey Chekalin - New Year's Greetings for 2026!!!
+02 - Bad Boys Blue & Jk Sax - You're Woman (Saxophone Remix)
+03 - Smtve - Send My Love
+04 - Dj Calma - December(   Читать дальше...   )Жанр: Electronic, Vocal, OtherПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2EF3A81B2CA950D39FE3D6FF05B5C639EBAE6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844855   (1050415) от 28.12.2025
 
 VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kbps] <Electronic, Vocal, Other, Ai>
@@ -322,7 +349,7 @@ magnet:?xt=urn:btih:63C2E8B1D41557EB60DA662ED463F5510F129DA4
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845655   (1050761) от 
+###  Публикация: 1845655   (1050761) от 02.01.2026
 
 Nina Blaze - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
 
@@ -349,7 +376,7 @@ magnet:?xt=urn:btih:1C30E844AB61296CF2EEAF6689E6347475E84C02
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845086   (1050785) от 
+###  Публикация: 1845086   (1050785) от 02.01.2026
 
 Ai - No name compilation part 36 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
 
@@ -376,7 +403,7 @@ magnet:?xt=urn:btih:55EBC9ED2E2734DE9BF0B357853706520B272F37
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845195   (1050786) от 
+###  Публикация: 1845195   (1050786) от 02.01.2026
 
 Ai - No name compilation part 37 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad, Soulful Female Vocal, Soul Fusion, Ai>
 
@@ -403,7 +430,7 @@ magnet:?xt=urn:btih:78FA0F11E941BC90C7D63C65DC10C77DB94FCF3D
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845519   (1050787) от 
+###  Публикация: 1845519   (1050787) от 02.01.2026
 
 VA - Blues compilation part 3 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 
@@ -430,7 +457,7 @@ magnet:?xt=urn:btih:B80D79FB9A66DB6B92C4C9168DA6AA4F8AC11B21
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845537   (1050788) от 
+###  Публикация: 1845537   (1050788) от 02.01.2026
 
 Ai - No name compilation part 38 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
 
@@ -457,7 +484,7 @@ magnet:?xt=urn:btih:2CE99E37B7DD8AEE82C04625120A4508F13D51C2
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845572   (1050789) от 
+###  Публикация: 1845572   (1050789) от 02.01.2026
 
 Ai - No name compilation part 39 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slow Pop Rock Ballad>
 
@@ -511,7 +538,7 @@ magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845785   (1051005) от 
+###  Публикация: 1845785   (1051005) от 03.01.2026
 
 VA - Hard Rock: Steel Anthems (2025) [MP3|320 Kbps] <Hard-Rock, Metal, Core>
 
@@ -538,7 +565,7 @@ magnet:?xt=urn:btih:C3483B0A3AD94B8EC8CE88C3E69B12E72E83E696
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846021   (1051027) от 
+###  Публикация: 1846021   (1051027) от 04.01.2026
 
 VA - Зима на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
 
@@ -565,7 +592,7 @@ magnet:?xt=urn:btih:9B1EAEDF5D3EF8947CC043E76063A6CD671428A0
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845958   (1051073) от 
+###  Публикация: 1845958   (1051073) от 04.01.2026
 
 VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
 
@@ -592,7 +619,7 @@ magnet:?xt=urn:btih:6872A68585F3A7596FE1139C7113951DAFF94B2E
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845945   (1051082) от 
+###  Публикация: 1845945   (1051082) от 04.01.2026
 
 Nina Blaze - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
 
@@ -619,7 +646,7 @@ magnet:?xt=urn:btih:B9213935668D02B272217A5523ADABE3421C2BAE
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845949   (1051083) от 
+###  Публикация: 1845949   (1051083) от 04.01.2026
 
 Nina Blaze - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
 
@@ -646,7 +673,7 @@ magnet:?xt=urn:btih:86E7F9ED25871888295684927E4D175B7AC1141A
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845952   (1051086) от 
+###  Публикация: 1845952   (1051086) от 04.01.2026
 
 Nina Blaze - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
 
@@ -668,33 +695,6 @@ Nina Blaze - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4E82B41DEB98E87236C40454B60394BBFA20F58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845815   (1051091) от 
-
-VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ai - Silver in the Dust
-02 - Etta Mae Hartwell - Emerald Silence
-03 - Ai - Remember Me
-04 - Mick Simpson - Now That the Magic Has Gone(   Читать дальше...   )Жанр: Blues BalladПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB302C9056C07DE3CE89B1BB644650C7C00AB1F8
 ```
 
 

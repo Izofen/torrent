@@ -1,3 +1,30 @@
+###  Публикация: 1108895   (861092) от 26.02.2017
+
+VA - The Groove Lounge Vol.11 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_861092.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mika Olson - What I Need - Radio Cut 4:08
+002. Moe Turk - Outta My Head - Andrey Kravtsov Remix 6:41
+003. Popartlive - The Spell - Miguel Campbell Soul Edit 5:17
+004. DJ Friction - Do You Feel - Pete Herbert Remix 7:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DFBC03AE28FE65AFE283F68175EFEF3C7CC06E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497986   (861181) от 24.09.2021
 
 New Arcades - Returning Home (The Instrumentals) (2020) [MP3|320 Kbps] <Synthwave, Retrowave, Dreamwave>
@@ -666,33 +693,6 @@ Banco De Gaia - Ollopa: Apollo Remixed (2013) [MP3|320 Kbps] <Ambient, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F231487B3FC9B6F31344D11C575C9D4C94CF5E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497326   (864675) от 22.09.2021
-
-Depeche Mode - Ultra (The 12 Singles) (2021) Remastered [MP3|320 Kbps] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Barrel of a Gun [00:05:30]
-02 Barrel of a Gun (Underworld Hard Mix) [00:09:37]
-03 Barrel of a Gun (3 Phase Mix) [00:05:25]
-04 Barrel of a Gun (One Inch Punch Mix (V2)) [00:05:29](   Читать дальше...   )Жанр: Synth-popПродолжительность: 03:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D549B079C6DF1FA88E21C1F64286491884F4F564
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1363607   (942429) от 28.02.2020
+
+Лариса Черникова - Тайна (1997) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайна (3:59)
+02. Тайные желания (4:08)
+03. Первый поцелуй (3:39)
+04. Вкусом шоколада (3:39)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E9B2D71D7B1AB2FADC39E8BC08BF1A475F0629
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363600   (942467) от 28.02.2020
+
+Лариса Черникова - Одинокий волк (1995) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Одинокий волк (дубль №1) (4:01)
+02. О,боже мой (4:15)
+03. Подари мне ночь (4:07)
+04. Рука в руке (4:16)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF759D475FC8BEEA813D5C3B65B2E383218E032
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363605   (942478) от 28.02.2020
+
+Лариса Черникова - Подари мне ночь (1996) [MP3|320 Kbps] <Pop, Europop, Euro House>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подари мне ночь (4:05)
+02. Замкнутый круг (4:09)
+03. Мой танец-любовь (4:35)
+04. Найди меня в радуге дня (3:20)(   Читать дальше...   )Жанр: Pop, Europop, Euro HouseПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584D24BF1F358BC8357E5CEC586B5BF6E3514150
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363458   (942642) от 28.02.2020
 
 Kevin Krauter - Full Hand (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -605,87 +686,6 @@ Charlie Puth - Nine Track Mind (2016) Deluxe [MP3|320 Kbps] <Pop, R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D565932AB96BE342B1A92F8BCD6DCE9D1F70E10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090956   (944489) от 08.01.2017
-
-Ibiza Dance Party - Big Ibiza Dance Mix (2017) [MP3|320 Kbps] <Euro Dance, Pop Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pon De Floor  02:59
-02.  Applause  02:52
-03.  Just Give Me A Reason  03:55
-04.  One More Time  03:34(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D264E3EB9A2C9881CE42575D367E7A0F49839DDD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091084   (944558) от 08.01.2017
-
-Rumer - The Magic of Sarah Joyce (2017) [MP3|320 Kbps] <Female vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Sebastian's Girl (03:52)
-02. Aretha (03:17)
-03. Welcome Back (03:36)
-04. Slow (03:36)(   Читать дальше...   )Жанр: Female vocal, Pop, Easy listening, Soul, Smooth JazzПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67842DCA458188110E60B13B127EC5E53D071FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 98717   (944935) от 26.02.2020
-
-Chilly - For Your Love(1978)-Come To L.A(1979)-Secret Lies(1982) [FLAC+Cue|940 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimension 5 (3:18)
-02. Secret Lies (3:11)
-03. Ten Million Dollar Baby (2:40)
-04. Brain Storming (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518B8467F9DEB7EE9AD5F832F96225986A162BDA
 ```
 
 

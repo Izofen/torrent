@@ -1,3 +1,327 @@
+###  Публикация: 1465031   (1019349) от 25.04.2021
+
+Three Seasons - 4 albums (2011-2017) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Retro Prog, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Плодовитые шведы словно нарошно рождают на свет новые хардовые команды. "Three Seasons" - ещё одно чудесное трио молодых музыкантов. Группа образована в 2009 году, насквозь пропитана духом марихуаны и саундом 60-х и ранних 70-х. Банда, в которую вошли экс-вокалист и гитарист Siena Root Сартез Фарадж, бас-гитарист Олле Рисберг, клавишник Маттиас Рисберг (   Читать дальше...   )--------------------------
+
+01. Been Gone (4:16)
+02. Something You Can't Have (5:30)(   Читать дальше...   )Жанр: Hard Rock, Heavy Retro Prog, Psychedelic Rock |Продолжительность: 03:28:37 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1006B4D4AACE811419930B1846DE374FFD444C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464844   (1019479) от 24.04.2021
+
+Lilith Czar (ex- Juliet Simms) - Created From Filth And Dust (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro Poem [00:01:09]
+02 - Feed My Chaos [00:02:56]
+03 - King [00:03:27]
+04 - Anarchy [00:03:54](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A317642FD4E9493DF4133CC108DDD3AA7BB85AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464836   (1019483) от 24.04.2021
+
+Blackbriar - The Cause of Shipwreck (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Confess [00:03:47]
+02 - Weakness and Lust [00:04:54]
+03 - Through the Crevice [00:03:28]
+04 - The Séance [00:03:42](   Читать дальше...   )Жанр: Symphonic Gothic Metal, Female VocalПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3605CA82A2E29AA71035FBCED75D6A708F37C1D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464800   (1019506) от 24.04.2021
+
+Nightfyre - Shattered Lands (EP) (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro II
+02. Far From Home
+03. Lady In Black
+04. Shattered Lands(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3381A8BB76E142932117FA490164F1DEE9B70C28
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464931   (1019508) от 24.04.2021
+
+Endseeker - The Harvest (2019) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parasite
+02. Pulse
+03. Cure
+04. Spiritual Euphoria(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3007E1AFE0DFEBE6CE19DC42E9C184F2066657
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464803   (1019510) от 24.04.2021
+
+Helslave - From The Sulphur Depths (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Sulphur Depths (Intro)
+02. Unholy Graves
+03. Thrive In Blasphemy
+04. Perpetual Damnation(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C354BBA06FFA94B2B07453C7E7FEED790DECBB85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464743   (1019638) от 23.04.2021
+
+НОМ - МАЛГИЛ (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019638.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пробуждение элементов
+2. Смерть героя
+3. Жил мельник
+4. Котяты(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B91E0B92669F26EDCBA8F3E5C1E0C6A338026D2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464753   (1019653) от 23.04.2021
+
+Frozen Crown - Winterbane (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embrace The Night
+02. Towards The Sun
+03. Far Beyond
+04. The Lone Stranger(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F7D3830503F2C8F09692A18A41B59FEEE6D466E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464651   (1019655) от 23.04.2021
+
+Dinosaur Jr. - Sweep It Into Space (2021) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Ain't (04:12)
+02. I Met the Stones (03:45)
+03. To Be Waiting (04:12)
+04. I Ran Away (03:30)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D73B9AA60CCF5BFE7A6B451E7FCD32A316DDA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464819   (1019661) от 23.04.2021
+
+Gilby Clarke - The Gospel Truth (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gospel Truth (00:03:56)
+02. Wayfarer (00:02:58)
+03. Tightwad (00:03:15)
+04. Rock N' Roll Is Getting Louder (00:03:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C34B99AF205FACAA494137CF34E6398552D2FA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464715   (1019663) от 23.04.2021
+
+My Refuge - The Anger Is Never Over (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immortal Fire
+02. War In Heaven
+03. The River And The Rain
+04. Winterland(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABC0EE55739397B009E6B7A989F41C4945075D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464705   (1019667) от 23.04.2021
+
+Velvet Viper - Cosmic Healer (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sword Sister
+02. Let Metal Be Your Master
+03. Cosmic Healer
+04. Holy Snake Mother(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF5F449BA98F594AF47EFDACD29A2CDBF26255F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464751   (1019671) от 23.04.2021
 
 Vexillum - When Good Men Go To War (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Folk Metal>
@@ -368,330 +692,6 @@ Lantlôs (Lantlos) - Agape (2011) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Depr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1F2D5A1859E594F551B9CA885FB569004097317
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464581   (1019838) от 22.04.2021
-
-Lantlôs (Lantlos) - .neon (2010) [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Post Black Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minusmensch (7:51)
-02. These Nights Were Ours (4:43)
-03. Pulse/Surreal (8:24)
-04. Neige De Mars (5:04)(   Читать дальше...   )Производство: Prophecy Productions – WOLF 037Жанр: Depressive Black Metal, Post Black Metal, Post RockПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33E7CE4DAB317DD98043E2C9769A8C71A3E61345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464583   (1019839) от 22.04.2021
-
-Lantlôs (Lantlos) - Melting Sun (2014) Limited Edition [FLAC|Lossless|tracks + .cue] <Depressive Black Metal, Post Black Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melting Sun I: Azure Chimes (7:11)
-02. Melting Sun II: Cherry Quartz (9:39)
-03. Melting Sun III: Aquamarine Towers (8:06)
-04. Melting Sun IV: Jade Fields (6:29)(   Читать дальше...   )Производство: Prophecy Productions – PRO 148 LUЖанр: Depressive Black Metal, Post Black Metal, Post RockПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DA18D10675A29000C795EFC865747A6C9E900A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463943   (1019938) от 21.04.2021
-
-Rage - Reign Of Fear (1986) Repress, 1989, Noise International [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scared To Death
-02. Deceiver
-03. Reign Of Fear
-04. Hand Of Glory(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DE67C073C5C693D5DBB4B665B4E080F168F1C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463773   (1019963) от 21.04.2021
-
-VA - Absolute Power Ballads (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skid Row - 18 and Life (3:49)
-02. White Lion - When the Children Cry (4:23)
-03. Nickelback - Lullaby (3:48)
-04. ZZ Top - Rough Boy (4:47)(   Читать дальше...   )Жанр: RockПродолжительность: 02:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6239332293417B65FF0A734E8816DEACD5DE09F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464166   (1019999) от 21.04.2021
-
-Rage - Ghosts (1999) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginning Of The End
-02. Back In Time
-03. Ghosts
-04. Wash My Sins Away(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C7FF9671FA6DF6E0ABD2D21A241D429221BFE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464167   (1020000) от 21.04.2021
-
-Rage - Welcome To The Other Side (2001) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trauma
-02. Paint The Devil On The Wall
-03. The Mirror In Your Eyes
-(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FA6671A13D75F271D02A8B1ABA61470376E3B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464069   (1020007) от 21.04.2021
-
-Beastcraft - The Nechronology of Ungodly Beastial Craft 2004-2017 (2020) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Horned God Rises
-02. Burnt at His Altar
-03. Enter the Chasm
-04. Satanic Fiend(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D403E0AD200A36A2142EC380395C92CAF55BFC02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464144   (1020008) от 21.04.2021
-
-MaterialEyes - Тhrее Оf А Кind (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrenaline High
-02. Fabulist
-03. I Have Loved The Stars Too Long
-04. When Tomorrow Comes Around(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382194070ECEE0C62273C109F85BE95865C480F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464152   (1020015) от 21.04.2021
-
-Rage - 10 Years In Rage: The Anniversary Album (1994) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vertigo
-02. She Killed And Smiled
-03. Destination Day
-04. Take My Blood(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B8A9DA5D1646BEB63A48EA29C56C46FE9532DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464172   (1020016) от 21.04.2021
-
-Rage - Soundchaser (2003) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orgy Of Destruction
-02. War Of Worlds
-03. Great Old Ones
-04. Soundchaser(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16E5232DBF2E5E82E5A50D2C5DC2212763653CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464170   (1020017) от 21.04.2021
-
-Rage - Unity (2002) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Want
-02. Insanity
-03. Down
-04. Set This World On Fire(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:619E67F7B329FEF9A637DE69B8798A08B988C988
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464147   (1020019) от 21.04.2021
-
-Rage - Black In Mind (1995) [FLAC|Lossless|image + .cue] <Power Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black In Mind
-02. The Crawling Chaos
-03. Alive But Dead
-04. Sent By The Devil(   Читать дальше...   )Жанр: Power Metal, Speed MetalПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21DC6E45BE6A7D4DC50C777E768F17FFE775C1D
 ```
 
 

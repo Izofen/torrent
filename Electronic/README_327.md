@@ -1,3 +1,30 @@
+###  Публикация: 1141954   (646729) от 12.06.2017
+
+VA - Beats For Life Vol.2: 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Cutie' - Gitano
+02. Cephalonya - Settembre
+03. Dj Aleksij & Klod Rights - Feelin' Nice - Kamisshake British Summer Remix
+04. Alfredam - The Sun - Steve Troiani Pool Party Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753A1E56ED82C58E48AD6B60A3F2ED50F3DE7BE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141906   (646730) от 12.06.2017
 
 VA - Zappi Rocks Ibiza (Compiled by DJ Zappi) Vol. 1,2 (2016-2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -671,33 +698,6 @@ VA - Malibu Summer (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45F715DFEC4FCD1F8798725C52A52FA49961217B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227246   (648588) от 25.05.2018
-
-VA - House Summerlove 2018 [MP3|320 Kbps] <House, Dance, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz Marc Scibilia - Unforgettable
-02. Lost Frequencies Zonderling - Crazy
-03. Ofenbach Nick Waterhouse - Katchi (Ofenbach Vs. Nick Waterhouse)
-04. James Hype feat. Kelli-Leigh - More Than Friends(   Читать дальше...   )Жанр: House, Dance, Electro HouseПродолжительность: 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA8430D632E4B84B6A17371186B98764CB4AE87
 ```
 
 

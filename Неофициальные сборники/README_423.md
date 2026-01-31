@@ -1,3 +1,30 @@
+###  Публикация: 1223149   (677389) от 03.05.2018
+
+VA - Danced Our May Day (2018) [MP3|320 Kbps] <Tropical, House, Future Bass>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charming Horses ft. Karlyn - Freak On (Extended Mix)
+02. Sigrid - Strangers (R3hab Remix)
+03. MAUII - This Ain't Wrong (feat. Adana)
+04. Rock Stalone - Rockstar (BBop & Rocksteadi Radio Edit)(   Читать дальше...   )Жанр: Tropical, House, Future BassПродолжительность: 03:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3CDA30CFE359316A7BF2CE60E9BC029721BECF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 508742   (677467) от 11.06.2012
 
 VA - Горячий клубный хит 50/50 (2012) [MP3|320 кб/с]<Club>
@@ -675,33 +702,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92E412B6E938F1087DFDE63848F5C2A792F322D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029686   (678602) от 28.06.2016
-
-VA - 150 Underground Hits Check Story (2016) [MP3|237-320 Kbps] <Funky, Club, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Napt - Hold Tight 03:54
-02. Micha Moor - Space (Vinai Remix) 03:48
-03. Doc Brown - Classixx 06:30
-04. Kelsey B - Come With Me (Barona & Hull Club Mix) 07:09(   Читать дальше...   )Жанр: Funky, Club, SoulfulПродолжительность: 14:34:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:848E4CC3B141E6FF8E47B64D52DF8452F9A0E64C
 ```
 
 

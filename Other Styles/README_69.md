@@ -1,3 +1,30 @@
+###  Публикация: 1249806   (431049) от 25.09.2018
+
+Sherry Finzer & Mark Holland - Flute Flight (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking Through 06:07
+02. Seasons of the Heart 04:20
+03. Echo of Desire 08:35
+04. Always a Dream 04:46(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C85F6CCD2EE092CC0F5CF1421628FB92C9F7AD89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945503   (431562) от 11.10.2015
 
 Francisco Canaro & Roberto Firpo - Las milongas ms milongas (2000) [MP3|192 кб/с]<Tango>
@@ -670,33 +697,6 @@ Armik - La Vida (2015) [MP3|320 кб/с]<Instrumental, Nuevo Flamenco, New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12FFC3A0A15762F69950DCDAC37B1ED002C60CE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944366   (435676) от 09.10.2015
-
-The Smooth Ballroom Band - All Time Favorites: Saxophone Lounge (2015) [MP3|256 кб/с]<Instrumental, Sax, World>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emmanuelle (03:26)
-02. Orfeo Negro (03:27)
-03. Silhouette (05:10)
-04. The Shadow Of Your Smile (04:08)(   Читать дальше...   )Производство: All Time FavoritesЖанр: Instrumental, Sax, WorldПродолжительность: 01:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A06A8592371B8EDF0E84F599C958F6E0318B0AD
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1135785   (677302) от 21.05.2017
+
+VA - Black Hole House Music 05-17 (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_677302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mike Shiver - Ahh (Extended Mix) 6:13
+02.  Tim Penner - Be Free 9:38
+03.  Tyng & KMRN - My Name Is Love (feat. Shadisha) (Anton Ishutin Remix) 6:06
+04.  Leandro Da Silva - Bring Your Body 6:15(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B3AC885A0AE2E4C2F337346641FF262EF2273F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135935   (677386) от 21.05.2017
 
 Rick Tedesco - Style Clash Vol. 2 (2017) [MP3|320 Kbps] <Progressive House>
@@ -668,33 +695,6 @@ VA - Chris Montana & Dj Soulstar - 20 Years Perfect Lovers (2017) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43875797F613FE52C0ACE2928737B09104D8AB8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135871   (679412) от 20.05.2017
-
-VA - Progressive Ibiza House 2K17 (Annual Anthems) (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_679412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airwave - The Quest For Beauty (Jam El Mar Remix) 08:50
-02. Halfpoint - Burnout 06:01
-03. Haig, Raffi - Waves of Grain 06:42
-04. Marcelo Wallace - Backup 06:19(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA2582657535375C670217D5A357BA143EDB930
 ```
 
 

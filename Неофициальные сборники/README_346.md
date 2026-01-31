@@ -1,3 +1,27 @@
+###  Публикация: 1150626   (578012) от 16.07.2017
+
+VA - Summer Session 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Vocal House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Club House, Vocal House, DanceПродолжительность: 02:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15BCD93318AD014A2DB8ED50BEB659688999B8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150878   (578022) от 16.07.2017
 
 VA - Empire Records - Retro Trance (2017) [MP3|320 Kbps] <Trance>
@@ -662,33 +686,6 @@ VA - Top 300 Russian Hits (2015) [MP3|320 кб/с]<Pop , Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC047CBCADABDC14B002383AE4FB1E80930C1F3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 204664   (578704) от 29.05.2022
-
-VA - Админские песни (1998-2010) [MP3|64-192 kbps] <Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578704.jpg" />
-</div>
-
-
-###  Подробнее
-
-00. PR, MEX - Админ (3:42)
-01. Админ (3:29)
-02. Админы (1:37)
-03. Давай за... (SkyNet Tribute) (3:16)(   Читать дальше...   )Жанр: OtherПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6AF4AE27FBFF4F167605898A8ACB9CE22DD8AC4
 ```
 
 

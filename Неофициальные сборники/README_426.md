@@ -1,3 +1,36 @@
+###  Публикация: 508117   (681751) от 09.06.2012
+
+VA - Trance Mixtape (Flaming June) (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_681751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rank 1 & Jochen Miller Feat. Sarah Bettens - Wild And Perfect Day (Darwin & Backwall Remix) [4:59]
+ 02. Evol Waves - Nobody Knows (Original Mix) [5:15]
+ 03. Marcus Schossow - Never Say Never (Original Mix) [6:03]
+ 04. Sean Tyas - Lekta (Original Mix) [6:09]
+ 05. Ashley Wallbridge - Zorro (Club Mix) [5:41]
+ 06. Xtigma Feat. Sarah Russell - Take Your Hand (Michael Badal Remix) [5:36]
+ 07. Ferry Corsten - Live Forever (Shogun Remix) [6:49]
+ 08. Maarten De Jong - Messier (Extended Mix) [5:38]
+ 09. Poshout Feat. Ange - Beside (Extended Mix) [6:52]
+ 10. Simon Patterson - Northern Lights (Original Mix) [7:04](   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C51E5F3B7159461EE3FF4BF059ABF96266784A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289857   (681796) от 18.03.2019
 
 VA - Empire Records - Red Star 6 (2019) [MP3|320 Kbps] <Spacesynth>
@@ -668,33 +701,6 @@ VA - Союз Летний (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FC8D7E8EA870C12440C208A8AADCFCB12B54FC0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135097   (682901) от 18.05.2017
-
-VA - Italo Disco Hits Vol.14 (2017) [MP3|320 Kbps] <Disco, Italo-DIsco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_682901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  NEA! - It's A Sin (Maxi Version)  7:09
-02.  Italove & TQ - I Need Your Love  4:22
-03.  Cliff Wedge - Touch Me (Radio Edit)  3:23
-04.  Digitalo - Russian Man (ZYX Extended Version)  5:19(   Читать дальше...   )Жанр: Disco, Italo-DIscoПродолжительность: 05:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C16AA7B16999BFFC3F896F5F85EF73C4AC85D48
 ```
 
 

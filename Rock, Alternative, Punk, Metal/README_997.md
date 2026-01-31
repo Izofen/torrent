@@ -1,3 +1,325 @@
+###  Публикация: 1215619   (758105) от 26.03.2018
+
+Eldritch - Cracksleep (2018) [MP3|320 Kbps] <Progressive Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cracksleep
+02. Reset
+03. Deep Frost
+04. Aberration of Nature(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086F148A97A0A049327BF3909E150C5350354CE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215607   (758106) от 26.03.2018
+
+The Absence - A Gift for the Obsessed (2018) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Gift for the Obsessed
+02. Misery Trophies
+03. The Forging
+04. Thought & Memory(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7262224821DF9DDC2E1E43F57E67F96AF0F86FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215623   (758215) от 26.03.2018
+
+Fungus Hill - Cosmic Construction on Proxima B (2018) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Year 2199 (01:41)
+02. Voyage to Proxima B (08:33)
+03. Space Witches (06:44)
+04. Year cb3 XIII (02:02)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DC2ECD04E0ED34D50D874E2AB0A64777113C61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215340   (758218) от 26.03.2018
+
+Thorium - Ocean Of Blasphemy (1999) [APE|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crest For War
+02. Abomination Of God
+03. Crypts Of Chaos
+04. Impaled(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AD762FCC93A304AD1F6D91FD85540A62277AD81
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1280778   (758512) от 04.02.2019
+
+Kauan - 8 Albums (2007-2017) [FLAC|Lossless|image + .cue] <Atmospheric Post Rock, Folk Rock, Doom Metal, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kauan - музыкальный проект из Челябинска. Проект KAUAN основался в феврале 2005 года и за всю его историю пережил много перемен, как в стилях, так и в самом названии. Само слово «kauan» с финского переводится как «даль» или «долго». Музыкальное направление, в котором проект записал первый альбом, критики назвали фолк-дум-метал. Проект концентрирует внимание на передаче (   Читать дальше...   )Список альбомов:
+2007 - Lumikuuro
+2008 - Tietäjän Laulu
+2009 - Aava Tuulen Maa(   Читать дальше...   )Жанр: Atmospheric Post Rock, Folk Rock, Doom Metal, AmbientПродолжительность: 06:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8F95D58EB8A3939D5132293A452C5A69B7B2E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522309   (758526) от 07.01.2022
+
+Evildead - Annihilation Of Civilization (1989) [APE|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F.C.I. / The Awakening 03:22
+02. Annihilation Of Civilization 04:17
+03. Living Good 05:33
+04. Future Shock 05:39(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FACA6A3CA0533CF08BB64F60DFB9F31CB2D738B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522254   (758651) от 07.01.2022
+
+Дай Дарогу! - Бусел (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бусел [2:47]
+2. Боли нет (Велоакустика)Жанр: RockПродолжительность: 01:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8E2492FCB5454D4D7CDD028A7920106FE4907E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522297   (758660) от 07.01.2022
+
+Crossfire - See You In Hell (1983) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demon Of Evil
+02. Killing A Cop
+03. Magnificent Night
+04. Danger Of Earth(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22A87D180388506135B4800CEA10684D1BB1166
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522375   (758661) от 07.01.2022
+
+Ventana - Discography 6 Releases (2008-2021) [MP3|320 Kbps] <Industrial Metal, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758661.jpg" />
+</div>
+
+
+###  Подробнее
+
+2008 - American Survival Guide Vol. 1 (Reissue '09)
+2014 - Shameful (Single)
+2015 - Civilian Sampler Pack (EP)
+2017 - The Silent Majority(   Читать дальше...   )Жанр: Industrial Metal, Nu MetalПродолжительность: 02:18:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3BC5EC99F7EB62482BFA057FC23BB593A5C32C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522444   (758782) от 07.01.2022
+
+Destruction - Live Attack (2021) 2xCD [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758782.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Born To Perish
+02. Death Trap
+03. Nailed To The Cross(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB228C4E419B5FFCE6802CB6C3D7DF0AF5E971D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522305   (758790) от 07.01.2022
+
+Skew Siskin - Electric Chair Music & Voices From The War (1996) 2CD [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Take It With You
+02. Fuck You
+03. Dead You
+04.B4(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B32039691DEA37288FD19FF5F5120701C632456
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522299   (758791) от 07.01.2022
+
+Restless - We Rock The Nation (1985) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakin' Out
+02. Walkin' On Time
+03. We Rock The Nation
+04. Let's Get Crazy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A525B3B4D21A48C27B002F2F9DC17660BD4F96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522296   (758792) от 07.01.2022
 
 Crossfire - Live Attack (1987) [APE|Lossless|image + .cue] <Heavy Metal>
@@ -368,330 +690,6 @@ Buddy Holly - Memorial Collection - (2008)3CD [FLAC|Lossless]<Rock'n'roll>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215264   (759838) от 25.03.2018
-
-Auri - Auri (2018) [MP3|320 Kbps] <Folk Rock, Celtic, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Space Between (5:01)
- 02. I Hope Your World Is Kind (5:03)
- 03. Skeleton Tree (4:19)
- 04. Desert Flower (6:04)(   Читать дальше...   )Жанр: Folk Rock, Celtic, Female VocalПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8AC334F697803FE810F7AAA5D2A5409095031E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215404   (759990) от 25.03.2018
-
-The Rocket Dogz - Bad Blood (2018) [MP3|320 Kbps] <Psychobilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Blood
-02. Cemetery Walls
-03. Let's Talk About Sex
-04. It's Not You(   Читать дальше...   )Жанр: PsychobillyПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F274FBFFBC08A83B39BF2C6B2FEBCB7FBDEE77FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280513   (760206) от 03.02.2019
-
-Константин Никольский - Энциклопедия российского рока (2003) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мне только снится жизнь моя
-02. Я думал о многом и разном
-03. От любви к любви
-04. Спи, душа моя(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63CA8656EC5D4A9E589B8E42A5FDB978073C65B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280396   (760334) от 03.02.2019
-
-Arena - 10 albums, 13 CD (1995-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760334.jpg" />
-</div>
-
-
-###  Подробнее
-
-Британская прог-роковая команда «Arena», созданная в середине 90-х годов, является детищем двух маститых прогрессивщиков – Мика Пойнтера, бывшего барабанщика «Marillion», и клавишника Клайва Нолана из «Pendragon». Британская земля богата на талантливых арт-роковых и прогрессивных музыкантов, и хотя такие группы, как Yes и Marillion, уже не занимают первые места в (   Читать дальше...   )Список альбомов:
-1995 | Songs From The Lions Cage
-1996 | Pride
-2000 | The Visitor(   Читать дальше...   )Жанр: Progressive Rock |Продолжительность: 12:16:27 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9DA18561346C082099DBCB219A5EBC37A7B8A9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522348   (760362) от 06.01.2022
-
-Inhibidor - Vertigo (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renacer del Tiempo
-02. Una Puta Vez
-03. Sabor a LibertadLucas Bravo
-04. Reina Madre (feat. Joel Bedetti)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B6F2ED6E199371F60B5A725D93D4F68C75878BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394728   (760392) от 07.07.2020
-
-VA - Greatest Ever Soft Rock (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760392.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. John Parr - St. Elmo's Fire (Man In Motion) 4:09
-02. Tina Turner - The Best 5:33
-03. Joe Walsh - Life's Been Good 4:39(   Читать дальше...   )Жанр: RockПродолжительность: 05:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69BBC4E7C507FEDEBFAC867ABBA307D1B334B6FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522259   (760441) от 06.01.2022
-
-Hounskull - Perceptual Present (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perceptual Past 01:17
-02. Vagabond's Voyage 05:42
-03. Tribe Of The Red Giants 06:31
-04. Time Shift 05:21(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CC841A3D3E0BB4CBA7D600AE4A8933C230B7D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394709   (760516) от 07.07.2020
-
-Moonlight Haze - Lunaris (2020) [MP3|320 Kbps] <Symphonic Metal, Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Till The End (03:34)
- 02. The Rabbit Of The Moon (03:54)
- 03. Lunaris (03:57)
- 04. Under Your Spell (03:49)(   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, Female VocalПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:068474E3C86E6FC4B8859C8614C0545B873F1664
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394803   (760520) от 07.07.2020
-
-Black Light Animals - Playboys Of The Western World (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Fantasies (04:20)
- 02. Golden Child (04:54)
- 03. Special FX (02:56)
- 04. The Revolution's After Party (03:08)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89A8C9FBCE7F71DD4C19B169B2875EF3291444D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280600   (760538) от 03.02.2019
-
-Ancient Bards - Origine (The Black Crystal Sword Saga Part 2) (2019) Japanese Edition [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760538.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:15] 01 - Origine
-[5:41] 02 - Impious Dystopia
-[4:51] 03 - Fantasy's Wings
-[5:42] 04 - Aureum Legacy(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1D0271DEE195CB6EE5EA475B19B8856AD5E0E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017542   (760594) от 17.05.2016
-
-Ария - Классическая Ария (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игра с огнём (9:28)
-02. Чёрная легенда (7:58)
-03. Колизей (6:51)
-04. Зов бездны (7:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:12:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9708967D7FA718F35735E7A5E8DF1A957D5F507C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017732   (760602) от 17.05.2016
-
-Ляпис Трубецкой - Лучшее. Часть 2: Свежий ветер (2016) [MP3|320 кб/с] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Трубецкой
-02. Матрёшка
-03. Буревестник
-04. Капитал(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 01:22:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E17D348DDE72ABF6F76E68CCA6585B08CDB89B2B
 ```
 
 

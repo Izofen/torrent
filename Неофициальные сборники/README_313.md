@@ -1,3 +1,36 @@
+###  Публикация: 369711   (526310) от 31.07.2011
+
+VA - Мегахиты Русского Радио. Ассорти Энергичных Хитов (2011) [MP3|256 kbps]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вика Куприна - Сильная, Как Ветер
+02. Потап И Настя Каменских - Если Вдруг
+03. Dj Slon - Дельфины (Radio Dance Remix)
+04. Dj Vengerov Feat Maksim - Весна ( Club Mix )
+05. Паола - Острова
+06. Ярослав Кардэлло, Dj Nicks, Dino - Она Летает
+07. Dj Cosmo & Е. Поликарпова & А. Арабов Feat. Stilet - Прости Меня
+08. Ирина Билык - Девочка
+09. Алекс Гришин - Лети За Мной
+10. Саша Ветер - Луна(   Читать дальше...   )2011Жанр: DanceПродолжительность: 06.14.03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF7853A0FC33A40F5764BF3968F8880DDB21079B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156786   (526382) от 09.08.2017
 
 VA - August Rock Digest (2017) [MP3|192-320 Kbps] <Rock, Alternative>
@@ -674,33 +707,6 @@ VA - German Top 100 Single Charts 04.08.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CAC8798A34F44244813FC964790768B632517F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156189   (528493) от 06.08.2017
-
-VA - Золотые семидесятые vol. 7-9 (2017) [MP3|192-320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alvin Stardust - You, You, You
-02. Andrea True Connection - More, More, More
-03. Baccara - The Devil Send You To Lorado
-04. Georges Garvarentz - Woman Is Free (Blonde On Blonde)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 05:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA0ECCE13392376BF27F2B1F48BEED65ECBAB65D
 ```
 
 

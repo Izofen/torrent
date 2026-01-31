@@ -1,3 +1,30 @@
+###  Публикация: 1206208   (782532) от 13.02.2018
+
+VA - Happy Birthday Fish (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.James Curd & J Dub - Too Cool To Dance
+02..Nora En Pure - Waves (Original Club Mix)
+03.Alex Safa - Come Is It Go (Extended Mix)
+04.Malaa - Notorious(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 04:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E05EA2DF4A246D8C9F227DC47BF90EC125E7F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206322   (782540) от 13.02.2018
 
 VA - Deep House Collection vol.157 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -668,33 +695,6 @@ VA - LUXEmusic proжект: The Russian Project (2017) [MP3|320 Kbps] <Club Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BFAE1C27E15EB54F167B82A7FF1CC5D6D3A744B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205635   (783515) от 10.02.2018
-
-VA - Record Super Chart #523 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Axwell & Ingrosso feat. Trevor Guthrie  -  Dreamer (Radiology Festival Mix)  4:11
-02.  GSPR  -  With You  4:17
-03.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-04.  Post Malone feat. 21 Savage  -  Rockstar  3:38(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97068FCDDC28C20171E53B42F363A9936B35C2DE
 ```
 
 

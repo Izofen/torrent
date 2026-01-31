@@ -1,3 +1,35 @@
+###  Публикация: 550048   (460162) от 21.09.2012
+
+DJ Aligator - Kiss My B-ass (2009) [FLAC|Lossless]<House, Euro House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460162.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ Aligator - Kiss My B-ass (2009)
+
+Год: 2009
+Жанр: House, Euro House, Trance
+Продолжительность: 01:05:33
+Сканы: Front , Back, CD
+Тип рипа: image+.cue
+Кодек: FLAC
+Битрейт: LosslessТрек лист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 241146   (460211) от 01.10.2010
 
 Matrix & Futurebound - Universal Truth (2007) [WavPack|Lossless]<Drum'n'Base>
@@ -665,33 +697,6 @@ VA - Out To City 3.1 / Выход В Город 3.1 (2005) Салон АВ [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CA0289094337184F6E324939D05A9F11E544417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407822   (462764) от 09.09.2020
-
-VA - Out To City Two / Выход В Город Два (2001) ChebuRec [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Experimental, Ambient>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_462764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Batiskaf - V(int) (04:48)
- 02. Lonyx - Brown Blue (02:23)
- 03. EU - Wienn (Tenzor Mix) (05:17)
- 04. 2H Company - Prov (04:54)(   Читать дальше...   )Жанр: Abstract, IDM, Experimental, AmbientПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E2446899B3507097C06D4A961110FD8E4900B1B
 ```
 
 

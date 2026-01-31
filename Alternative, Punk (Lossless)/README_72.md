@@ -1,3 +1,30 @@
+###  Публикация: 487591   (1002524) от 09.08.2021
+
+VA - Triple J'S Hottest 100 Vol.19 (2012) [FLAC|Lossless]<Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triple J Hottest 100 - ежегодный музыкальный сборник, основанный на голосовании, проходящем на национальном австралийском радио Triple J, в в котором слушатели выбирают лучшего исполнителя года. Голосование проходит через интернет и начинается примерно за две недели до Нового Года и подводит его итоги, учитывая композиции, выпущенные только за этот год. 100 наиболее (   Читать дальше...   )CD1
+
+01. Gotye - Somebody That I Used To Know (Ft. Kimbra) (4:04)
+02. The Black Keys - Lonely Boy (3:13)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 02:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CADF5255AB02994F6EEB45A81240B5313C91623
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350861   (1003009) от 07.01.2020
 
 Thurston Moore - Spirit Counsel (2019) 3CD BoxSet [FLAC|Lossless|tracks + .cue] <Art Rock, Experimental, Avangarde>
@@ -664,33 +691,6 @@ Guano Apes - Planet Of The Apes (2004) Compilation [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D485419D5D189BB140978B3A96DD4D6B6B9083C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463046   (1020460) от 18.04.2021
-
-Evanescence ‎ - The Bitter Truth (2021) 2 CD, Deluxe Edition, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artifact/The Turn (2:27)
-02. Broken Pieces Shine (3:50)
-03. The Game Is Over (4:22)
-04. Yeah Right (3:29)(   Читать дальше...   )Жанр: Alternative Rock, GrungeПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578620BD3A587EC711264FA42059AD5494BCB12A
 ```
 
 

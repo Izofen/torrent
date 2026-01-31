@@ -1,3 +1,30 @@
+###  Публикация: 1505118   (806442) от 26.10.2021
+
+Павел Колесник (Август) - Всему свой срок (2017) Limited Edition, Reissue, Remastered, 2020, OldWise Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806442.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Всему Свой Срок	4:54
+2		На Гребне Волны	5:59
+3		Время Покажет	5:10
+4		Ну И Что	4:20(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901F912CF16499B7A330AEC9A9852F662117C69C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119592   (807094) от 28.03.2017
 
 Ольга Арефьева и Ковчег - Ангел и девочка (2017) [FLAC|Lossless|tracks+ .cue] <Rock>
@@ -691,33 +718,6 @@ magnet:?xt=urn:btih:28C372EA4A7B9B71769E82F5F55E2D66698932CC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA27FDAD98FEFA0653E0D0E8211A39DE39C7B397
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005719   (830815) от 10.04.2016
-
-Digimortal - Дети галактики (2015) [FLAC|Lossless|tracks + .cue] <Industrial Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Матрица земли
-02. Добро пожаловать на бой
-03. Скорость (feat. Ольга Лаки)
-04. Дети галактики(   Читать дальше...   )Жанр: Industrial Metal, Modern MetalПродолжительность: 00:43:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77C1EDE61FC6C34E34C4B906A5B969F88F3F48C7
 ```
 
 

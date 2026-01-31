@@ -1,3 +1,31 @@
+###  Публикация: 1011778   (796304) от 28.04.2016
+
+'Til Tuesday - 3 Albums (1985-1988) [MP3|320 кб/с] <Electronic, Pop Rock, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская группа, сформированная в Бостоне в 1982 году.
+Их хит "Love in a Vacuum" (альбом 1985года) года входил в горячую десятку и получил изрядное количество AirPlay на радиостанциях.Список альбомов:
+01. 1985 - Voices Carry
+02. 1986 - Welcome Home
+03. 1986 - Count Three & PrayЖанр: Electronic, Pop Rock, Synth-popПродолжительность: 02:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985C670C210B2C9E39A5B8309A47E8B4C7188317
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200173   (796319) от 20.01.2018
 
 VA - Hed Kandi 2018 (2017) [FLAC|Lossless|tracks] <Electro House, Euro House, House>
@@ -665,33 +693,6 @@ Emotions Music - Summer Vol 1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8503BE2544A2E34A2B5F57E2EDFF48AC7A81EB57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200061   (796997) от 19.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz presents Dakota - Edonismo
-02. Lostly - Came Here to Forget
-03. Basil O'Glue - The Sun Will Rise Again (Solid Stone Remix)
-04. Cosmic Gate & Markus Schulz - AR (Patrick White Remix) (World Premiere)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C339DE9736B483EF4BA03CD732F5B39CA79BAE16
 ```
 
 

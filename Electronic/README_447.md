@@ -1,3 +1,30 @@
+###  Публикация: 1109409   (859214) от 27.02.2017
+
+VA - Modern Art Of Easy Listening Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 351 Lake Shore Drive – Frozen Heart
+02. Sattva Project – Intro
+03. Velvet Dreamer – Desert Road
+04. Marga Sol – Moonlight(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC2B884C215445209DAAE5ADCCFD08A87D68547
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109392   (859217) от 27.02.2017
 
 VA - Dreaming Of Sunset: Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Winter Break 2: The Chill Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F8186D75D359A8AF26405718693050F198190FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108895   (861092) от 26.02.2017
-
-VA - The Groove Lounge Vol.11 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861092.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mika Olson - What I Need - Radio Cut 4:08
-002. Moe Turk - Outta My Head - Andrey Kravtsov Remix 6:41
-003. Popartlive - The Spell - Miguel Campbell Soul Edit 5:17
-004. DJ Friction - Do You Feel - Pete Herbert Remix 7:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DFBC03AE28FE65AFE283F68175EFEF3C7CC06E
 ```
 
 

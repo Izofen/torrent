@@ -1,3 +1,30 @@
+###  Публикация: 1041036   (584061) от 07.08.2016
+
+VA - Классный muzon. Выпуск 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584061.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лолита - Серебряный Дождь
+002. Jordan Fisher - All About Us
+003. Lemaitre - Stepping Stone
+004. Moyyo - Пить & Танцевать(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87EDE570BD8ED877A89B66E750282829F0B57AAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041029   (584063) от 07.08.2016
 
 VA - Летний заводной музон. Сборник 8 (2016) [MP3|256 Kbps] <Pop>
@@ -671,33 +698,6 @@ VA - 100 Ecstasy Dance Story Hits (2016) [MP3|320 Kbps] <Tropical, Indie Dance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:747864BF6BB4FE91BD5DF828D12D565E4928F293
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041076   (584472) от 07.08.2016
-
-VA - Easy Morning, Relaxing New Age for a Soft Awakening (2016) [MP3|320 Kbps] <Downtempo, Chillout, New Age>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michi Koerner – Falling Sunbeams
- 02. Prior Matt – Airglow
- 03. Bob Holroyd – Engines of Creation
- 04. Dylan Colby – Save the Planet(   Читать дальше...   )Жанр: Downtempo, Chillout, New AgeПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048216654A391FCB1E0A6997B8751F91C5274D1A
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1390179   (783402) от 14.06.2020
+
+Grum - Deep State Deluxe (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Trance, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_783402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep State (02:17)
+02. Stay (Feat. Natalie Shay) (Extended Mix) (08:54)
+03. Lose Control (Extended Mix) (06:46)
+04. Tomorrow (Feat. Dom Youdan) (Extended Mix) (06:28)(   Читать дальше...   )Жанр: Electronic, Progressive House, Trance, DowntempoПродолжительность: 01:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A81668A8FAA4E78B6437C9BD501536B2488295
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205470   (783434) от 10.02.2018
 
 VA - EDM (2018) [MP3|320 Kbps] <Progressive House, Electro House>
@@ -668,33 +695,6 @@ VA - Dance Party (2018) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205114   (783795) от 09.02.2018
-
-VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oscar Bandersen  -  Running (feat. Bruce) (Original Mix)  3:35
-02.  Aussteiger  -  Zusammenkunft (Original Mix)  5:52
-03.  Willie Graff  -  Second Sun (Original Mix)  7:05
-04.  Troels Hammer  -  The Human Tree (feat. Mariana Sadovska) (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
 ```
 
 

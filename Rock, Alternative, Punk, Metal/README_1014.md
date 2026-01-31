@@ -1,3 +1,324 @@
+###  Публикация: 1211114   (778102) от 05.03.2018
+
+АнимациЯ - Коррупция (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778102.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. КоррупцияЖанр: RockПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3014FEDE3CE608FB39F6EDE5E94F1E608E16211B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211105   (778161) от 05.03.2018
+
+Brazzaville - Dream-Sea (2018) [MP3|320 Kbps] <Indie Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Sea
+02. Temple Street
+03. Joshua Tree
+04. Earth-like Planet Girl(   Читать дальше...   )Жанр: Indie Rock, PopПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503A7C798C2A27A8F8A5AD8948AD38A4B77093BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211031   (778206) от 05.03.2018
+
+The Temperance Movement - A Deeper Cut (2018) Earache [MP3|320 Kbps] <Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778206.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Temperance Movement - британская (вернее Шотланская) блюз рок, хард рок- группа, сформированная в 2011 году вокалистом Филом Кэмпбеллом и гитаристами Люком Поташником и Полом Сайером. Секция ритма состоит из басиста Ника Фиффа и барабанщика из Австралии Деймона Уилсона. В совокупности группа имеет богатую историю. Начало становления группы 2011 год.01 Caught In The Middle 2:41
+02 Built-In Forgetter 4:22
+03 Love And Devotion 3:24
+04 A Deeper Cut 3:45(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB0D448BFEA47A62827526807C3E0BB78C8BED2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210861   (778207) от 05.03.2018
+
+Superorganism - Superorganism (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It’s All Good (03:23)
+02. Everybody Wants to Be Famous (03:04)
+03. Nobody Cares (03:49)
+04. Reflections on the Screen (03:52)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B0F54055DECB503B5BB528AF933197EE74C898
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211010   (778231) от 05.03.2018
+
+The Temperance Movement - The Temperance Movement (2014) Earache, Deluxe Edition [MP3|320 Kbps] <Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778231.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Temperance Movement - британская (вернее Шотланская) блюз рок, хард рок- группа, сформированная в 2011 году вокалистом Филом Кэмпбеллом и гитаристами Люком Поташником и Полом Сайером. Секция ритма состоит из басиста Ника Фиффа и барабанщика из Австралии Деймона Уилсона. В совокупности группа имеет богатую историю. Начало становления группы 2011 год.01. Only Friend 4:29
+02. Ain't No Telling 3:52
+03. Pride 5:39
+04. Be Lucky 3:23(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 01:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F03E7D32A1FF7CD7DB5E57CAF2EAF43D9B2DE74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211017   (778238) от 05.03.2018
+
+The Temperance Movement - White Bear (2016) Earache [MP3|320 Kbps] <Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778238.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Temperance Movement - британская (вернее Шотланская) блюз рок, хард рок- группа, сформированная в 2011 году вокалистом Филом Кэмпбеллом и гитаристами Люком Поташником и Полом Сайером. Секция ритма состоит из басиста Ника Фиффа и барабанщика из Австралии Деймона Уилсона. В совокупности группа имеет богатую историю. Начало становления группы 2011 год.01. Three Bulleits 3:14
+02. Get Yourself Free 3:37
+03. A Pleasant Peace I Feel 4:35
+04. Modern Massacre 2:21(   Читать дальше...   )Жанр: Rock, Blues Rock, Hard RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46B5C594CD095722717AE166C143F9541DAFEC39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012863   (778260) от 02.05.2016
+
+Фёдор Чистяков - Без Дураков (2016) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_778260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня одноглазого пирата
+02. Ордер на арест
+03. Джеймс Бонд
+04. Дефолт(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:102AB08AA8C3743FF863F1791237A6D79142CFF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012568   (778368) от 02.05.2016
+
+Mattias Ia Eklundh - Freak Guitar (1999) [APE|Lossless|image + .cue] <Rock, Guitar Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apparatus
+02. God - The Mechanic
+03. The Grey Hat of Compromise
+04. Lisa's Passion for Heavy Metal(   Читать дальше...   )Жанр: Rock, Guitar InstrumentalПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885F23612FF90F47CF365806004184A018690E37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013020   (778369) от 02.05.2016
+
+Lisbon Kid - Lisbon Kid (2016) [MP3|320 кб/с] <Alternative, Acoustic, Electronica>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At the End of the Day
+ 02. We Look at the Stars
+ 03. In the Room Where You Are
+ 04. Get It On(   Читать дальше...   )Жанр: Alternative, Acoustic, ElectronicaПродолжительность: 00:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199E3F611D6A001BCDB6211115961D0B8DC74452
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012573   (778375) от 02.05.2016
+
+Sunrise - Absolute Clarity (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tower Of Fear (4:49)
+02. Star Ocean (4:08)
+03. Live In Peace (4:58)
+04. Prayer For You (4:37)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97415592DB6D31E9F4AEDFF456E29B1890834EB0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210595   (778482) от 04.03.2018
+
+Greta Van Fleet - From The Fires (2017) mini-album [FLAC|Lossless|tracks + .cue] <Hard Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Safari Song		03:55
+02.	Edge Of Darkness		04:28
+03.	Flower Power		05:13
+04.	A Change Is Gonna Come		03:17(   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BFA3CF0566E5565FD04DA1B1FBF4B285BBF9F5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210673   (778500) от 04.03.2018
+
+Arcade - 3 альбома (1993 - 2001) [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arcade была супергруппой glam metal, созданной в 1992 году бывшим вокалистом "Ratt" Stephen Pearcy и барабанщиком "Cinderella" Fred Coury, а также известным гитаристом ex-"Sea Hags" Frankie Wilsex, ex-"Gypsy Rose" гитаристом Donny Syracuse и басистом ex-"9.0" Michael Andrews. Arcade выпустили два официальных студийных (   Читать дальше...   )Список альбомов:
+1993 - Arcade
+1994 - A/2
+2001 - A/3: Live And UnreleasedЖанр: Hard Rock, GlamПродолжительность: 02:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DFCF0705B3031867266C956FF95F80E0E3D2D4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210801   (778515) от 04.03.2018
 
 CCS (Collective Consciousness Society) - Discography: 4 albums, 5 CD (1970-2013) [FLAC|Lossless|image + .cue] <Classic Rock, Jazz Rock, Folk>
@@ -367,330 +688,6 @@ Cranes - Population Four (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCBEBF8085B61C101842036E5DF66BF13CF0A35F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209832   (779018) от 01.03.2018
-
-Moaning - Moaning (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Go (02:51)
-02. Tired (03:12)
-03. Artificial (03:32)
-04. Close (02:55)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD945B3D80F2C0D913C6316D06958B8757D05CBA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209946   (779092) от 28.02.2018
-
-Фёдор Чистяков - Нежелательная песня (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Убрать свидетелей
-02. Нежелательная песня (Медведи)
-03. Пропаганда
-04. Искусство лизать(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F40FDB83FD5D7CA7785940559AE39ACF9F36D88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209919   (779103) от 28.02.2018
-
-Ангел-Хранитель - Герои Тёмных Улиц (2018) [MP3|320 Kbps] <Heavy Metal, Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Коллекционер
-02. Странный Шум
-03. Просто Ветер (feat Евгений Егоров, Ю.Мелисов)
-04. Письмо (feat Блондинка Ксю)(   Читать дальше...   )Жанр: Heavy Metal, Horror PunkПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC5B01FB122B7F76802F86DE2E6D5E315EEB397C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209915   (779109) от 28.02.2018
-
-Michael Schenker Fest - Resurrection (2018) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart and Soul (feat. Robin McAuley & Kirk Hammett) (4:20)
-02. Warrior (feat. Gary Barden, Graham Bonnet, Robin McAuley & Doogie White) (5:21)
-03. Take Me to the Church (feat. Doogie White) (4:46)
-04. Night Moods (feat. Graham Bonnet) (4:29)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13D3D15F4B5A52D9A596368EF67042B0F5FE2FE1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209580   (779134) от 28.02.2018
-
-Angra - OMNI (ØMNI) (2018) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light of Transcendence
-02. Travelers of Time
-03. Black Widow’s Web
-04. Insania(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BEE7049534303D7D367C0A79EC50913E6C99B3D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209639   (779139) от 28.02.2018
-
-The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Child (03:57)
-02. Lions Blood (03:47)
-03. Secrets (03:44)
-04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209819   (779141) от 28.02.2018
-
-Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jealousy (4:52)
-02. Ride (3:41)
-03. Who You Are (3:41)
-04. The Glass Parade (4:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209676   (779143) от 28.02.2018
-
-Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Burning Insight
-03. Bleeding Sanity
-04. Soar(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93273802989F67CAA6E95F916EE694C97D364151
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209494   (779289) от 27.02.2018
-
-Neveryon - The Blind Side (2018) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
-02 The Blind Side
-03 A Prayer from the Abyss
-04 Oblivion(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E99C23F9FDC84C42CA03457E305EAFDF9A716E7C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209612   (779296) от 27.02.2018
-
-Secret Rule - The Key to the World (2017) [MP3|320 Kbps] <Symphonic melodic metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779296.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Key (0:41)
- 2. The Song Of The Universe (5:10)
- 3. Empty World (4:35)
- 4. Are You Gone? (3:07)(   Читать дальше...   )Жанр: Symphonic melodic metal, Female VocalПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E8DCC21EC9AE0E6011DEC2EA3F8CD56FAB9215
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209226   (779395) от 26.02.2018
-
-The Monochrome Set - Maisieworld (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Me Your Youth (03:32)
-02. Stage Fright (04:04)
-03. I Feel Fine (Really) (02:52)
-04. Cyber Son (03:39)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F973516D9D09F668D9275071D93420E875525571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208992   (779404) от 26.02.2018
-
-Patrick Rondat - On The Edge (1999) [APE|Lossless|image + .cue] <Neoclassical Shred Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Duality Intro 0:38
-02. Duality Part 1 4:17
-03. Duality Part 2 1:31
-04. Duality Part 3 1:22(   Читать дальше...   )Жанр: Neoclassical Shred MetalПродолжительность: 00:59:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768F573F64FEB7F70CAC613E0C3E9B2ADD591F86
 ```
 
 

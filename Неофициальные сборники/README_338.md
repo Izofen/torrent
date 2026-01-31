@@ -1,3 +1,30 @@
+###  Публикация: 1044306   (566953) от 19.08.2016
+
+VA - Summery Jazz (2016) [MP3|320 Kbps] <Jazz, Bossa Nova, Easy Listening>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_566953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ramsey Lewis - Summer Samba 03:08
+02. Kenny Burrell - Hot Bossa 04:41
+03. Stefon Harris - Summertime 07:17
+04. Grant Green - The Things We Did Last Summer 05:56(   Читать дальше...   )Жанр: Jazz, Bossa Nova, Easy ListeningПродолжительность: 02:13:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873E43DF6FFC71F6A3AC315212A92A3CF3853E76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152211   (566974) от 22.07.2017
 
 VA - The Classic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -677,33 +704,6 @@ VA - About Ultra EDM Melodies (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:237890014DAF28E7968C3639508D7CBE4A54FEFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044263   (567571) от 19.08.2016
-
-VA - Ibiza Progressive Sessions Unleashed (2016) [MP3|320 Kbps] <House, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vadim Spark  -  New Life  7:20
-02. Sean Marx  -  Southbound  6:54
-03. Rufus K  -  Moonlight  6:53
-04. Jelly For The Babies & Filip Fisher  -  And Then Came You  5:13(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 02:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A11EC28D02CE73EE99E5882C1A90F0E4C9A59BB
 ```
 
 

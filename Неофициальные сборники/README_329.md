@@ -1,3 +1,30 @@
+###  Публикация: 1236338   (554602) от 16.07.2018
+
+VA - Зайцев.нет: Музыкальные новинки Июль 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554602.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Orlando - #нучтодавай 3:08
+002. Lil Kate - Три Осени 2:46
+003. Блокбастер - Лето без вопросов 3:35
+004. Dante - Молекулы (Radio Edit) 3:46(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283991963896F9711CEACAF7D4762E697435ED7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1236243   (554603) от 16.07.2018
 
 VA - Deep House Collection Vol.179 (2018) [MP3|320 Kbps] <Deep House>
@@ -665,32 +692,6 @@ VA - Hit Music (лето 2019) от Мяу [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F62DD9F91A737CC41A201C2CE3F55BF68B346945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305931   (555930) от 02.06.2019
-
-VA - German Top 100 Single Charts 07.06.2019 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555930.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samra & Capital Bra - Wieder Lila
-002. Juju - Vermissen (feat. Henning May)
-003. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1737740809138CDA8015C0D68CAB4DE3B1720A62
 ```
 
 

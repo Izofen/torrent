@@ -1,3 +1,30 @@
+###  Публикация: 1045335   (559831) от 23.08.2016
+
+VA - Ibiza Beach Lounge And Chill House (Summer 2016) (2016) [MP3|320 Kbps] <Lounge, Chill House>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hamilton Bates - Last Flight 03:57
+02. Paris Barlow - Magic in Your Eyes 05:38
+03. Elysium Mind - Sunset Party 04:09
+04. Bob Lane DJ - Sensual Seduction 04:51(   Читать дальше...   )Жанр: Lounge, Chill HouseПродолжительность: 01:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F5E91C76F9912E88092FA7076ACC881D5F4544
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045410   (559832) от 23.08.2016
 
 VA - DUBAI: Best Lounge Music, Vol. 1 (2016) [MP3|320 Kbps] <Lounge, ChillOut>
@@ -666,32 +693,6 @@ VA - Guitar del Mar: Chillout, Lounge, Bossa Nova Guitar Music (2017) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:399803672CB96EB609D6CCF5FDA2241F64257FE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152936   (561622) от 25.07.2017
-
-RecFrag - Discography 5 Releases (2011-2016) Solanic, Aliens Production [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient, Noise>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mercury Arrows (02:58)
- 02. Proto-D (03:36)
- 03. MembraneТип издания: WebЖанр: IDM/Industrial/AmbientПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FE944AE122A85C9780088EBA62ACC2AF1F7275
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1001350   (853860) от 28.03.2016
+
+VA - Cookies With A Smile: Ibiza Deep House (2016) [MP3|320 кб/с] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_853860.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Muovo - Green Granada 07:55
+002. Benny Camaro - Cуmo Suena 05:51
+003. Ernesto vs Bastian - Dark Side Of The Moon (Axwell & Sebastian Ingrosso Re-Mode) (feat. Susana) 05:46
+004. Hardwell - Storage 08:02(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096108DBCCCB88B2F2945E3DC96EC72922AD0772
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001186   (853876) от 28.03.2016
 
 VA - Блатные струны на Шансоне 3 (2016) [MP3|256 кб/с] <Shanson>
@@ -665,33 +692,6 @@ Koko Taylor - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E93D80C1F23BE6CF9F84ACC8F269A2A58692F4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109988   (855403) от 01.03.2017
-
-Muddy Waters - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long
-02. Mannish Boy
-03. Come to Me Baby
-04. Goodbye Newport Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76760E4B9785AA5C317302C983624491F1570A87
 ```
 
 

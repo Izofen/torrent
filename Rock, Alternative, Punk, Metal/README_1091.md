@@ -1,3 +1,324 @@
+###  Публикация: 1378052   (847667) от 24.04.2020
+
+АукцЫон - Мечты (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Догоняя волны
+02. Сердце
+03. Мечты
+04. Очень белые глаза(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73781D6E2BC16DA71E98B01AD627B73B905BA10A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499587   (847672) от 02.10.2021
+
+Джанни Родари -  Он Вам Не Лимон (2020) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аврора
+02. Утекай
+03. Скорость
+04. Ксюша(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E5C090ED7257A05868D92171A8BBC1E595671A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499351   (847675) от 02.10.2021
+
+Asking Alexandria - Stand Up And Scream (2009) [FLAC|Lossless|image + .cue] <Post-HardCore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alerion
+02. Final Episode
+03. A Candlelit Dinner With Inamorta
+04. Nobody Don't Dance No More(   Читать дальше...   )Жанр: Post-HardCore, ElectronicПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678AEC4F30FE0E471EC1088D9E597797006C151D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499505   (847677) от 02.10.2021
+
+Asking Alexandria - See What’s On The Inside (2021) [MP3|320 Kbps] <Post Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847677.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Alone Again
+3. Faded Out
+4. Never Gonna Learn(   Читать дальше...   )Жанр: Post Hardcore, MetalcoreПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86555BB07BC17CDB7807B13A6B72113DF12D2913
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499530   (847685) от 02.10.2021
+
+Tequilajazzz - Камни (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847685.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В тёмную воду. Intro
+2. Никого не останется
+3. Вьюгина ты дочь
+4. Сам с собой(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A82DC739CA4B9B1566D5207D8B8875CC54C123
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499575   (847688) от 02.10.2021
+
+Джанни Родари -  Смотри! (2020) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Смотри!
+02. Ток-Шоу
+03. Русское-Радио
+04. Свердловск-99(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5426D783024F2DE260AAB0B95C6DF4573C370461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 649663   (847736) от 28.04.2013
+
+The Ocean - Pelagial (2013) Limited Edition [MP3|320 кб/с]<Progressive Metal /Atmospheric Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epipelagic (Instrumental)
+02. Mesopelagic: Into The Uncanny (Instrumental)
+03. Bathyalpelagic I: Impasses (Instrumental)
+04. Bathyalpelagic II: The Wish In Dreams (Instrumental)(   Читать дальше...   )Жанр: Atmospheric Progressive Metal |Продолжительность: 00:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4F40E6274FABE9ABA3F0580D754E06D716354A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499504   (847835) от 02.10.2021
+
+Tequilajazzz - Камни (2021) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847835.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В тёмную воду. Intro
+2. Никого не останется
+3. Вьюгина ты дочь
+4. Сам с собой(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:410CFBF3D0913FBEE02FC121115017C784015052
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499554   (847836) от 02.10.2021
+
+Мара - Панк-Рок (2021) Single [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Панк-рок (03:08)Жанр: RockПродолжительность: 00:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42DB97287B8787C00CEA329C485780E59F7FC8C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111382   (847939) от 05.03.2017
+
+Чайф - Теория струн (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой блюз
+02. Время не ждет
+03. Четверо парней
+04. Ковбои(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7EBEF824D19575C6DEB68A29720D59FFD1CE37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499522   (847959) от 02.10.2021
+
+Mystery - Live Life Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Revolution
+02. To My Knees
+03. Lust Control
+04. All We Need Tonight(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF858FA1D6CD64A9398EAB31B64A3F00D0071A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499510   (847968) от 02.10.2021
+
+4 Апреля - Бездна (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847968.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Это игра
+2. Выбора нет
+3. Летала душа
+4. Что будет с нами?(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F5EF1806124A3ED864ED3624B8AD1024FA618B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499431   (847969) от 02.10.2021
 
 Evil Scapes - Sanity Of No One (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
@@ -377,325 +698,6 @@ Veler - The Road of Rebirth (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:39E2B836DAE114181322817C214244CD01D181D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499498   (848117) от 02.10.2021
-
-Black Abyss - Possessed (2012) [WavPack|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As I'm Bleeding...
-02. Conquering Of Fate
-03. The Final Call
-04. Possessed By Hate(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837C8419B8DB0D0C83AEB3BF3548A48D799B5BBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111293   (848161) от 05.03.2017
-
-Чайф - Теория струн (2017) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой блюз (5:13)
-02. Время не ждет (4:39)
-03. Четверо парней (3:40)
-04. Ковбои (3:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9D34B5EECB612EB791855E7CC28298ABBA66DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378048   (848253) от 24.04.2020
-
-Мумий Тролль - Лира (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848253.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ЛираЖанр: RockПродолжительность: 00:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EB1359B4015C4561C4587B707D56C07123B867
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377867   (848337) от 24.04.2020
-
-Awolnation - Angel Miners & the Lightning Riders (2020) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best
-02. Slam (Angel Miners)
-03. Mayday!!! Fiesta Fever (feat. Alex Ebert)
-04. Lightning Riders(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEB00D763490A087780E5060E2C961B27D46D4FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378046   (848347) от 24.04.2020
-
-Мураками - В четырёх стенах (Акустика) (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848347.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В четырёх стенах
-2. Современная жизнь
-3. Не рыцарь
-4. Одиночки(   Читать дальше...   )Жанр: RockПродолжительность: 00:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210820035D02A6543DB2399C5E4C37BA63B213FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378037   (848350) от 24.04.2020
-
-Paloma Faith ‎ - Fall To Grace (2012) [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Picking Up The Pieces (04:07)
-02. 30 Minute Love Affair (03:21)
-03. Black & Blue (04:04)
-04. Just Be (04:40)(   Читать дальше...   )Жанр: Indie Rock, Blues, AcousticПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31789501961586F31106D6F29D4BEBFFE8E1B8CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002198   (848388) от 31.03.2016
-
-Scorpions - The Best Ballads (1995) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Dove (4:20)
-02. Lonely Nights (4:44)
-03. Believe In Love (5:20)
-04. Always Somewhere (4:55)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5826E387D58886CA62FE9ADAC179E20301AD66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002172   (848407) от 31.03.2016
-
-Sabaton - Heroes On Tour (2016) [FLAC|Lossless|tracks + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The March to War
-02. Ghost Division
-03. To Hell and Back
-04. Carolus Rex(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5FFC86668B3AF14B3CDA29AECD11ECA93D6513
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378051   (848417) от 24.04.2020
-
-Прохор & Пузо - Делирий (2020) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ранго
-2. Чернее тени чёрного
-3. Мирный атом
-4. Метро(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8EDF837A9855043BF52B6D274C900353BC0294C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377897   (848430) от 24.04.2020
-
-The Used - Heartwork (2020) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paradise Lost, a poem by John Milton
-02. Blow Me (feat. Jason Aalon Butler)
-03. BIG, WANNA BE
-04. Bloody Nose(   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, ElectronicПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29FDB168E37D0D11C89EEEF34F7F44F40990658D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378116   (848494) от 24.04.2020
-
-Сети - Мало (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848494.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мало
-2. Мой Бог (feat. Би-2)Жанр: RockПродолжительность: 00:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AFFA891995FFAE7E6EF20DDF4D0826209C5AB97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378114   (848495) от 24.04.2020
-
-Aspen - III (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848495.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Магниты
-3. От себя никак не сбежать
-4. Забыла(   Читать дальше...   )Жанр: RockПродолжительность: 00:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492D5C62A6510EB6B8006033DB46EFE726D05716
 ```
 
 

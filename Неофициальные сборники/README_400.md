@@ -1,3 +1,30 @@
+###  Публикация: 1031756   (649550) от 05.07.2016
+
+VA - Night Chilled Jazz (2016) [MP3|320 Kbps] <Chill Jazz, Downtempo>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz 2016 - Jazz Lounge
+02. Nandy Xavier - Joaninha
+03. Raquel Silva Joly - Cancao do Sal
+04. PNFA - Water Path(   Читать дальше...   )Жанр: Chill Jazz, DowntempoПродолжительность: 04:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BE0AA2C640E0275EFDB522730CBF4794A884886
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031677   (649551) от 05.07.2016
 
 Girlschool - Greatest Hits (2015) [MP3|256 Kbps] <Rock, Glam Rock>
@@ -689,33 +716,6 @@ VA - Парад хитов русского рока (2012) [MP3|256 кб/с]<Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8DD5ECE4FB146F7CE5649982F7A7C7547982B84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905276   (651336) от 05.06.2015
-
-VA - Alterportal HITS 15 Vol. 80 -   April (2015) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 Quarters Dead - The Two of Us
-02. Flaw - Bleed Red
-03. In Virgo - Set Me Free
-04. Scarecell - Reach(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA4C4C4DCE1F25560EBC6BA7A4158CA0E886357
 ```
 
 

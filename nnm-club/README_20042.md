@@ -1,699 +1,638 @@
-###  Публикация: 1205228   (783788) от 09.02.2018
+###  Публикация: 1207967   (780312) от 20.02.2018
 
-VA - Valentines Day Love Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Sopper & Herr Schmidt – Wolken Im Wind 6:44
-02. Aida Moniz – Les Etoiles Au Dessus De La Tour Eiffel 3:47
-03. Lorenzo Casanova – Vila Mimosa (Make Love Not War Boogie Version) 4:47
-04. Ku You – Sandhand 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0746571AA677A8F2D9064241937EE3E8686314F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205273   (783789) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. США — Канада (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Биатлон. Мужчины. Индивидуальная гонка 20 км (15.02.2018) WEB-DL [H.264/720p-LQ]
 
 >>Спорт и активный отдых
 >>Зимние Олимпийские игры и Паралимпийские игры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783789.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-08 февраля 2018 года, четверг. 14:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:33:46
+15 февраля 2018 года, четверг. 14:20 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
+Биатлон. Мужчины.
+Индивидуальная гонка 20 км(   Читать дальше...   )Телекомпания: Первый каналЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB644D297975526DD3B3BE6209580757322C8A72
+magnet:?xt=urn:btih:CD6FD278FC69465123E0FEA314DBF2D83C7BE348
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204992   (783790) от 09.02.2018
+###  Публикация: 1207822   (780313) от 20.02.2018
 
-Г.Я. Нейман | Внутренняя торговля СССР (1935) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа тов. Неймана излагает историю торговли в СССР. Вначале работы дается теоретический очерк, характеризующий природу торговли в СССР, после чего рассматривается ее развитие на различных этапах. Большое внимание уделено характеристике советской торговли на современном этапе и задачам ее развертывания во втором пятилетии.
-
-Автор основательно знакомит читателя с (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123B35D0AF20545977A4D74C7A44BE0396571537
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205265   (783791) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Финляндия — Швейцария (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783791.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 14:05 МСК
-Обзорная трансляция
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0569D61E9E135EAA517CC273B265F4AB6790FA8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205359   (783792) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Южная Корея — Китай (08.02.2018) WEB-DL [EN]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783792.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 14:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB67F9999003C27E30383B72B9FABE3D58ECFD4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205016   (783793) от 09.02.2018
-
-VA - Dance Party (2018) [MP3|320 Kbps] <House>
+VA - Nothing But... The Future Of Trance Vol.06 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>House
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783793.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Tritonal  -  Call Me (SJ Remix Remix)  4:04
-02.  Jaki Nelson & Arcando  -  Don't Say That (Original Mix)  2:58
-03.  Corderoy  -  Touch Your Face (Original Mix)  3:31
-04.  Lash  -  I'm Gonna Be There (Andy Bianchini Remix)  2:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:57
+01.  Square Moon  -  Event Horizon (Original Mix)  6:22
+02.  Sergei Vasilenko  -  Mysterious Voices (Original Mix)  7:51
+03.  Martins White  -  The Golden Age (Original Mix)  7:19
+04.  Nicola Maddaloni  -  The Journey (Original Mix)  6:17(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
+magnet:?xt=urn:btih:07F96138C9BF66874FD376942DD7445B34C71861
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205353   (783794) от 09.02.2018
+###  Публикация: 1208068   (780314) от 20.02.2018
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. Китай — Швейцария (08.02.2018) WEB-DL [EN]
+Владимир Добряков | Две строки до востребования (1979) [FB2]
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783794.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-08 февраля 2018 года, четверг. 03:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:15
+«Трудные» дети, взаимоотношения детей и взрослых, воспитание характера, чувств, мировоззрения подростка, поиск им личного нравственного идеала — вот круг проблем, затронутых писателем в его книге.Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DF637A7A04ED33D22FC22525D28535B3BDBDDE3
+magnet:?xt=urn:btih:5CC37AABF0E38C39D9E243307BB19B96C0267B80
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205114   (783795) от 09.02.2018
+###  Публикация: 1207811   (780315) от 20.02.2018
 
-VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oscar Bandersen  -  Running (feat. Bruce) (Original Mix)  3:35
-02.  Aussteiger  -  Zusammenkunft (Original Mix)  5:52
-03.  Willie Graff  -  Second Sun (Original Mix)  7:05
-04.  Troels Hammer  -  The Human Tree (feat. Mariana Sadovska) (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204895   (783796) от 09.02.2018
-
-VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cicada - The Things You Say (Dirty South Remix) (3:47)
-02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
-03.Mason - Exeeder (Original Mix) (2:56)
-04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205075   (783797) от 09.02.2018
-
-VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enrico Donner  -  Quote Of The Day (Original Mix)  5:45
-02.  Beatgridded  -  Deep Emotions And Back (Original Mix)  7:21
-03.  Cane Garden Quartet  -  Close To You (Original Mix)  5:30
-04.  Dusty Deckk  -  Acid Lounge (Original Mix)  5:54(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204927   (783798) от 09.02.2018
-
-Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Loneliness	4:41
-02.	Relax	6:30
-03.	Green Eyes	4:37
-04.	Night	4:44(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204873   (783799) от 09.02.2018
-
-VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dizzee Rascal - Dirtee Disco (4:46)
-02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
-03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
-04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205339   (783800) от 09.02.2018
-
-VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Caner Soyberk  -  Coffee Shop (Original Mix)  3:49
-02.  Oxala  -  Trance Jungle Percussion (Original Mix)  3:41
-03.  Nicola Semprini  -  Biriani (Original Mix)  2:57
-04.  Percussioney  -  Batuqueiro (Instrumental)  3:51(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204909   (783801) от 09.02.2018
-
-James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 1) (01:08:21)
-02. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 2) (01:07:36)
-03. Cristoph - Slowly Burning (feat Jem Cooke) (07:05)
-04. Dario D'Attis & Sven Tasnadi - I Need (07:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205011   (783802) от 09.02.2018
-
-VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alpha Carpet  -  Megabytes (Red Zone Mix)  2:33
-02.  Jin Tonique  -  Not Easy (Mark Kay's Deep Mix)  2:45
-03.  Diamond Marquees  -  Nightshadows (Frank Tee's Night Beats Mix)  2:47
-04.  Johnny Divine  -  Noises (Dean Franklin's Royce Mix)  3:21(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257EC21F6E82A477380419815F846488CCCAB8F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205215   (783803) от 09.02.2018
-
-VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Aaron Ross feat. Gia Mellish - Love Potion (4:03)
-02.Wez Clarke & Maxime Hardcastle feat. The Lovely Laura on Sax - Another Chance (Richard Earnshaw Mix) (5:03)
-03.Notus feat. Shena - Still in Love (Original Club Mix) (5:17)
-04.Steve Haines - Be with You (5:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8C0EC2C87C98256C45391977B3DD3BA21782E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205400   (783804) от 09.02.2018
-
-VA - Air Texture Volume V (Selected By Spacetime Continuum and Juju & Jordash) (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo>
+Ksztalt - Xtract (2017) CleanError Records [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Glitch>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783804.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spacetime Continuum - Flux (06:40)
- 02. Move D - Gli Ragazzi Di Baia Di Puolo (09:05)
- 03. Fred P. - Vortex (06:26)
- 04. Patrice Scott - Synchronicity (06:05)(   Читать дальше...   )Жанр: IDM, Ambient, DowntempoПродолжительность: 02:57:13
+01. Relektro (03:54)
+ 02. Skhid (03:21)
+ 03. Kroc (02:23)
+ 04. Zmeena (02:14)(   Читать дальше...   )Жанр: IDM, Experimental, GlitchПродолжительность: 00:35:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:488CFA2B61B1438EABA2131B973B1E756336D165
+magnet:?xt=urn:btih:89FE3FEC44F596B3D0CBDAD3610837F410E503DE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204984   (783805) от 09.02.2018
+###  Публикация: 1207294   (780316) от 19.02.2018
 
-VA - Contemporary Chillhouse (A Journey Into Deephouse Music) (2018) [MP3|320 Kbps] <Chillhouse, Deep House, Downtempo>
+Adobe Photoshop CC 2018 19.1.1 (x64) RePack by JFK2005 [Ru/En]
 
->>Electronic
->>House
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783805.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sixth Sector  -  Reverse Server (Deep & City Mix)  2:40
-02.  Salina  -  Lost Angels (South London Mix)  2:48
-03.  Rox Waltford  -  Red Clouds (Deephouse Mix)  2:50
-04.  Electronique 44  -  Robot 151 (High Soul Mix)  2:44(   Читать дальше...   )Жанр: Chillhouse, Deep House, DowntempoПродолжительность: 01:32:13
+Adobe Photoshop - это комплексное решение для профессиональной обработки цифровых изображений, которое содержит самые современные инструменты для работы с изображениями и новые возможности для реализации творческих идей, которые позволяют значительно повысить производительность. Редактируйте изображения с исключительной точностью, используйте новые интуитивно понятные (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D9A727B3A6DCFF744548260817F92F0760222D4
+magnet:?xt=urn:btih:2C554A7169A172D7FB90DC5D5CB9CDF239115120
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204969   (783806) от 09.02.2018
+###  Публикация: 1207551   (780317) от 19.02.2018
 
-VA - James Haskell's Back Row Beats Workout (Mixed by James Haskell) (2018) [MP3|320 Kbps] <Progressive House, Deep House, Tech House>
+Windows 7 SP1 Ultimate (x86&x64) [Updates V.11] by YelloSOFT [Ru]
 
->>Electronic
->>House
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783806.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 1)  1:08:22
-02.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 2)  1:07:36
-03.  Cristoph & Jem Cooke  -  Slowly Burning (Original Mix)  7:06
-04.  Dario D'Attis & Sven Tasnadi  -  I Need (Original Mix)  7:21(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 05:05:13
+Сборки основаны на официальных образах MICROSOFT:
+ru_windows_7_ultimate_with_sp1_x86_dvd_u_677463
+ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
+Сборки не были в режиме АУДИТ!(   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE4A429F243B54FC46FDD375FC2B554C01877D29
+magnet:?xt=urn:btih:6991DCDE2FD1A9A5B24B3F17014AACC5EC9C28ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205356   (783807) от 09.02.2018
+###  Публикация: 1207701   (780318) от 19.02.2018
 
-Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
+Abelssoft SSD Fresh Plus 2018 7.3 RePack by Susel [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783807.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780318.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lament [06:55]
-02. Four [04:37]
-03. Line for Lyons [06:33]
-04. Ellen David [08:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:41:00
+Abelssoft SSD Fresh - если вы счастливый обладатель SSD накопителя и задумывались над тем как такой диск оптимизировать, продлить срок службы, то эта утилита всё сделает быстро и за пару кликов. Abelssoft SSD Fresh настроит вашу систему Windows на оптимальную работу с SSD накопителем, отключит доступ к записи, увеличит производительность, снизит количество операций (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
+magnet:?xt=urn:btih:EFE822959D84483090D2E23D6A8FDC288985DE87
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204999   (783808) от 09.02.2018
+###  Публикация: 1207369   (780319) от 19.02.2018
 
-VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
+Зеркало / Looking Glass (2018) WEB-DLRip [MVO] [AD]
 
->>Electronic
->>House
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783808.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_780319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Sean Sines  -  It Ain't Right (Apollo & Les Afrique Remix)  5:15
-02.  Miss Luna  -  Daytona Race (Paul Lomax Mix)  8:08
-03.  Oz & Edmond Dantes  -  No Way Back (Vocal Mix)  7:43
-04.  Muzzaik  -  Work It (Alexey Romeo & Julia Luna Remix)  7:09(   Читать дальше...   )Жанр: HouseПродолжительность: 03:19:12
+Рэй с женой купили уединенный мотель в пустыне в надежде начать жизнь с чистого листа. Но мирная и размеренная жизнь постепенно начинает трещать по швам, когда Рэй обнаруживает двойное зеркало, через которое можно увидеть всё, что происходит в одном из номеров. И когда в мотеле пропадает постоялица, то подозрение падает на владельцев.Производство: Канада, США / Kirk Shaw ProductionsЖанр: ТриллерРежиссер: Тим ХантерАктеры: Николас Кейдж, Робин Танни, Марк Блукас, Эрни Лайвли, Жак Грэй, Конуэй, Билл Болендер, Джейсон К. УиксомПеревод: Любительский (многоголосый закдровый) MUZOBOZСубтитры: ОтсутствуютПродолжительность: 01:42:43Реклама: Присутствуют вставки текстовой рекламы!
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A71A5E08B04D0B55FAF975AD33B24A2999A597A
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205282   (783809) от 09.02.2018
+###  Публикация: 1207684   (780320) от 19.02.2018
 
-VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
+Final Fantasy XII: The Zodiac Age / Final Fantasy 12: The Zodiac Age (2018) [Multi] (1.0) License CPY
 
->>Electronic
->>House
+>>След.
+>>RPG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783809.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Solardo  -  On The Corner (Original Mix)  7:10
-02.  Mike Mago & Tiggi Hawke  -  Dangerous Behaviour (Extended VIP Mix)  4:18
-03.  CASSIMM & Sam Divine  -  What God Has Chosen (Original Mix)  6:02
-04.  Robosonic & Ferreck Dawn  -  Nine To Phife (Original Mix)  5:14(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:10:15
+Final Fantasy XII The Zodiac Age – HD-переиздание оригинальной Final Fantasy XII, вышедшей в 2006 году на консоли Playstation 2. Римейк базируется на Zodiac Job System из международной версии оригинальной игры, но кроме этого, полностью адаптированная версия для ПК, порадует вас похорошевшими моделями персонажей (как в игре, так и в роликах)Тип издания: LicenseРазработчик: Square EnixЖанр: RPG (Japanese-style), 3D, 3rd PersonЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Испанский и другиеЯзык интерфейса: Английский, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:222DEFFC5F4BD6603FED7C88C68B37537C3E9D9D
+magnet:?xt=urn:btih:09F9A3C4F178D96C210C61A6DE6F35BB1DC997FA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205392   (783810) от 09.02.2018
+###  Публикация: 1207756   (780321) от 19.02.2018
 
-Roman Slavka - Material That Has Been Stored For A Long Time (2017) CleanError Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Abstract, Ambient>
+Windows 10 Pro 1709 x86/x64 by kuloymin v12.2 (esd) [Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783810.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Morning Earth Hour (05:20)
- 02. Evening Earth Hour (06:56)
- 03. Creeping Wave (08:22)
- 04. Rotation Pull (06:04)(   Читать дальше...   )Жанр: Experimental, IDM, Abstract, AmbientПродолжительность: 00:30:24
+Сборка основана на официальных образах от MSDN: ru_windows_10_multi-edition_version_1709_updated_dec_2017
+Удалены некоторые appx, стандартные темы и несколько компонентов.
+Очищена папка WinSxS\Backup.
+Очищена папка WinSxS\ManifestCache.(   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CAA4E77DEC0643B6572D814F7FCD040B07C2EC3
+magnet:?xt=urn:btih:6809812313639B8E0DB40DA65FA521BA57228DDD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205327   (783811) от 09.02.2018
+###  Публикация: 1207814   (780322) от 19.02.2018
 
-VA - Balearic House Classics Vol.2 (25 All Time House Anthems) (2018) [MP3|320 Kbps] <House, Classic House, Dance>
+Карп отмороженный (2017) WEB-DLRip
 
->>Electronic
->>House
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783811.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Erick Morillo & Eddie Thoneick feat. Shawnee Taylor  -  Live Your Life (Eddie Thoneick Dub)  6:25
-02.  Jerry Ropero & Denis The Menace feat. Jaqueline  -  Coracao (Denis & Jerry's New Bangin Mix)  7:00
-03.  Francesco Diaz & Karl Frierson  -  Say A Little Prayer (Raul Rincon Peaktime Mix)  7:58
-04.  Jonathan Ulysses & Pryce Oliver feat. Futuristic Polar (   Читать дальше...   )Жанр: House, Classic House, DanceПродолжительность: 02:39:17
+Елена Михайловна скромно живёт на пенсии в провинциальном городке. Неожиданно для себя она узнаёт о смертельном диагнозе, который может в любой момент оборвать её жизнь. Чтобы лишний раз не тревожить любимого, но постоянно занятого сына, работающего в большом городе бизнес-тренером, и избавить его от потенциальных забот, Елена Михайловна берет дело в свои руки и (   Читать дальше...   )Производство: РоссияЖанр: Комедия, ДрамаРежиссер: Владимир КоттАктеры: Марина Неёлова, Алиса Фрейндлих, Евгений Миронов, Сергей Пускепалис, Александр Баширов, Наталья Суркова, Татьяна Рассказова, Антон Шпиньков, Артем Лещик, Анна ЕкатерининскаяПеревод: Не требуется (русский)Субтитры: отсутствуютПродолжительность: 01:39:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F83576C9341CA73F44A60EB9AE54003B39FE788
+magnet:?xt=urn:btih:4E3DEA1DB571D8CF1C52025CA70264918214806F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205374   (783812) от 09.02.2018
+###  Публикация: 1207166   (780323) от 19.02.2018
 
-VA - Traumfanger Vol.1 Sophisticated Electronica (2018) [MP3|320 Kbps] <Deep House, Downtempo>
+Черная бабочка / Black Butterfly (2017) BDRip [H.265/1080p-LQ] [10-bit]
 
->>Electronic
->>House
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783812.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Luca Guerrieri  -  Faithful (Original Mix)  6:06
-02.  Boss Axis  -  The Sun (Original Mix)  7:25
-03.  Dave Wincent  -  Family Affairs (Original Mix)  6:18
-04.  Ultravizion  -  Luode (Original Mix)  7:58(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 02:29:13
+Пол — писатель, живущий в одиноком домике на отшибе. В последнее время его дела идут не очень: заказчик забраковал его последнюю книгу, а сам он пытается забыть о неудачах с помощью алкоголя. Однако жизнь отшельника резко меняется, когда он встречает незнакомца, помогающему ему избежать потасовки в придорожном кафе. Узнав, что незнакомец путешествует налегке, Пол (   Читать дальше...   )Производство: Испания, США, Италия /  Ambi Pictures, Battleplan Productions, Compadre Entertainment, Paradox StudiosЖанр: ТриллерРежиссер: Брайан ГудманАктеры: Джонатан Рис-Майерс, Пайпер Перабо, Антонио Бандерас, Абель Феррара, Николас Аарон, Винсент Риотта, Натали Рапти, Гомес Кэти, МакГоверн, Рэндолл Пол, Джоя ЛибардониПеревод: Дублированный (iTunes)Субтитры: английскиеПродолжительность: 01:33:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B68C208E6D3B182F27EABF342319AED920D64750
+magnet:?xt=urn:btih:F4CE7C8FC145A523171BB3971310815E8FEAE506
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205405   (783813) от 09.02.2018
+###  Публикация: 1205519   (780324) от 19.02.2018
 
-VA - Fourth Listen (2016) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Experimental>
+NI сравнил российский Су-35 с американским F-35
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_783813.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_780324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. the_empath - Autoverse (05:30)
-02. Alpturer - Kibo (03:50)
-03. Perfluxe - Illusion (03:52)
-04. Algesis - Misuse (05:47)(   Читать дальше...   )Жанр: IDM, Abstract, Downtempo, ExperimentalПродолжительность: 01:02:36
+National Interest сравнил российский истребитель четвертого поколения Су-35 с американскими боевыми самолетами-невидимками пятого поколения.По мнению американских аналитиков, Су-35 абсолютно не уступает истребителям четвертого поколения западного производства. Однако NI задается вопросом о способности российского воздушного судна противостоять боевым самолетам пятого (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1340F25629CB20BA224DC7B0D6AED17F8B912ED
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162194   (780325) от 19.02.2018
+
+Михаил Веллер | Собрание сочинений [271 книга] (1988-2016) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Иосифович Веллер (20 мая 1948 г.) - Самый издаваемый сегодня из русских «некоммерческих» писателей. Только в 2000 г. его книги выходили 38 раз общим тиражом около 400 тыс. экз.
+Книги Веллера - это блестящий стиль, лихо закрученные сюжеты и неожиданности на каждом шагу. Это юмор и скандал, это серьезные мысли, изложенные, как авантюрный роман, это непредсказуемо (   Читать дальше...   )Жанр: Современная проза, Биографии и Мемуары, Публицистика, ЮморФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F2FE1897821FDB443EE00F40B3F876029229DE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207726   (780326) от 19.02.2018
+
+DYO (2018) [Ru/Multi] (1.0/upd1) Repack Other s
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780326.jpg" />
+</div>
+
+
+###  Подробнее
+
+DYO - Это кооперативный платформер для одного или двух игроков, в котором возможно перемещаться из одного сплитскрина в другой. В DYO вы помогаете двум минотаврам сбежать из старого лабиринта. Каждый минотавр заключён в своей части сплитскрина, но можно и воссоединить эти части. Можете ли вы решить все 30 уровней?Тип издания: RepackРазработчик: Team DYOЖанр: Platform, Logic, PuzzleЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C591EAE13C30E80B35CDB8640DC1078BF2760A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207666   (780327) от 19.02.2018
+
+Легенда жемчуга Наги / Jiao zhu zhuan (2017) WEBRip [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет назад была война между людьми и крылатыми обитателями небес. Люди победили своих врагов, после чего изгнали их с материка и предали огню прекрасный город Уранополис. Последний наследник крылатых вождей однажды узнаёт способ уничтожить ненавистных людишек.Производство: Китай / Media Asia Films Ltd., Shanghai Film GroupЖанр: Фэнтези, боевик, мелодрама, комедия, приключенияРежиссер: Леон ЯнАктеры: Даррен Ван, Саймон Ям, Тяньай Чжан, Гуаньсэнь Шэн, Сюнь Ван, Луся Цзян, Суй Хэ, Син Юй, Дин Лю, Чжао Цзянь, Дахуа Жэнь, Ху БинПеревод: Любительский (многоголосый закадровый) Студия "Колобок" и Duet_FСубтитры: ОтсутствуютПродолжительность: 01:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D543D4379EDDBBBEBCC193DFB7552B1E879FFBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207564   (780328) от 19.02.2018
+
+Последний богатырь (2017) BDRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иван, обычный парень, по воле случая переносится из современной Москвы в фантастическую страну Белогорье. В этом параллельном мире живут герои русских сказок, волшебство — неотъемлемая часть быта, а спорные вопросы решаются битвой на богатырских мечах. Неожиданно Иван оказывается в самом центре борьбы светлых и темных сил, вот только непонятно, почему главная роль (   Читать дальше...   )Производство: Россия / Кинослово, Walt Disney Pictures, Yellow, Black & WhiteЖанр: Комедия, Семейный, ФэнтезиРежиссер: Дмитрий ДьяченкоАктеры: Виктор Хориняк, Мила Сивацкая, Екатерина Вилкова, Елена Яковлева, Константин Лавроненко, Евгений Дятлов, Александр Семчев, Сергей Бурунов, Александр Кухаренко, Марина КалецкаяПеревод: Не требуется (Blu-ray RUS)Субтитры: русские (полные)Продолжительность: 01:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C248EFD698F5DB82C971EDE5837FFB731B313CA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207839   (780329) от 19.02.2018
+
+Dungreed (2018) [En/Co] (2.19) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тихий и спокойный город был разрушен таинственным подземельем, и все горожане были втянуты в глубь лабиринтов огромной пещеры. Вы должны стать авантюристом-исследователем посланным из королевства, чтобы решить эту катастрофу. Войдите в подземелье, чтобы противостоять бесконечным угрозам, спасти людей и восстановить город!Тип издания: RepackРазработчик: TEAM HORAYЖанр: Action, Arcade, AdventureЯзык субтитров: Английский, КорейскийЯзык интерфейса: Английский, Корейский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C75BF07F37E618AD25169CB9D6DDE9FF9AD2F969
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207708   (780330) от 19.02.2018
+
+3D сцены - Evermotion - Archexteriors vol. 21 - 11079 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Archexteriors vol. 21 включает в себя 10 полностью текстурированных внешних сцен эксклюзивных жилых домов. Каждая сцена готова к рендерингу с профессиональными шейдерами и освещением.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5E56B4CF831045E884A6B01420AB87A2D21785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207768   (780331) от 19.02.2018
+
+Бегущий по лезвию 2049 / Blade Runner 2049 (2017) DVD5 [Custom]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780331.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем мир населен людьми и репликантами, созданными выполнять самую тяжелую работу. Работа офицера полиции Кей — держать репликантов под контролем в условиях нарастающего напряжения… Пока он случайно не становится обладателем секретной информации, которая ставит под угрозу существование всего человечества. Желая найти ключ к разгадке, Кей решает разыскать (   Читать дальше...   )Производство: США, Великобритания, Венгрия, Канада / Columbia Pictures, Alcon Entertainment, Warner Bros. PicturesЖанр: Фантастика, триллер, драма, детективРежиссер: Дени ВильнёвАктеры: Райан Гослинг, Харрисон Форд, Ана де Армас, Сильвия Хукс, Робин Райт, Маккензи Дэвис, Карла Юри, Ленни Джеймс, Дэйв Батиста, Джаред ЛетоПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, финские, итальянские, латышские, литовские, норвежские, шведские, украинскиеПродолжительность: 02:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:533B0EC9C5A3440899F3FF5BAF0C3B9B007CC03F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207762   (780332) от 19.02.2018
+
+Бегущий по лезвию 2049 / Blade Runner 2049 (2017) DVD9
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780332.jpg" />
+</div>
+
+
+###  Подробнее
+
+В недалеком будущем мир населен людьми и репликантами, созданными выполнять самую тяжелую работу. Работа офицера полиции Кей — держать репликантов под контролем в условиях нарастающего напряжения… Пока он случайно не становится обладателем секретной информации, которая ставит под угрозу существование всего человечества. Желая найти ключ к разгадке, Кей решает разыскать (   Читать дальше...   )Производство: США, Великобритания, Венгрия, Канада / Columbia Pictures, Alcon Entertainment, Warner Bros. PicturesЖанр: Фантастика, триллер, драма, детективРежиссер: Дени ВильнёвАктеры: Райан Гослинг, Харрисон Форд, Ана де Армас, Сильвия Хукс, Робин Райт, Маккензи Дэвис, Карла Юри, Ленни Джеймс, Дэйв Батиста, Джаред ЛетоПеревод: Дублированный (лицензия)Субтитры: Русские, английские, датские, финские, итальянские, латышские, литовские, норвежские, шведские, украинскиеПродолжительность: 02:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD99721F4EF1745E80DA8C0206B50DF5BEF8DB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207720   (780333) от 19.02.2018
+
+Скелеты в шкафу Павла Грудинина (2018) WEBRip [H.264/720p-LQ]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780333.jpg" />
+</div>
+
+
+###  Подробнее
+
+В интервью корреспонденту ФАН Анастасии Алексеевой бывший работник ЗАО "Совхоз им. Ленина" Александр Филькин рассказал, как в течение нескольких лет он безуспешно пытался придать огласке эту историю и вернуть законно нажитое имущество - своё и родителей. В Московской областной думе прошла закрытая встреча с работниками и пайщиками ЗАО «Совхоз им. Ленина». (   Читать дальше...   )Производство: Россия, Федеральное агентство новостейЖанр: ПолитикаПродолжительность: 00:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF44C0EA23C28A84E9F61B195459368798C619A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207785   (780334) от 19.02.2018
+
+Сердце из стали (Кровоточащая сталь) / Ji qi zhi xue / Bleeding Steel (2017) WEBRip [H.264/1080p-LQ] [EN, CHI / EN, CHI Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780334.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специальный агент Линь, защищая гениального ученого, разрабатывавшего биологическое оружие, от внезапного нападения вооруженной группы элитных наёмников, возглавляемых беглым биороидом, получает тяжелые ранения и чудом остаётся жив, благодаря своевременной медицинской помощи и передовым технологиям. И теперь, работая под прикрытием, наш герой должен стать незримым (   Читать дальше...   )Производство: Китай, Гонконг / Heyi Pictures, Sparkle Roll Media, Village Roadshow Pictures AsiaЖанр: Боевик, Фантастика, ТриллерРежиссер: Чжан ЛицзяАктеры: Джеки Чан, Шоу Ло, Нана Оу-ян, Эрика Сяхоу, Каллэн Мулвей, Тесс Хобрич, Ким Джинджелл, Дэмиен Гарви, Боуи Лам, ElenaПеревод: ОтсутствуетЯзык озвучки: Английский, КитайскийСубтитры: Английские, Китайские (вшитые, не отключаемые)Продолжительность: 01:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140E9CF454CDB982DF5C8FA212184306B4B156F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207615   (780335) от 19.02.2018
+
+Win 10 Tweaker 5.6 Portable by XpucT [Ru]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win 10 Tweaker — это небольшая, но очень мощная программа, позволяющая сделать полную оптимизацию Windows 10 в несколько кликов. Не пускает пыль в глаза бесполезными настройками, а каждый пункт содержит подробную подсказку-описание. Любое действие выполняется без внешних модулей, средствами самой программы и возможностями Windows, поэтому антивирусы не ругаются на (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75E111077B7F452D5C9F152B0916EB0578C621E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207710   (780336) от 19.02.2018
+
+Три билборда на границе Эббинга, Миссури / Three Billboards Outside Ebbing, Missouri (2017) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780336.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя несколько месяцев после убийства дочери Милдред Хейс преступники так и не найдены. Отчаявшаяся женщина решается на смелый шаг, арендуя на въезде в город три биллборда с посланием к авторитетному главе полиции Уильяму Уиллоуби. Когда в ситуацию оказывается втянут еще и заместитель шерифа, инфантильный маменькин сынок со склонностью к насилию, офицер Диксон, (   Читать дальше...   )Производство: Великобритания, США / Blueprint PicturesЖанр: Драма, криминалРежиссер: Мартин МакДонаАктеры: Фрэнсис МакДорманд, Вуди Харрельсон, Сэм Рокуэлл, Джон Хоукс, Питер Динклэйдж, Калеб Лэндри Джонс, Лукас Хеджес, Эбби Корниш, Керри Кондон, Даррел Бритт-Гибсон ...Перевод: Дублированный (лицензия), авторский (Яроцкий - ненормативная лексика)Субтитры: Русские (forced, full), английские (full, SDH, SDH-Colored)Продолжительность: 01:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8E94F1013E9214E9BBD4887666A8C0EC73F1C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207721   (780337) от 19.02.2018
+
+Современное искусство - Художник-анималист Persis Clayton Weirs [JPG, GIF]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Персис Клейтон Вейерс (Persis Clayton Weirs) родилась на острове недалеко от берега Мэна, и живет на побережье Новой Англии. Там красивые пейзажи и много дикой природы. У Персис не было официального обучения рисованию, она училась рисовать, наблюдая за природой и животными у своего дома, в основном за лошадьми. Теперь в ее "ассортименте" лошади, кошки, (   Читать дальше...   )Формат: JPG, GIFРазрешение файлов: 522x700-850x660
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60377DA37676737F6789A5B63AE44A06C8856DD4
 ```
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1539351   (656845) от 26.03.2022
+
+Windows Defender Tuner 1.4 [Ru] (обновляемая авторская раздача)
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программное обеспечение предназначено для полного отключения Защитника Windows (Windows Defender) на ПК под управлением ОС Windows 10 редакции не ниже 1703 и всех редакций ОС Windows 11.
+Отключение производится штатными средствами Операционной Системы.
+Предусмотрена возможность включения Защитника Windows в любое время.Язык интерфейса: русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C2B89CA3D10436C3A06237A40526A2AE7E7688
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226140   (656870) от 19.05.2018
 
 CoolUtils PDF Combine 6.1.0.122 RePack by вовава [Ru/En]
@@ -596,30 +622,6 @@ Card Data Recovery - программа от 7thShare Studio позволит в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2FFAEDC1566D4724A7EC9EB1909827C6D5F8EAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290291   (677911) от 20.03.2019
-
-7-Data Recovery Suite 4.4 Enterprise RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Резервирование и восстановление данных
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_677911.jpg" />
-</div>
-
-
-###  Подробнее
-
-7-Data Recovery Suite — утилита для восстановления информации с: DE HDD, SATA HDD, SCSI HDD, FireWire HDD, SSD, USB HDD, External HDD, Hardware RAID, Floppy drive, USB flash drive, Compact flash card, Secure Digital card, Memory card/Memory stick, Micro card, Zip drive, IPod и других носителей, в результате порчи или сбоя оборудования, деятельности вирусов или форматирования. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7560DBC52C9E108E29C835673406E22C2E3E2C72
 ```
 
 

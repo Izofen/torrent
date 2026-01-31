@@ -1,3 +1,30 @@
+###  Публикация: 944122   (442762) от 06.10.2015
+
+VA - Carefree Lounge (Laidback Chillout Music) (2015) [MP3|320 кб/с]<Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything I Want - Jive Ass Sleepers
+02. Light of Day - Jive Ass Sleepers
+03. Smooth Talking - Jive Ass Sleepers
+04. Just Steam (Guitar Lead Version) - Adagio Music(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D532497DB5148FE2AC888C2D8233F0ED3B4E4C74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570491   (442875) от 17.08.2022
 
 VA - Club Energetic Drive (2022) [MP3|320 Kbps] <Club, House, Electro>
@@ -728,33 +755,6 @@ VA - Хит атака 9 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF11ECA2FE1B01F9F64F18485FAD0E8B49096520
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943862   (444611) от 05.10.2015
-
-VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 16) (2015) [MP3|320 кб/с]<Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fr David & Dj Nikolay-D - Words(Dj Nikolay-D Remix ) (04:16)
-02. Fancy - Fools Cry(Dj Nikolay-D & Joemix Dj Remix ) (07:48)
-03. Silent Circle - Shy Girl(Dj Nikolay-D & Joemix Dj Remix ) (05:25)
-04. Johnny M5 & Dj Nikolay-D - Moscow Nights(Dj Nikolay-D Bonus Remix ) (07:04)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D366B762166675471348AEB2080E08E8D1648CFD
 ```
 
 

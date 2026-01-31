@@ -1,3 +1,327 @@
+###  Публикация: 1154945   (537067) от 01.08.2017
+
+Phil Collins - ...But Seriously (1989) [FLAC|Lossless|image + .cue] <Soft Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hang In Long Enough (4:44)
+02. That's Just The Way It Is (5:20)
+03. Do You Remember? (4:36)
+04. Something Happened On The Way To Heaven (4:51)(   Читать дальше...   )Жанр: Soft Rock, Synth-popПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB1D889293E335B3B2DDE8E5000B268F9128A5A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154871   (537070) от 01.08.2017
+
+Rings Of Saturn - Ultu Ulla (2017) [MP3|320 Kbps] <Technical Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Servant of This Sentience
+02. Parallel Shift
+03. Unhallowed
+04. Immemorial Essence(   Читать дальше...   )Жанр: Technical DeathcoreПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05D5A6A426505473191BA30A80C084BE41B508A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925629   (537116) от 08.08.2015
+
+Fear Factory - Genexus (2015) Deluxe Edition [FLAC|tracks+.cue]<Death / Groove / Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autonomous Combat System
+02. Anodized
+03. Dielectric
+04. Soul Hacker(   Читать дальше...   )Жанр: Death / Groove / Industrial MetalПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01652E8C721FA5F11B91B5ABDC743D506101C376
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154554   (537140) от 01.08.2017
+
+Glenn Frey (Ex. Eagles) - No Fun Aloud (1982) [MP3|320 Kbps] <Pop-Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Found Somebody
+02. The One You Love
+03. Partytown
+04. I Volunteer(   Читать дальше...   )Жанр: Pop-Rock, Classic RockПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC5D84768DDDB0F9763310176F7845FA9D1FDC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925768   (537196) от 08.08.2015
+
+Chaos Divine - Colliding Skies (2015) [FLAC|tracks|WEB-DL]<Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Landmines [07:42]
+02. Badge of Honour [04:16]
+03. Painted With Grey [04:24]
+04. Soldiers [04:50](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F506763610A7C63422CA67428D571F92179FE369
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154845   (537226) от 01.08.2017
+
+Wolverine - The Windows Purpose (2001) Remaster, 2006, Earache Records [FLAC|Lossless|image + .cue] <Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. End (00:43)
+02. My Room (08:06)
+03. His Cold Touch (part I: Within These Walls) (09:42)
+04. His Cold Touch (part II: A Silent Outside) (01:52)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A7DCFEBB83D415F6FBA4FAB364641643E4FC58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154991   (537228) от 01.08.2017
+
+Der Bote - Morgenwelt (2013) [FLAC|Lossless|tracks + .cue] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:14)
+02. Morgenwelt (04:39)
+03. Herbstnacht (03:48)
+04. Du Oder Ich (04:44)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B50EFD4A89B08D8C0B20D0B936829356615540D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155021   (537229) от 01.08.2017
+
+Mind Odyssey - Keep It All Turning (1993) Japan 1st Press, 1994,  Noise International [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Possessed By You (04:08)
+02. The Reaper (04:52)
+03. Because Of You (05:16)
+04. Illusions (06:06)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B6B46CDAA2C2AF86CC7F0DC44670C6F0871BEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154970   (537231) от 01.08.2017
+
+Darkwater - Where Stories End (2010) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537231.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breathe (04:37)
+2. Why I Bleed (08:16)
+3. Into The Cold (06:31)
+4. A Fools Utopia (05:44)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205B3FA95E2511CD2B60439B23169D070D2178B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155046   (537232) от 01.08.2017
+
+Mind Odyssey - Best Of - 15 Years (2008) Compilation [APE|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raven & Swan (3:22)
+02. In The Dark (4:04)
+03. Men Of No Return (5:53)
+04. Robotman (4:02)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9DFE82A3EBD57401999A2253C221BB5FB48FF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155028   (537233) от 01.08.2017
+
+Mind Odyssey - Schizophenia (1995) Japan 1st Press, 1995, Victor [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schizophenia (3:36)
+02. Evolution (4:57)
+03. Robotman (4:06)
+04. Nervous Breakdown (4:53)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4D6FEE895AD51319E9994ED66155257A32C9AF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154973   (537235) от 01.08.2017
+
+Darkwater - Calling The Earth To Witness (2007) [APE|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537235.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2534167 (00:32)
+2. All Eyes On Me (08:48)
+3. Again (09:01)
+4. Habit (12:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:08:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A874329D163657851B11DF067F9CD424946660DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155043   (537239) от 01.08.2017
 
 Mind Odyssey - Signs (1999) Japan 1st Press [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
@@ -371,336 +695,6 @@ Mortal Thrall - A Path to Fire (2022) [FLAC|Lossless|tracks] <Black Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB813C07749EF6AA6C9C30F6338C2B58613B4CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557724   (537522) от 17.06.2022
-
-Morticide - One With The Darkness (2022) [FLAC|Lossless|tracks] <Death, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Taste Of Evil (00:04:56)
-02 - One With The Darkness (00:04:45)
-03 - Relentless (00:03:47)
-04 - Hatred (00:04:14)(   Читать дальше...   )Жанр: Death, Groove MetalПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:537800375BAEADF3ACAD08CC2AF6FE1862122DAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980857   (537804) от 01.07.2019
-
-The Casualties (1992-2018) [MP3|128-320 кб/с] <Rock, Punk, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1997 - For The Punx
-1998 - Underground Army
-2000 - Stay Out Of Order
-2001 - Die Hards(   Читать дальше...   )Жанр: Rock, Punk, Punk RockПродолжительность: 12:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D5318C8569D598656E9FDACAE6ED6ED54AE415
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050567   (537869) от 08.09.2016
-
-Pain - Coming Home (2016) [FLAC|Lossless|tracks] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Designed To Piss You Off
-02. Call Me
-03. A Wannabe
-04. Pain In The Ass(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E1921C3CCA6E598151CD489F8D3DDFB9FC51DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239543   (538579) от 05.08.2018
-
-VA - Driven by Rock (2018) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создатели Ultimate Collection теперь выпускают первые релизы из новой серии Driven By. Driven By Rock представляет из себя боксет на 5CDs из 100 самых популярных и классических рок-треков, записанных величайшими легендами рока. Не имеет значения любите ли вы Рок, Модерн, Классик, Глэм или Металл, потому что в этой компиляции есть все. Думаю, нет ни одного более-менее (   Читать дальше...   )CD1:
-01. Papa Roach - Last Resort  (3:21)
-02. Fall Out Boy - Centuries  (3:48)
-03. Queens Of The Stone Age - No One Knows  (4:15)(   Читать дальше...   )Тип издания: Box Set, 5CDРелиз состоялся: 27.07.2018Жанр: Rock, Hard Rock, Progressive RockПродолжительность: 06:06:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EE0BA9363E64A0FAF8C4DBA6AB8F933AEB5AA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532168   (538776) от 07.08.2012
-
-Lanfear - This Harmonic Consonance (2012) [FLAC|Lossless]<Progressive Metal/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giorno Del Giudizio (1:06)
-02. Colours Of Chaos (4:40)
-03. By-Product Nation (3:37)
-04. The Reverend (6:22)
-05. Idiopathic Discreation (7:43)
-06. Camera Silens (5:33)
-07. I, Robo Sapiens (4:12)
-08. Spetrophobia (5:55)
-09. Word Not Spoken (6:05)
-10. Disharmonic Consonance (4:28)Жанр: Progressive Metal/Power MetalПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154273   (538830) от 31.07.2017
-
-Ritchie Blackmore's Rainbow - Stranger In Us All (1995) [FLAC|Lossless|image + .cue] <Hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf to the Moon
-02. Cold Hearted Woman
-03. Hunting Humans (Insatiable)
-04. Stand and Fight(   Читать дальше...   )Жанр: Hard rockПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2B113EA09757B7CDE492D526F1CC939F4DAA99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154716   (538938) от 31.07.2017
-
-Federal Charm - Federal Charm (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotta Give It Up (4:48)
-02. I'm Not Gonna Beg (3:07)
-03. No Money Down (3:44)
-04. Somebody Help Me (4:14)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C6511611B37F0F8F75B92F00FBED2B8E8E05023
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154093   (538957) от 31.07.2017
-
-Ian Gillan - The best of (1992) [FLAC|Lossless|image + .cue] <Hard rock, Classic rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hang Me Out To Dry
-02. Dirty Dog
-03. Candy Horizon
-04. Don't Hold Me Back(   Читать дальше...   )Жанр: Hard rock, Classic rockПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:642A7BD378FE4F58B7C2036E7E0F4C4E7628A2FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239426   (538965) от 05.08.2018
-
-David Coverdale - The Last Note Of Freedom (1990) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Note Of Freedom (Edit) (David Coverdale) (04:47)
-02. The Last Note Of Freedom (David Coverdale) (05:44)
-03. Gimme Some Lovin' (Terry Reid) (05:02)
-04. Car Building (Hans Zimmer) (02:36)Жанр: RockПродолжительность: 00:18:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:291B0D941D9F3248457A75D2656D1E263139DD24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154574   (539078) от 31.07.2017
-
-Clouds - Destin (2017) EP [MP3|320 Kbps] <Ambient, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539078.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Wind Carried Your Soul
-2. Fields Of Nothingness
-3. Nothing But A Name
-4. In This Empty Room(   Читать дальше...   )Жанр: Ambient, Doom MetalПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBD480ED635A512FE5878CEED61543BBAA677403
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925719   (539111) от 07.08.2015
-
-Miss May I - Deathless (2015) [FLAC|tracks|WEB-DL]<Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539111.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I H.E.
-2. Trust My Heart (Never Hope to Die)
-3. Psychotic Romantic
-4. Deathless(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1372311C81CF122A4DDA600606EBCF1D8857E5CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925707   (539115) от 07.08.2015
-
-VA - Heart rock - Rock Fur's Herz vol.8 (1996) 2CD[FLAC|tracks + .cue]<Rock, Soul, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Everything But The Girl - Missing [4:06]
-02.George Michael - Praying For Time [4:41]
-03.Robert Miles - Children [3:52]
-04.Andru Donalds - Mishale [4:00](   Читать дальше...   )Жанр: Rock, Soul, PopПродолжительность: 02:39:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:126C9C4DF2FBC5C65FA6FA5ECF3EED014A91D9F6
 ```
 
 

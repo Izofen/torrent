@@ -1,3 +1,31 @@
+###  Публикация: 906193   (645053) от 08.06.2015
+
+Вольфганг Амадей Моцарт - Музыка Моцарта для расслабления (2000) [MP3|320 кб/с]<Класика>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Произведения настолько благотворно влияют на умственное, физическое и психическое состояние, что даже выделяют особый «эффект Моцарта». Он заключается в том, что прослушивание музыки композитора улучшает умственную деятельность человека.
+Кроме этого, используется музыка Моцарта для расслабления. Ее рекомендуют слушать как взрослым, так и детям. Первые с ее помощью (   Читать дальше...   )1. Voi Che Sapete from the Marriage of Figaromovement, Andantino
+2. Andante, Cassation, K. 63
+3. Andante, Symphony No. 6, K. 43
+4. Andantino Grazioso, Symphony No. 18, K. 130(   Читать дальше...   )Жанр: КласикаПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6550B427ADBD645025EFA2DCE46CFDEA47AD8367
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 346620   (645107) от 05.06.2011
 
 VA - Superхиты 90-х. Только лучшее (2011) [MP3|320 kbps]<Eurodance>
@@ -741,39 +769,6 @@ VA - Dance Club Party Vol.4 (2012) [MP3|256 кб/с]<Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D14C84FCB287415B46AA012A2A8791A7463076D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517855   (645830) от 02.07.2012
-
-VA - Dance Club Party Vol.3 (2012) [MP3|256 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_645830.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nickelback - If Today Was Your Last Day (Dj Fisun Remix) (3:23)
-2. Dj Kez - Bat Outta Hell (Original Mix) (5:31)
-3. Oliver Koletzki feat. Fran - Sunset (Original Mix) (3:44)
-4. Dario Nunez & Javi Colina - Andale (Original Mix) (5:20)
-5. 2345 & 5Ivesta Family - Я Буду (DJ Fisun remix one) (2:38)
-6. Jdg & Jayyfresh - Check My Swagger (Original Mix) (6:32)
-7. Flashtronica - Sunshine People (Original Mix) (4:06)
-8. Sunrise Inc - Mysterious Girl (Addictive Elements Remix) (5:18)
-9. DJ Mexx feat. Вика Гранд - White Night (Russian Vocal Version) (4:41)
-10. Almyron feat. Jones Bonz - Real Lover (Original Mix) (5:16)Жанр: ClubПродолжительность: 09:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A8B005CC4E5FFAA767D612A93273F1ED9CCDB03
 ```
 
 

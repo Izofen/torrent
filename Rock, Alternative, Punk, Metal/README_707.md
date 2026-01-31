@@ -1,3 +1,30 @@
+###  Публикация: 944664   (438325) от 08.10.2015
+
+All Time Low - Future Hearts (2015) Deluxe Edition [FLAC|tracks + .cue]<Pop-Punk, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satellite [2:25]
+02. Kicking & Screaming [3:26]
+03. Something's Gotta Give [3:09]
+04. Kids in the Dark [3:37](   Читать дальше...   )Жанр: Pop-Punk, Alternative RockПродолжительность: 00:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887BBB7DC23882108B2F563992F5308035B23A6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570905   (438360) от 19.08.2022
 
 Nagart - Vol. 3 (2022) [MP3|320 Kbps] <Punk Rock>
@@ -673,33 +700,6 @@ Malice - License To Kill (1987) [MP3|320 кб/с]<Hard-n-Heavy, Melodic Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA13E1C45160AA584EB26AE2FA4F9DB494986C42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062624   (438869) от 14.10.2016
-
-Валентин Стрыкало - Развлечение (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ускользает
-02. О брат
-03. 92
-04. Решится само собой(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA206099F98A7D2C6317CC973E95BC5ACE7D494F
 ```
 
 

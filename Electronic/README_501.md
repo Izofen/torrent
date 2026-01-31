@@ -1,3 +1,30 @@
+###  Публикация: 1480085   (1009169) от 27.06.2021
+
+VA - Matters Of The Heart (2021) Behind The Sky Music [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Psybient, Downtempo>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Nonstatic - Dreamscapes (07:26)
+ 02. Misled Convoy - Fire On The Mountain (06:18)
+ 03. Nigel Mullaney - Lost At Sea (06:44)
+ 04. Akuratyde - Rouge (05:12)(   Читать дальше...   )Жанр: Ambient, IDM, Psybient, DowntempoПродолжительность: 01:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32EABF42CE53167F2393C4363DC0F8F24207913
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480223   (1009180) от 27.06.2021
 
 VA - Summer In Space Vol. 4 (2021) 2CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Spacesynth>
@@ -661,33 +688,6 @@ Vivian Koch - Discography 3 Releases (2019-2021) OMNIDISC, AD 93, a.r.t.less [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2720A8C8439D2122BA34750A6EBE025CED6F7115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479139   (1009867) от 22.06.2021
-
-Absis - Found Ritual (2021) Hivern Discs [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floating Around (07:59)
- 02. Break Through Fear (08:23)
- 03. Search And Find (07:12)
- 04. Running Up Hill (06:09)(   Читать дальше...   )Жанр: Techno, AcidПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0663B7D4F91C953BBBA3556A1FEE12D675C86834
 ```
 
 

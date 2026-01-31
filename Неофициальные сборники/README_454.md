@@ -1,3 +1,30 @@
+###  Публикация: 1285431   (718385) от 27.02.2019
+
+VA - Club Dance Ambience vol.172 (2019) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718385.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #Неболира - На Твой Свет (Ivan Art Remix)
+002. 5&Dime, Left Of The Boom - Shackles Feat Janine Fagan  (Dj Bong Mash Up)
+003. A.Chal - Oooooo (Amice Remix)
+004. Aaron Smith - Dancin (Sladkoff & Andrienko Radio Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65525067F7D5000A16F5624D422102723E4C640C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129814   (718441) от 30.04.2017
 
 VA - Music Of Dreams: Original Relax Mix (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -673,32 +700,6 @@ VA - Высшая лига DFM 50x50 (2016) [MP3|256 кб/с] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43EC400792F6BBBF28EEF40AAABAF505FD49CB22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024080   (719954) от 07.06.2016
-
-VA - Young, Fresh & Disco (2016) [MP3|320 кб/с] <Soulful House, Dance,Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_719954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stereo Palma - Cada Vez (Remember & Feedback Radio Remix) (03:28)
-02. Solanos - Childish Freedom (05:37)
-03. Bug & Heck - Falling Stars (feat. J&J)Жанр: Soulful House, Dance,Nu-DiscoПродолжительность: 03:18:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9399D1DE4AE1A0E71EA73092359B6C615916DFFF
 ```
 
 

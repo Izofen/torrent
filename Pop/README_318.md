@@ -1,3 +1,81 @@
+###  Публикация: 295500   (894361) от 14.02.2011
+
+Светлана Владимирская - 2 CD (1993/2005) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_894361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Pop ||Продолжительность: 00:39:56
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992954   (895232) от 05.03.2016
+
+VA - Romantic Collection vol.1 (2000) [FLAC|Lossless|image + .cue] <Pop, Rock, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. House Of The Rising Sun-Animals (04:30)
+02. Wind Of Change-Scorpions (05:13)
+03. Hotel California-Eagles (06:32)
+04. In The Death Car-Iggy Pop (05:12)(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47F5A1B6B05CD2CBD7E8AFAA3214D2D5B38A70A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993296   (895254) от 05.03.2016
+
+Boney M. - The Greatest Hits (2001) Compilation [FLAC|Lossless|image + .cue] <Europop, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Daddy Cool 03:29
+02.Rivers Of Babylon 04:22
+03.Brown Girl In The Ring 04:03
+04.Ma Baker 04:36(   Читать дальше...   )Жанр: Europop, DiscoПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:213B1C84D4CC1C3E2A95E8B33F344CFD1B2E072E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993601   (895373) от 05.03.2016
 
 Joy - Best (1986) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Italo-Disco>
@@ -614,87 +692,6 @@ magnet:?xt=urn:btih:E1A7F2A87D5E024066ED8930D8B236BE35178EA0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AECAFFC9F3C32AA39D03F8B3FD6777C4A4305813
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992701   (898862) от 03.03.2016
-
-Ottawan - All Gold Of The World (2004) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D.I.S.C.O. (English Maxi Version) (5:01)
-02. You're O.K. (5:15)
-03. Hands Up (Give Me Your Heart) (4:52)
-04. Crazy Music (5:31)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:461CB344D8E5B82F955C544A119DE01F85D6BC14
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992718   (899056) от 03.03.2016
-
-Валерий Меладзе - Мой Брат VII (Синглы 2010-2015) (2015) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Обернитесь (feat. Григорий Лепс)
-02. Небеса
-03. Побудь со мной
-04. Потерян и не найден(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B91C861430142686A4F1ADD29B4ABADA73A250B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100353   (899349) от 04.02.2017
-
-Icehouse - The Best Of (2013) Compilation [FLAC|Lossless|tracks + .cue] <Synth-pop, 80's>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Help Myself (Single Version) (3:12)
- 02. We Can Get Together (3:48)
- 03. Hey Little Girl (Single Mix) (3:40)
- 04. Love In Motion (Original Single Mix) (3:42)(   Читать дальше...   )Жанр: Synth-pop, 80'sПродолжительность: 01:17:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745454D5F6BA8ECE711758F5096BEEA0B8CBF273
 ```
 
 

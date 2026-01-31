@@ -1,3 +1,82 @@
+###  Публикация: 1132277   (702659) от 08.05.2017
+
+Katy Perry - Chained to the Rhythm (2017) Single [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chained to the Rhythm (feat Skip Marley) (3:58)
+02. Chained to the Rhythm (Instrumental)  (3:58)Жанр: PopПродолжительность: 00:07:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0960CC8DCD70146C3FC4FE2E7D591058AEB6D73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132295   (702728) от 08.05.2017
+
+Julio Iglesias - Mexico & Amigos (2017) [FLAC|Lossless|tracks + .cue] <Pop, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_702728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. Usted (Con Diego Torres) (3:29)
+ 02/12. Jurame (Con Juan Luis Guerra) (4:08)
+ 03/12. Ella (Con Sin Bandera) (3:46)
+ 04/12. Fallaste Corazon (Con Placido Domingo) (4:01)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAE210015FF37147B5E9634BF7C651A54716F51D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132174   (703060) от 08.05.2017
+
+PLS PLS - Jet Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animals
+02. We Don't Scare
+03. Jet Black
+04. This Is War(   Читать дальше...   )Жанр: Indie Pop Rock, Electronic Rock, SynthpopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5F5BD34EF90026F9C5527D8F6D054F51D6E162
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132179   (703190) от 08.05.2017
 
 PLS PLS - LP LP (2013) [MP3|256 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
@@ -614,87 +693,6 @@ Baccara - I Belong To Your Heart (2017) [FLAC|Lossless|WEB-DL|tracks] <Euro Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD1D38FE38C6CEA4CA099E220FC6C60283AB367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131709   (706715) от 06.05.2017
-
-K.Flay - Every Where Is Some Where (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop Rock, Electronic Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamers
-02. Giver
-03. Blood in the Cut
-04. Champagne(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop Rock, Electronic Rock, Alternative Hip HopПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A835465F83842A12C4191758CF08FCA47557112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131663   (706841) от 06.05.2017
-
-Holy Holy - Paint (2017) [FLAC|Lossless|tracks] <Indie Pop Rock, Psychedelic Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_706841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Message (03:33)
-02. Willow Tree (05:05)
-03. Elevator (03:47)
-04. Shadow (05:17)(   Читать дальше...   )Жанр: Indie Pop Rock, Psychedelic Pop RockПродолжительность: 00:43:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A3A726BC874FF4FB3731D37BA508942CFAB923B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287017   (707017) от 05.03.2019
-
-Юрий Энтин - Прекрасное Д. (2003) [FLAC|Lossless|image + .cue] <Alternative Rock, Punk, Europop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_707017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Диана - Чунга-Чанга
-02. С. Рерих - Танец Маленьких Утят
-03. А. Добронравов - Антошка
-04. Мангол - Гениальный Сыщик(   Читать дальше...   )Жанр: Alternative Rock, Punk, EuropopПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0886B3C1FD96FCBCD7E2FF065C0C3308C70C5664
 ```
 
 

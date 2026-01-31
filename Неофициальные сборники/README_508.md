@@ -1,3 +1,30 @@
+###  Публикация: 1204922   (784223) от 07.02.2018
+
+VA - Зайцев.Нет: Февраль (Музыкальные Новинки) (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Сергия  -  Я хочу быть только с тобой  3:42
+02.  ТЕО и Ольга Рыжикова  -  По тонкому льду  3:10
+03.  X Ambassadors  -  Don't Stay  3:10
+04.  Sting & Shaggy  -  Don't Make Me Wait  3:34(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23798AF9C0DCE0D9A23B5CB4CFF3A078DD613A31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204615   (784225) от 07.02.2018
 
 VA - Наши песни (2017) от DON Music [MP3|256/320 Kbps] <Русский Рок, Авторская Песня>
@@ -662,33 +689,6 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0017 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:583BA5BFE615E372789E1EC34F717FD8E6155BEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204536   (784664) от 06.02.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0014 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ankie Bagger - Where Were You Last Night ( Remix 1989 )
-02. Diux - Comet ( 1986 )
-03. Synth Dimension - Way To New Start ( 2013 )
-04. Danielle Deneuve - Love Is Free ( 1984 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CDCE11E0B0E3B8B447C37B38E4E789D087DD19
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1138100   (665715) от 28.05.2017
+
+VA - Chillout Acoustic Sessions (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_665715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Klubb-X - Green Light 3:17
+02.  Nite Watchmen - Something Just Like This 3:11
+03.  Party Rockerz - Stay 3:25
+04.  Monsta Kat - It Ain't Me 3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1653B90A601D935C0922919BE8C20E9A0C9299C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 512021   (665854) от 17.06.2012
 
 VA - Balance Series (25 альбомов) (2001-2012) [MP3|320 кб/с]<Progressive House, Progressive Trance, House, Electro, Techno, Minimal, Tech House, Dubstep, Ambient>
@@ -673,33 +700,6 @@ Son of Mars - Interdimensional (2017) [MP3|320 Kbps] <Deep Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE5A9110167042459CD072216E176E487B8A2EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537142   (669239) от 15.03.2022
-
-VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_669239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gunz For Hire - Ongedierte van de Nacht
-02. D-block & S-te-fan - Twilight Zone (Headhunterz Remix)
-03. Ran-DSound RushLePrince - We Are the Storm (Radio Edit)
-04. JDXSander Nijbroek - Tides (Performance Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:08 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A58868CFA388DB9301D5083D734F664E711ECE
 ```
 
 

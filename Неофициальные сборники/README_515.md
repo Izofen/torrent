@@ -1,3 +1,30 @@
+###  Публикация: 1203018   (789063) от 31.01.2018
+
+VA - 150 Dance Extra Mixes (2018) [MP3|320 Kbps] <House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789063.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Basement Jaxx  -  Do Your Thing (Robbie Rivera Acid Remix)  3:33
+002.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
+003.  50 Cent  -  Candy Shop (DJ Vini Remix)  5:06
+004.  Alan Walker  -  The Spectre  3:14(   Читать дальше...   )Жанр: House, DanceПродолжительность: 09:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062FC9521CD5266EE43D5EDEAF25174A8209C1BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202865   (789071) от 31.01.2018
 
 Алимханов А. - Instrumental Collection (2018) [MP3|320 Kbps] <Electronic, Spacesynth, Disco>
@@ -668,30 +695,6 @@ VA - Deep Disco (2018) [MP3|320 Kbps] <Deep House, Nu Disco, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF0BA06A03F7B7218AE495BAC3B91AFA7D22E9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275581   (789622) от 12.01.2019
-
-Snap - The Power (2017) Remix [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789622.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Snap - The Power (DJ SAVIN) RemixЖанр: Deep HouseПродолжительность: 00:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30E111E430B20C7CFF0F932F4491708B0F52B2DD
 ```
 
 

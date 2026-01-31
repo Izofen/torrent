@@ -1,3 +1,30 @@
+###  Публикация: 983506   (943608) от 06.02.2016
+
+VA - Инструментальное и оркестровое исполнение песен Dieter Bohlen (2016) [MP3|128-320 кб/с] <Instrumental, Pop, Disco>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943608.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Saxaphone New Wave - Jump In My Car (03:44)
+002. Cliff Carpenter Orchestra - Angel Blue Eyes (03:43)
+003. Caroline Eriksson - Atlantis Is Calling (S.O.S. For Love) (01:43)
+004. Acoustic Guitar - You're My Heart, You're My Soul (03:40)(   Читать дальше...   )Жанр: Instrumental, Pop, DiscoПродолжительность: 06:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2ADD8BA051975951D7E0A19CCCDE4E6A2713948
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983496   (943694) от 06.02.2016
 
 VA - Italo Disco Hits Vol.9 (2016) [MP3|197-320 кб/с] <Italo Disco>
@@ -679,33 +706,6 @@ VA - Музыкальные новинки. Only Best Hits. Сборник № 5
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFF35D48D34A3BD073063AD85B3C92E96EF1A917
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091024   (944871) от 08.01.2017
-
-VA - Отрывайся с лучшими хитами. Выпуск № 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_944871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Krugers - Bambino 3:11
-002. Chase & Status Feat. Slaves - Control 4:11
-003. Nero - Circles 4:32
-004. Dada & Paul Harris & Dragonette - Red Heart Black 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911F24AC7850A989E302505E1DCC476043CE31FC
 ```
 
 

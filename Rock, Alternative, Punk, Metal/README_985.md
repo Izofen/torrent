@@ -1,3 +1,325 @@
+###  Публикация: 1217692   (741043) от 06.04.2018
+
+Watain - Trident Wolf Eclipse (2018) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuclear Alchemy
+02. Sacred Damnation
+03. Teufelsreich
+04. Furor Diabolicus(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3011CEBC88C12F836313692353AF2326398558
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283057   (741054) от 15.02.2019
+
+Foreigner - Live in Concert (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Head Games (Live)
+2. Feels Like the First Time (Live)
+3. Cold as Ice (Live)
+4. Hot Blooded (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FCCE64A9F745C9953A2968D4B927DD5745985D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282636   (741055) от 15.02.2019
+
+Rotting Christ - The Heretics (2019) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 In the Name of God
+02 Vetry ZlyeЖанр: Black MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6F932561D9D8B685FF2520C2DCAD947177FE02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126962   (741124) от 20.04.2017
+
+The Project Hate MCMXCIX - The Lustrate Process (2009) [WavPack|Lossless|image + .cue] <Industrial Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Descend Into The Eternal Pits Of Possession 12:55
+02. You Come To Me Through Hell 08:55
+03. See The Filth Become Flames In This Furnace 08:19
+04. Our Wrath Will Rain Down From The Sky 08:35(   Читать дальше...   )Жанр: Industrial Death MetalПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A44F37505D69C2169870CB8ED13192FDFB664E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283120   (741153) от 15.02.2019
+
+Noel & The Red Wedge - Peer Pressure (1982) LP [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special To You (3:19)
+02. Act Of Love (3:02)
+03. She's A Big Girl Now (3:07)
+04. Stranger (3:24)(   Читать дальше...   )Жанр: Electronic, Pop Rock, New WaveПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B0D6E2924A6B56490EE446A6C81C02E43C70BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282969   (741158) от 15.02.2019
+
+Eberhard Schoener - 2 Albums (1978) (Bass Guitar, Vocals - Sting) [MP3|320 Kbps] <Electronic, Modern Classical, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий композитор, дирижер, аранжировщик и клавишник. Его деятельность объединяет множество стилей и форматов. Предлагаемые альбомы выпущены совместно с известными исполнителями и музыкантами Sting и Andy Summers.01. Trans-AM (3:27)
+02. Why Don't You Answer (4:35)
+03. Only The Wind (4:10)
+04. Powerslide (1:38)(   Читать дальше...   )Жанр: Electronic, Modern Classical, Prog RockПродолжительность: 01:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F26059BF54767A1DD0C7238E4CB168D09E72025
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282952   (741160) от 15.02.2019
+
+Kaunis Kuolematon - Elama Ei Tarvitse Minua (2019) EP [MP3|320 Kbps] <Doom Metal, Gothic Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Elämä Ei Tarvitse Minua
+2. Porteilla
+3. Yön Tunteina
+4. Aseista RiisuttuЖанр: Doom Metal, Gothic Metal, Melodic Death MetalПродолжительность: 00:21:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920071372DCC6AC5F07696CD72C75E7BC7523DE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283181   (741169) от 15.02.2019
+
+Les Discrets - Prédateurs (Predateurs) (2017) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Shoegaze, Blackgaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prédateurs (1:57)
+02. Virée Nocturne (3:56)
+03. Les Amis De Minuit (4:53)
+04. Vanishing Beauties (5:32)(   Читать дальше...   )Производство: Prophecy Productions - PRO178Жанр: Post Rock, Shoegaze, Blackgaze, Trip HopПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9D266F1C5CB73896AF1F52D973F00D67687232
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784339   (741274) от 07.05.2014
+
+Spiderbait - Spiderbait (2013) [MP3|320 кб/с]<Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Straight Through The Sun (03:55)
+02. It's Beautiful (03:40)
+03. Miss The Boat (05:12)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:155713E547B1DF6B2C1CBEDF3AE7A5FB02AEAB87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397216   (741339) от 19.07.2020
+
+Pretenders - Hate for Sale (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hate for Sale (02:30)
+02. The Buzz (03:50)
+03. Lightning Man (02:56)
+04. Turf Accountant Daddy (03:05)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB1FEFD09076B1E9477B58B3DC8AA773DA9E3BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396553   (741359) от 19.07.2020
+
+Alestorm - No Grave But the Sea (2017) Napalm Records [FLAC|Lossless|image + .cue] <Folk Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Grave But the Sea (03:30)
+02. Mexico (03:10)
+03. To the End of the World (06:43)
+04. Alestorm (03:57)(   Читать дальше...   )Жанр: Folk Metal, Power MetalПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D053A6947CB78CEA0343502FD908B15077C762E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397250   (741369) от 19.07.2020
+
+Mean Streak - Eye of the Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741369.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Last Nail in the Coffin [4:02]
+ 2. From the Cradle to Grave [4:41]
+ 3. Heavy Metal Rampage [4:35]
+ 4. Sacred Ground [5:05](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E33C663BBD4C237460E0B91FCE1093E582A0FF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397169   (741372) от 19.07.2020
 
 Omminous - Immensity (2020) [MP3|320 Kbps] <Heavy Metal,  Power Metal>
@@ -371,324 +693,6 @@ Lucinda Williams - Bob’s Back Pages: A Night of Bob Dylan Songs (2021) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D01D374F1D510FA7FC9FEB8E322966E9621A5A33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021272   (742192) от 28.05.2016
-
-Электрические Партизаны - Минные поля свободы (2016) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. минные поля свободы
-02. заблудившиеся во вселенной
-03. на войне как на войне
-04. блефуску(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47D9AD263969A73425960B236A398FBF2241D604
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282698   (742222) от 14.02.2019
-
-VA - The Best Rock Ballads In The World...Ever! (1995) 2CD [FLAC|Lossless|tracks + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742222.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:16] 01 - A Kind Of Magic (Queen)
-[3:53] 02 - A Girl Like You (Edywn Collins)
-[3:33] 03 - Over My Shoulder (Mike & The Mechanics)
-[3:22] 04 - Stuck In The Middle With You (Stealers Wheel)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 02:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5CFC5133AC0BC3F259059614F0F44509C79B69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282922   (742223) от 14.02.2019
-
-Avril Lavigne - Head Above Water (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head Above Water (03:40)
-02. Birdie (03:35)
-03. I Fell in Love with the Devil (04:15)
-04. Tell Me It's Over (03:08)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE77932954DBCB3224EA4D783F046FBE186A334
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282909   (742225) от 14.02.2019
-
-Avantasia - Moonglow (2019) [MP3|320 Kbps] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ghost in the Moon
-2. Book of Shallows (feat. Hansi Kürsch, Ronnie Atkins, Jorn Lande, Mille Petrozza)
-3. Moonglow (feat. Candice Night)
-4. The Raven Child (feat. Hansi Kürsch, Jorn Lande)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9E665967A31D7A7E08F8DBAF3A13B805DB946A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282693   (742235) от 14.02.2019
-
-VA - Soft Rock Ballads (2006) 3CD [FLAC|Lossless|tracks + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742235.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:51] 01 - You're My Best Friend (Queen)
-[3:53] 02 - Make Me Smile (Come Up and See Me) (Steve Harley & Cockney Rebel)
-[6:28] 03 - Baker Street (Gerry Rafferty)
-[3:34] 04 - The Joker (Steve Miller Band)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 03:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64DBD5E0E3112BAA7DC45246FC42CCCB6C34AF95
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524774   (742242) от 17.01.2022
-
-Coldspell - A New World Arise (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forevermore
-02. Call Of The Wild
-03. It Hurts
-04. Miles Away(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFCB6D315B6028D6C1C52756209CB7C80465763
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524767   (742243) от 17.01.2022
-
-Arsenic - Faith Is Gone (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (00:22)
-02. Sick Of This (02:28)
-03. Die Alone (02:42)
-04. Against The Edge (02:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C2DDF8D7C5BB25DA786E98F43E98DAC1D2C7F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524722   (742258) от 17.01.2022
-
-Darkness Divine - Departure (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 15 Seconds (05:18)
-02. Mirror (05:13)
-03. Everflow (04:29)
-04. Stranger (04:07)(   Читать дальше...   )Жанр: Heavy Metal, Female VocalПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46AF833BC0A21AA58FD3154B87522CF533682532
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217619   (742279) от 05.04.2018
-
-Tremonti - A Dying Machine (2018) Single [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Dying MachineЖанр: Alternative MetalПродолжительность: 00:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50814ED50164A21BF19DF05B2000F253615B37F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021096   (742302) от 28.05.2016
-
-Katatonia - Last Fair Day Gone Night (2014) 2CD, Live [FLAC|Lossless|image + .cue] <Doom Metal, Depressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brave (10:34)
-02. Nephilim (4:27)
-03. My Twin (3:45)
-04. I Break (4:23)(   Читать дальше...   )Жанр: Doom Metal, Depressive RockПродолжительность: 01:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D6078DA5CD10BE0E82C11EC66D9C4EC5DCBB20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020913   (742304) от 28.05.2016
-
-Iron Savior - Titancraft (2016) Limited Edition [FLAC|Lossless|image + .cue] <Speed, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under Siege (Intro)
-02. Titancraft
-03. Way of the Blade
-04. Seize the Day(   Читать дальше...   )Жанр: Speed, Power MetalПродолжительность: 01:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8A40723B44AEBDE5FB266216784CFEBA664531F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021130   (742313) от 28.05.2016
-
-Stardust Reverie - Proclamation Of Shadows (2015) [FLAC|Lossless|image + .cue]<Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_742313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Heavy MetalПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B73D10F81BA5C70BCE9AEBB556EEC48A60AA465
 ```
 
 

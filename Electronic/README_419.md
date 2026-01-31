@@ -1,3 +1,30 @@
+###  Публикация: 1200061   (796997) от 19.01.2018
+
+VA - Markus Schulz - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_796997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz presents Dakota - Edonismo
+02. Lostly - Came Here to Forget
+03. Basil O'Glue - The Sun Will Rise Again (Solid Stone Remix)
+04. Cosmic Gate & Markus Schulz - AR (Patrick White Remix) (World Premiere)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C339DE9736B483EF4BA03CD732F5B39CA79BAE16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200047   (796998) от 19.01.2018
 
 VA - Amsterdam Trance Sessions Vol.14 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -668,33 +695,6 @@ VA - Infrasonic Progressive Selection Volume 6 (2018) [MP3|320 Kbps] <Trance,Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CA14CAA7E4D37FE412CC1487D24987F15E1A149
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011007   (797660) от 26.04.2016
-
-VA - Top Sexy House Electro (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_797660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Termite & Mikky Clap -  Insomnia (Alex Fresh Remix)  5:51
-02. Soulstatic -  Bang, Bang, Bang! (feat. Wendy Lewis) (Lypocodium & Helen Brown Remix)  7:36
-03. Pot4ss -  Get The Fuck (Original mix)  5:19
-04. Twosid3s -  Out Of The Ground (Original mix)  6:08(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB11C879F0AA78A7370F2A1F85C9039502ECD9CA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1377872   (849815) от 23.04.2020
+
+Pet Shop Boys - My Beautiful Laundrette (2020) EP [FLAC|Lossless|tracks + .cue] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849815.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Omar's Theme (03:09)
+2. Angelic Thug (02:27)
+3. Johnny's Dark Side (02:46)
+4. Night Sings (Popa's Theme) (02:23)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F1D0035A26C2E4FCC52740236DC7F370CB79C35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377746   (849825) от 23.04.2020
 
 Blank & Jones - Milchbar - Seaside Season 12 (2020) DJ Mix [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Chillout, Lounge, Downtempo>
@@ -666,33 +693,6 @@ VA - Bye Bye Winter! (20 Crazy House Tunes) (2017) [MP3|320 Kbps] <Funky, Club H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:080899BAFF939987A63EB9C907DEC3552CFAB533
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110593   (852175) от 03.03.2017
-
-VA - Last Night In Miami (20 Deep-House Experiencias) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_852175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bit Express - Bass Down Low (Anthony Maserati's Night Mix)  3:34
-02.  Leon Victory - Mad Lion Junglist (Raggadeep Mix)  3:33
-03.  Alex Martinez - Costa Blanca (Original Mix)  6:09
-04.  Bamboo Rhythms - Pushing On (Man On The Moon Mix)  4:15(   Читать дальше...   )Жанр: HouseПродолжительность: 01:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B7FD99A594BC0A4320AC3EFA7A15F0058AC967
 ```
 
 

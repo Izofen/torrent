@@ -1,3 +1,30 @@
+###  Публикация: 1005900   (830810) от 10.04.2016
+
+VA - Жажда скорости (2016) [MP3|320 кб/с] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Полина Гагарина - A Million Voices (DJ Favorite & DJ Lykov Remix)
+02. Coldplay - Adventure Of A Lifetime (Astero Radio Remix)
+03. Slider & Magnit feat. Penny Foster - Another Day In Paradise (Dj Jurbas Remix)
+04. Aqua - Barbie Girl (Markiza Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A36A80E8D8E94ACAD4215E7CB9DFF0CAF22B20D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005975   (830811) от 10.04.2016
 
 VA - Laid Back Evening: Acoustic Guitar (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -668,33 +695,6 @@ VA - Illusion Sound: Bassline World Mix (2020) [MP3|320 Kbps] <Bassline, D&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6876CF329BB13F299DAA7BC60A4955A34580F03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114418   (831684) от 15.03.2017
-
-VA - Guitar Collection 11 (2017) [MP3|320 Kbps] <Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831684.jpg" />
-</div>
-
-
-###  Подробнее
-
-001| The Carl Verheyen Band - Dusk (Two Views Of The Canyon)  (01:51) 
-002| Al Marconi - Angola  (02:55) 
-003| Blindstone - By Grabthar's Hammer  (06:22) 
-004| Chris Rea - Forever  (01:27) (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 07:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323FD184A0B8234EF162AD0488C8C2B6D70FAA71
 ```
 
 

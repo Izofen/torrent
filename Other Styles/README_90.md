@@ -1,3 +1,192 @@
+###  Публикация: 1045056   (561005) от 22.08.2016
+
+Enya - The Magic Of Enya (2016) Chinese Dragon Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Time (3:38)
+02. Flora's Secret (4:08)
+03. Caribbean Blue (3:58)
+04. Once You Had Gold (3:18)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 1:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8402F01FE2395F0AD6A057557086968B97D1351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045020   (561253) от 22.08.2016
+
+Jean Michel Jarre - Magnetic Fields (1981) Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magnetic Fields Part 1 17:57
+02. Magnetic Fields Part 2 03:59
+03. Magnetic Fields Part 3 04:11
+04. Magnetic Fields Part 4 06:25(   Читать дальше...   )Жанр: <Electronic, Instrumental, New Age>Продолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE23FB2DDBB33075B9C3F5C287CD2AE65B97FE5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152250   (561486) от 25.07.2017
+
+VA - Anxiety Free. Clear Peaceful Mind: Deep Relaxation of the Soul (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calm Music Zone - Anxiety Free
+02. Meditation Mantras Guru - Breathe In & Breathe Out
+03. Calm Music Masters - Prepare Your Body for Meditation
+04. Sound Therapy Masters - Morning Meditation Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B6ACB54915E251EA227842230CCA0C5936C6CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304662   (561563) от 27.05.2019
+
+Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабская ночь (2019) (03:13)
+02. На миг быстрее (02:55)
+03. На миг быстрее (Реприза) (01:00)
+04. Смелой (Часть 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACC0003FD26CBFC92376E77DD2B2C5776E18268
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304663   (561567) от 27.05.2019
+
+Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Арабская ночь (2019) (03:13)
+02. На миг быстрее (02:55)
+03. На миг быстрее (Реприза) (01:00)
+04. Смелой (Часть 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EE8F0504D912C3611E673264771590BF21BC5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044814   (561671) от 22.08.2016
+
+Ancient Legacy - New Age Armenia II (2003) [FLAC|Lossless|image + .cue] <New Age, International>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Siroun Es Hokiag  04:19
+02.  Vartani Mor Vokhbe  05:50
+03.  Oror  04:12
+04.  Alakiaz  02:03(   Читать дальше...   )Жанр: New Age, InternationalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C82C5ECC4944E3C8F99778F709AE42225E3BC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304604   (561714) от 27.05.2019
+
+Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godzilla (feat. Serj Tankian) (03:10)
+02. Godzilla Main Title (02:35)
+03. Memories of San Francisco (02:11)
+04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33C1A4BF0786161C111D3173B2AA96D130020939
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304653   (561840) от 27.05.2019
 
 Alan Menken & VA  - Aladdin / Аладдин (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -528,206 +717,6 @@ Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81508589C3B6A78750328DE8CED15C181813C080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529267   (567596) от 31.07.2012
-
-Wil Bolton - Under A Name That Hides Her (2012) [MP3|320 кб/с]<Meditative, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567596.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:43) 1. Clearing
-..(6:21) 2. Blackpoint
-(5:42) 3. Skyview
-(5:53) 4. Barbed
-(6:29) 5. Dissolve
-(6:23) 6. PassingЖанр: Meditative, AmbientПродолжительность: 00:37:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93AF65E4A428142D768A2F17E29CFE161A0DBD51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921967   (568026) от 29.07.2015
-
-Luca Stricagnoli - Luca Stricagnoli (2015) [MP3|320 кб/с] <Instrumental, Acoustic, Guitar, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с гитарной сенсацией из Италии - Лука Стриканьоли (Luca Stricagnoli).
-Лука является одним из самых захватывающих новых музыкантов виртуозно владеющий акустической гитарой. Он обходит нормальные пределы классической аккустички и адаптирует её к любому музыкальному жанру: от поп-музыки до рока, от саундтреков к оригиналу.
-
-Он довольно молод, всего каких (   Читать дальше...   )01. Thunderstruck (4:11)
-02. Braveheart (3:15)
-03. Conquest of Paradise (2:18)
-04. Paradise (3:38)(   Читать дальше...   )Жанр: Instrumental, Acoustic, Guitar, New AgeПродолжительность: 00:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E32D1DB88B4DA739137E78829EBDEA36999DA84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921930   (568053) от 29.07.2015
-
-David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-2014) Season 1-3 [MP3|260-320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How It Was Done (02:45)
-02. God Rest His Soul (01:44)
-03. Floating Dust (03:29)
-04. #SherlockLives (02:50)(   Читать дальше...   )Жанр: OSTПродолжительность: 03:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E737FD4F189B973B054C00E83C28BBA897705897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921862   (568124) от 29.07.2015
-
-Joe Hisaishi - Sonatine (1999) [FLAC|tracks+.cue]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sonatine I - Act Of Violence (03:40)
-02. Light And Darkness (06:49)
-03. Play On The Sands (04:43)
-04. Rain After That (00:26)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E828710FD44174ECB809AD7E0A3B6593D6444680
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921850   (568196) от 29.07.2015
-
-James Newton Howard - Snow White & The Huntsman (2012) [FLAC|tracks+.cue]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snow White
-02. I'll Take Your Throne
-03. Tower Prayers
-04. Something for What Ails You(   Читать дальше...   )Жанр: OSTПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D098ED511B015CD638CF4B885C106951F3A98C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529177   (568236) от 30.07.2012
-
-Ennio Morricone - The Best World Instrumental Hits (2CD) (2009) [MP3|320 кб/с]<soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Э́ннио Моррико́не (итал. Ennio Morricone)1. Chi Mai (5:05)
- 2. Cockeye`s Song (4:22)
- 3. Le Vent, Le Cri (5:20)
- 4. Bye Bye Colonel (2:03)
- 5. La Tragedia Di Un Uomo Ridicolo (2:15)
- 6. Orient Express (4:12)
- 7. Once Upon a Time In Revolution (4:15)
- 8. Dimenticare Palermo (2:55)
- 9. Mille Ecchi (3:21)
- 10. Ricatto (3:02)(   Читать дальше...   )Жанр: soundtrackПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63774FD3282C2A93AA2FAC8896919809EE55A4EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555559   (568733) от 04.06.2022
-
-Blue Flower - Songs Celestial (2017) [FLAC|Lossless|WEB-DL|tracks] <World, Mantras, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amar Ashru Hasi
-02. Maner Jatana
-03. Mangal Hok
-04. Shunite Chahina(   Читать дальше...   )Жанр: World, Mantras, MeditativeПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2067B101F7C821A390A80C23889646F3F82FD2
 ```
 
 

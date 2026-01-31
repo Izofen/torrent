@@ -1,3 +1,30 @@
+###  Публикация: 987871   (922805) от 19.02.2016
+
+VA - Club Of Fans Dance Vol. 6 (2016) [MP3|320 кб/с] <Club, Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_922805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cleo - Zabiore Nas (Basto Remix Extended)
+02. Miss Diva - Love Me (Marious Remix Edit)
+03. Giorno - The Floor (Mr. G! Vs Dancefloor Kingz Edit)
+04. S3RL - Pretty Rave Girl (Hands Up Edit)(   Читать дальше...   )Жанр: Club, Dance, Hands UpПродолжительность: 04:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0605F7D46B89B00EF8F89828EDE6B9C37CE3C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987735   (922811) от 19.02.2016
 
 VA - Music For Everyone - Dubstep & Drumstep Vol.4 (2016) [MP3|320 кб/с] <Dubstep, Drumstep>
@@ -671,33 +698,6 @@ VA - Лучшие блатные хиты года на радио Шансон 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CC6305D951C881469755AC8A64FF5584D91D539
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987875   (924399) от 18.02.2016
-
-VA - Супер хит зимний от Европы Плюс. Часть 9 (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924399.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dante & Udalin Project - Под Кожу
-002. Alex Dee Jay Feat. Lokka Vox - Your Love
-003. Тимур Рахманов - Возьми Меня В Свой Плен
-004. The Pierces - Must Be Something(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABE8C48D002BCEB71B2E6216E61BE235640F20F
 ```
 
 

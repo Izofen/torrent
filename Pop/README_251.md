@@ -1,3 +1,84 @@
+###  Публикация: 1027127   (699963) от 17.06.2016
+
+VA - 100% Hits Vol. 1 (2016) Box Set [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редко выходят такие хорошо сбалансированные сборники. Каждый найдет в нём треки по своему вкусу. Все три жанра, вынесенные в заголовок оформления раздачи реально соответствуют содержанию. Слушайте в удовольствие...01. Charlie Puth - One Call Away  (3:10)
+02. Twenty One Pilots - Stressed Out  (3:22)
+03. Kiiara - Gold  (3:39)
+04. Rudimental feat. Ed Sheeran - Lay It All On Me  (3:31)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E43E1F2E32F0B59314AA36FA1C783FA2826A3E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026855   (700199) от 17.06.2016
+
+Kim & Buran - Orbita (2016) [MP3|320 кб/с] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delayed Flight (5:54)
+02. Breeze (4:15)
+03. Jet Disco (4:28)
+04. Voyager (4:29)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A236856141D3C4A9BBDAD1999A98D319406108B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027002   (700337) от 17.06.2016
+
+The Cascades - Hits And Rarities (1993) [MP3|320 кб/с] <60's Pop, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_700337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm Of The Rain
+02. Let It Be Me
+03. There’s A Reason
+04. Second Chance(   Читать дальше...   )Жанр: 60's Pop, OldiesПродолжительность: 00:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B9EADA1C5BE8562EB70CF86FE802C5F2D5894A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220865   (700433) от 21.04.2018
 
 VA - Первый танцевальный, Vol. 15 (2018) [MP3|320 Kbps] <Pop, Dance>
@@ -614,85 +695,6 @@ Alyzee - My Life (2017) [MP3|320 Kbps] <Alternative Pop, Ethnic Electronic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77B45D7B688A694C4D8E5ED68BD41E4FB8F8B47F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132277   (702659) от 08.05.2017
-
-Katy Perry - Chained to the Rhythm (2017) Single [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chained to the Rhythm (feat Skip Marley) (3:58)
-02. Chained to the Rhythm (Instrumental)  (3:58)Жанр: PopПродолжительность: 00:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0960CC8DCD70146C3FC4FE2E7D591058AEB6D73
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132295   (702728) от 08.05.2017
-
-Julio Iglesias - Mexico & Amigos (2017) [FLAC|Lossless|tracks + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. Usted (Con Diego Torres) (3:29)
- 02/12. Jurame (Con Juan Luis Guerra) (4:08)
- 03/12. Ella (Con Sin Bandera) (3:46)
- 04/12. Fallaste Corazon (Con Placido Domingo) (4:01)(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE210015FF37147B5E9634BF7C651A54716F51D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132174   (703060) от 08.05.2017
-
-PLS PLS - Jet Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_703060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animals
-02. We Don't Scare
-03. Jet Black
-04. This Is War(   Читать дальше...   )Жанр: Indie Pop Rock, Electronic Rock, SynthpopПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A5F5BD34EF90026F9C5527D8F6D054F51D6E162
 ```
 
 

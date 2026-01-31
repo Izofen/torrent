@@ -1,3 +1,192 @@
+###  Публикация: 1120763   (800551) от 02.04.2017
+
+Людмила Николаева и ансамбль 'Русская душа' - Сирень цветёт (1997) [FLAC|Lossless|image + .cue] <Folk-Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весной Волга разольётся
+02. Гони, ямщик
+03. Это было давно
+04. Вы не вейтесь, чёрны кудри(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 00:54.38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C97F49CC7D9D89EC37415D8A18C1000FA899438
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121069   (800552) от 02.04.2017
+
+Nick Cave & Warren Ellis - Hell or High Water / Любой ценой (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Cave & Warren Ellis - Comancheria (02:05)
+02. Townes Van Zandt - Dollar Bill Blues (03:01)
+03. Nick Cave & Warren Ellis - Mama's Room (02:49)
+04. Ray Wylie Hubbard - Dust of the Chase (05:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B6089A73942D97E7935B6E0FB370AAD026222C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273432   (800573) от 01.01.2019
+
+Mogwai - Kin (2018) Original Motion Picture Soundtrack [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Post Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eli's Theme (03:22)
+02. Scrap (02:50)
+03. Flee (04:56)
+04. Funeral Pyre (03:18)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Post RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A0C139755CCEBA8747434C407B4544FA8C4872
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120969   (800615) от 02.04.2017
+
+Alex Lucas & Olan Mill - Tramuntana (2016) [MP3|320 Kbps] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800615.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tramuntana (3:35)
+2. La Riera (7:40)
+3. Carpe Diem (1:17)
+4. Ibro (2:54)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160A13A15B43FCDD1D79B95B09133433FD2DEB25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506245   (800976) от 30.10.2021
+
+Eguana & Qeight - The Book of Changes (2021) [MP3|320 Kbps] <Electronic, Downtempo>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_800976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peace and Love
+02. Wishmaster
+03. Genesis
+04. Deep Revelation(   Читать дальше...   )Жанр: Electronic, DowntempoПродолжительность: 01:03:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5444F526FF5F7C5AC0C21A813519F71CECC04944
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506178   (801041) от 30.10.2021
+
+Sax Project - Saxo and Movies (2011) 3CD [MP3|320 Kbps] <Easy Listening, Sax>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Heart Will Go On (From "Titanic")
+02. Everything I Do, I Do It for You (From "Robin Hood: Prince of Thieves")
+03. Beauty and the Beast (From "Beauty and the Beast")
+04. I Will Always Love You (From "The Bodyguard")(   Читать дальше...   )Жанр: Easy Listening, SaxПродолжительность: 07:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D970678FC89FCD425B99DABC5D89154D22D22B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199485   (801080) от 16.01.2018
+
+Jon Thebur - Sansula (2017) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Beginning (4:28)
+02. Finding And Founding (4:49)
+03. Long, Long Trip (4:28)
+04. Inside (4:27)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0042972EB5B3FBBEAD846A7532803E87BEBC7D1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199611   (801093) от 16.01.2018
 
 Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kbps] <New Age>
@@ -506,195 +695,6 @@ David Arkenstone - Deep Sleep (2017) [MP3|320 Kbps] <New Age, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05A861CF123BBA58EE8B00ECC252D42EBFDE8DB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119772   (803268) от 30.03.2017
-
-Rupert Gregson-Williams - Hacksaw Ridge / По соображениям совести (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Okinawa Battlefield (03:59)
-02. I could Have Killed Him (02:20)
-03. A Calling (02:42)
-04. Pretty Corny (01:44)(   Читать дальше...   )Жанр: Soundtrack, Score
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:546D0AD7B232BF85D77BF682CA8F9DEC572F56EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119779   (803281) от 30.03.2017
-
-Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rusalka (04:52)
-02. Portrait (02:57)
-03. Lake Ritual (01:08)
-04. Red Star (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54071F9EC1A3D68F0285239369D663A9BE0694D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119675   (803351) от 30.03.2017
-
-Людмила Николаева и ансамбль "Русская душа" - Нетронутая ягода (2003) [APE|Lossless|image + .cue] <Folk-Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_803351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рыжая метелица
-02. В тихую лунную ночку
-03. Нетронутая ягода
-04. Ухарь купец(   Читать дальше...   )Жанр: Folk-PopПродолжительность: 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B93FCD8BBDCED06B48BD07D2BA89A201D79876
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119688   (804922) от 29.03.2017
-
-Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundtrack) (2016) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nada - Senza un perchè (02:46)
-02. Andrew Bird - Logan's Loop (01:11)
-03. Jefferson Airplane - Blues from an Airplane (02:13)
-04. Lele Marchitelli - The Knowledge (01:59)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:35:14 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4BAC570095984EA6DA9DE30A5EEDDA6F944EB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119710   (804999) от 29.03.2017
-
-Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title Terminator 2 Theme (01:57)
-02. Sarah On The Run (02:33)
-03. Escape From The Hospital (04:36)
-04. Desert Suite (03:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE23A795F013FD854A89C5998CDDFACB105042B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119709   (805005) от 29.03.2017
-
-Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title Terminator 2 Theme (01:57)
-02. Sarah On The Run (02:33)
-03. Escape From The Hospital (04:36)
-04. Desert Suite (03:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599F7DA1C0FE4B50D09778150BF6ED5C8285500E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119784   (805006) от 29.03.2017
-
-Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_805006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildlands (04:05)
-02. Night Encounters (05:35)
-03. Koani Salt Flats (00:53)
-04. Hunting La Santera (03:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB40C1AF89EF560FC9072B84A1BA72631F28F15B
 ```
 
 

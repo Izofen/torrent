@@ -1,3 +1,30 @@
+###  Публикация: 1464186   (1019958) от 21.04.2021
+
+VA - Deep House Relax 2 (2021) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019958.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Hook, Rene - No More Lies (Tosel & Hale Remix) (7:48)
+002. Deepjack - Can't Stop (Original Mix) (7:04)
+003. Sako Isoyan, Irina Makosh - Dreamer (7:03)
+004. A-Mase, Sharliz - My Love (6:45)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A7D1CAE5FF8AC4D9F9D5C0B68924C45A11E3CF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463541   (1020055) от 20.04.2021
 
 VA - Best 80s Disco Hits 3 (2021) [MP3|320 Kbps] <Pop, Disco>
@@ -668,33 +695,6 @@ VA - Brighter Day: Pop Spring Collection (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97FC16A4B67C0C935B63D972D95AA94630D065A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462442   (1021224) от 14.04.2021
-
-VA - Vocal Synthwave Retrowave 1 (2021) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Color Theory - This Whole Nothing (4:02)
-02. Modeling - Nothing Unexpected (5:54)
-03. Space March - It's Not Over Yet (4:53)
-04. Primo - Do It Again (3:17)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 05:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC92FC50AD7E47E98F3AD711A9D8D73A02A3AD4
 ```
 
 

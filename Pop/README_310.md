@@ -1,3 +1,81 @@
+###  Публикация: 1497473   (864877) от 22.09.2021
+
+Miko Vanilla - Vanilla (2021) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless LoveЖанр: DiscoПродолжительность: 01:25:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7889D9BE4AA6D79F642398662626857A736A77C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497542   (864945) от 22.09.2021
+
+Sergio Y Estibaliz - Beans (1979) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stay On The Line (4:20)
+02. Tonight Is The Night (5:02)
+03. Asi Como Asi (3:32)
+04. Little Maggie (3:56)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE3ECFD1B0C92A8A334898108CEC2B0DB9A91B3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1375578   (865257) от 14.04.2020
+
+SHLAKOBLOCHINA - FATALITY (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_865257.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Новая сила киски (feat. FEARMUCH)
+2. Самолетная
+3. Х**вый карпарат
+4. Не тревожь папайю(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE80673EB1C8367E2DE0C731FF5A20740D12199
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375577   (865385) от 14.04.2020
 
 Винтаж - Навсегда (2020) Special Version [MP3|320 Kbps] <Pop>
@@ -617,88 +695,6 @@ Captain Jack - The Captain's Revenge (1999) [FLAC|Lossless|tracks] <Electronic, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:660321674039F7B8DCE8687FD3DF0FE2505ADB60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998126   (870205) от 19.03.2016
-
-VA - Number 1's: The Ultimate Collection (2014) 5CD [MP3|320 кб/с] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870205.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжая хорошую традицию и откликаясь на просьбы одноклубников представляю этот бокс сет в МП3. Ссылку на релиз в lossless найдете внизу раздачи.
-Здесь на 5 дисках собраны 100 хитов, которые  достигли столь желанной для каждого исполнителя вершины топа Великобритании в период с 60-х по 2000-е годы.CD1 - 60s:
-01. Marvin Gaye - I Heard It Through The Grapevine  (3:11)
-02. The Foundations - Baby, Now That I've Found You  (2:56)
-03. Diana Ross & The Supremes - Baby Love  (2:34)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA7951B159787D13BDFB6099E8C1FBCD57B45E66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998237   (870279) от 19.03.2016
-
-Annie Lennox - Cold + (1992) 3CD Box set, Singles, Japanese Edition, 1993, BMG Victor [FLAC|Lossless|image + .cue] <Pop, Adult contemporary>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold [04:25]
-02. Why (MTV Unplugged) [05:07]
-03. The Gift (MTV Unplugged) [04:41]
-04. Walking On Broken Glass (MTV Unplugged) [04:01]Жанр: Pop, Adult contemporaryПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C71C6843F58CD3462384C95A9C23368624578907
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998399   (870319) от 19.03.2016
-
-She Is We (ex. He Is We) - War (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boomerang 03:52
-02. Monster 03:51
-03. Better Now 04:14
-04. Crazy Heart 02:58(   Читать дальше...   )Жанр: Alternative Pop, Indie PopПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DAA8BF13161F520A1C52E84472FB872CDADFE1
 ```
 
 

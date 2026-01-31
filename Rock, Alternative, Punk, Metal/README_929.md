@@ -1,3 +1,329 @@
+###  Публикация: 1536732   (672886) от 13.03.2022
+
+De-Arrow - De-Arrow (2018) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock 'N' Roll Nights (3:47)
+02. We've Got The Wings (4:27)
+03. First Break Of The Heart (4:30)
+04. Feelin' Fine (4:03)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E90F9ABE9C8DEA81CF89E0E564737893001A6AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536755   (672891) от 13.03.2022
+
+Obsidian Black - Judgement Day (2022) EP [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Life in a Beautiful Storm (04:23)
+02. Judgement Day (05:16)
+03. Lights in the Dusk (Re-Recorded) (03:59)
+04. Gates of Babylon (03:46)(   Читать дальше...   )Жанр: NWOBHM, Heavy MetalПродолжительность: 00:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C55B1A8B216F6F013F0E985231A1DC9A5A1F33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536574   (672895) от 13.03.2022
+
+Doom Machine - Somewhere, Between, the Truth and the Void (2022) [MP3|320 Kbps] <Heavy Metal, Doom Metal, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude To (00:35)
+02. The Void (07:33)
+03. Backlash (05:26)
+04. Never Look Back (03:29)(   Читать дальше...   )Жанр: Heavy Metal, Doom Metal, Stoner MetalПродолжительность: 00:55:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C5321DE8081FD420CEBD82B2F0FB37826DB6EE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536656   (672898) от 13.03.2022
+
+Bastard of Loran - Beckoning the Red Moon (2021) [FLAC|Lossless|image + .cue] <Symphonic, Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embraced by Her Queer Scent 04:34
+02. Blood Rapture Under Twilight 04:31
+03. The Hunter 05:59
+04. Beckoning 03:03(   Читать дальше...   )Жанр: Symphonic, Melodic Black MetalПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D4BFBC0E3117D151F77237CAC50ABEE301A696
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136513   (673140) от 23.05.2017
+
+The Sensational Alex Harvey Band - Hot City: The 1974 Unreleased Album (2009) [FLAC|Lossless|image + .cue] <Glam-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vambo [0:04:46.06]
+02. Man In The Jar [0:05:06.00]
+03. Hey You [0:00:43.54]
+04. Long Haired Music [0:05:05.06](   Читать дальше...   )Жанр: Glam-rockПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C28D26D53F7909FAD9B259BFB132649BF76983
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 508373   (673169) от 13.06.2012
+
+Kasan - Drown (2012) [MP3|320 кб/с]<Instrumental Post Sludge>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drown 01:48
+ 02. The Battling Eels Of Antibes 08:57
+ 03. An Emerald Dream 10:39
+ 04. Mindshelter 11:48
+ 05. Hydroman Vs That Sea 09:26
+ 06. Float 02:472012Жанр: Instrumental Post SludgeПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED2B3DC02AA4FD193912A0AD67FDFCAE483985C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940652   (673190) от 05.05.2018
+
+Parkway Drive - 6 Альбомов (2005-2018) [FLAC|tracks|Lossless]<Metalcore, Melodic Hardcore, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673190.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 - Killing With A Smile
+2007 - Horizons
+2010 - Deep Blue
+2012 - Atlas(   Читать дальше...   )Жанр: Metalcore, Melodic Hardcore, Heavy MetalПродолжительность: 04:21:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47623BDD62FB73722FB5BBA47C1C601BCDA05AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136441   (673237) от 23.05.2017
+
+Rabbitt - A Croak and a Grunt in the Night (1977) 2006, Remastered [APE|Lossless|image + .cue] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T.C. Rabin In D-Minor [0:00:25.40]
+02. I Sleep Alone [0:02:52.50]
+03. A Croak & A Grunt In The Night [0:02:36.50]
+04. Everybody's Cheating [0:04:09.09](   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C56B347E20F5CA8F8991961A9E60604747F0AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223574   (673309) от 05.05.2018
+
+Nimrod - Return to Babylon (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night of the Witches 03:57
+02. I Am 03:10
+03. Return to Babylon 01:28
+04. Broken Wings 03:51(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B45C836868E88887F6671D34B71E851DCBC9C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 677691   (673643) от 09.07.2013
+
+Louna - Behind A Mask (2013) [FLAC|image + .cue]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_673643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System Destroys [03:59]
+ 02. Fight Club [04:31]
+ 03. Business [03:57]
+ 04. My Rock n Roll [03:59](   Читать дальше...   )Жанр: Alternative Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030335   (673923) от 30.06.2016
+
+Gojira - Magma (2016) [MP3|320 Kbps] <Progressive Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673923.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Shooting Star
+2. Silvera
+3. The Cell
+4. Stranded(   Читать дальше...   )Жанр: Progressive Metal, Groove MetalПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0992D166BD00B8C01665A45108E76EE8CD48956D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290896   (674071) от 22.03.2019
+
+Lacrimosa - Zeitreise (2019) 2CD [MP3|320 Kbps] <Symphonic Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_674071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ich bin der brennende Komet
+02. Lichtgestalt
+03. Bresso
+04. Nach dem Sturm(   Читать дальше...   )Жанр: Symphonic Gothic MetalПродолжительность: 02:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06255E7E4BA51D523347B08654A0FA029BAE008
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290968   (674191) от 22.03.2019
 
 Whitesnake - Slide It In (1984) The Ultimate Special Edition 6CD, Remastered, 2019, Rhino Records [MP3|320 Kbps] <Hard Rock>
@@ -372,344 +698,6 @@ magnet:?xt=urn:btih:B44A8FF6DD1C261CC181D41707E52D646B4B6896
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71108C904370F66FA7B723D095816E93A305D1B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030305   (674793) от 30.06.2016
-
-Jeff Liberman - Songwriter / Musician (2016) [FLAC|Lossless|tracks] <Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  This Mystery    03:26
-02.  Euphoria    04:00
-03.  These Blues    04:02
-04.  MBR    02:30(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C007AA8D34710A3D959AAFAC14C262A00B49651
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030364   (674803) от 30.06.2016
-
-Omen - Hammer Damage (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hammer Damage
-2. Chaco Canyon
-3. Cry Havoc
-4. Eulogy(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C240CB005256FAD4AC13D93D72160CC9D8827CBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030531   (674812) от 30.06.2016
-
-Dramatica - Fall Of Tyranny (2016) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gallows
-02. Cognitive Dissonance
-03. It's Alive
-04. One Day Closer To Death(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8271F32D06CD0B64F0FA38EA92D7378DBFFFEBEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509526   (674881) от 12.06.2012
-
-Korai Orom - 11 albums (1995-2010) [FLAC|Lossless] <Psychedelic / Progressive / Space Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qkori (05:11)
-02. Dalmadala (05:51)
-03. Emlékszel? (04:41)
-04. Kohó (09:56)
-05. Vibra (06:57)
-06. Partyzán (04:54)
-07. Copyright People (07:02)
-08. Kivezető (05:02)1995-2010Жанр: Psychedelic / Progressive / Space Rock, AmbientПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509723   (674885) от 12.06.2012
-
-The Smashing Pumpkins - Oceania (2012) [MP3|320 кб/с (WEBRip)]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quasar
-02. Panopticon
-03. The Celestials
-04. Violet Rays
-05. My Love Is Winter
-06. One Diamond, One Heart
-07. Pinwheels
-08. Oceania
-09. Pale Horse
-10. The Chimera(   Читать дальше...   )2012Жанр: Alternative RockПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE0BDFE29F203F3DB8E29F0058512F95A456DFBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135896   (674899) от 22.05.2017
-
-Kobra And The Lotus - Prevail I (2017) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gotham
-02. Trigger Pulse
-03. You Don't Know
-04. Specimen X (Mortal Chamber)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF0F3A474DDEAF41CB691623E5E01975BA129B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536372   (674977) от 12.03.2022
-
-VA - Women in Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cranberries – Zombie (05:07)
-02. Evanescence – Bring Me To Life (03:55)
-03. 4 Non Blondes – What's Up? (04:55)
-04. Bishop Briggs – River (03:34)(   Читать дальше...   )Жанр: RockПродолжительность: 01:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA5DFD698AF64C048305FA9D8DA9805183F8C7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030541   (675007) от 30.06.2016
-
-Mental Coma - Fragments Of Democracy (2016) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mental Enslavement
-02. Grotesque Reality
-03. Civilized Abuse
-04. Profitable Killings(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:46:20 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA216E23E63C00218AA851DFCDF6685D0C552D7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030545   (675009) от 30.06.2016
-
-Reactory - Heavy (2016) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Thanatos (Fumigation From Manna)
-02. To Hypnos (Fumigation From Poppies)
-03. Deep Tranqulility
-04. Shrines Of The Forgotten Gods(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AD7EFCC5F1692658B6EF837084D51F2FFC537F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536346   (675016) от 12.03.2022
-
-Radioactive - X.X.X. (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monkey on Our Backs (feat. Jerome Mazza)
-02. The Deed is Done (feat. Robin McAuley)
-03. Remember the Ghosts (feat. Robbie LaBlanc)
-04. Written in the Scars (feat. Christian Ingebrigtsen)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B3E9C95803568B1F5FC948FB81599A2358E1C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136461   (675058) от 22.05.2017
-
-HeadCat - Walk The Walk... Talk The Talk (2011) [MP3|320 Kbps] <Rock & Roll, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Beat
-02. Say Mama
-03. I Ain't Never
-04. Bad Boy(   Читать дальше...   )Жанр: Rock & Roll, RockabillyПродолжительность: 00:27:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A833CBA99B348A5212FCB1D895BEAEDD819FF3FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509078   (675078) от 12.06.2012
-
-Grails - 8 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Psychedelic, Ambient, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_675078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Primitive (05:28)
-02. All The Colors Of The Dark (04:07)
-03. Corridors Of Power (03:54)
-04. Deep Politics (05:38)
-05. Daughters Of Bilitis (03:24)
-06. Almost Grew My Hair (08:03)
-07. I Led Three Lives (08:48)
-08. Deep Snow (07:20)2003-2011Жанр: Post-Rock, Instrumental, Psychedelic, Ambient, ExperimentalПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-нет
 ```
 
 

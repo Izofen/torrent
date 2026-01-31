@@ -1,3 +1,30 @@
+###  Публикация: 1840081   (1047173) от 03.12.2025
+
+Театр Одного Актера - Белый свет (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:00:48]
+02. Белый Свет [00:04:47]
+03. Зверь в темноте [00:04:12]
+04. Убийца [00:03:37](   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82209D014250C78EBD3E9A39ABE90A986C26F58A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841151   (1047788) от 09.12.2025
 
 Воскресение - Концерт В Театре На Таганке (2022) 2 x CD, Album, Limited Edition, 2025 [FLAC|Lossless|image + .cue] <Rock>
@@ -241,7 +268,7 @@ magnet:?xt=urn:btih:2FA6DA46B829EAEB9490927E15DB5675E6549121
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845696   (1050930) от 
+###  Публикация: 1845696   (1050930) от 02.01.2026
 
 Rubicon - Mental Monsters (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Heavy Metal>
 
@@ -479,6 +506,140 @@ magnet:?xt=urn:btih:0DD91780A6E22214CE4DC367FE99DD730424FB95
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6833D3E03F0993777C976AC50B1F0AD14B742842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850147   (1053956) от 
+
+Аквариум - Территория (2000) Compilation [FLAC|Lossless|image + .cue] <Rock, Folk, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горный Хрусталь 4'06
+02. Под Мостом Как Чкалов 4'47
+03. Последний Поворот 2'40
+04. Рок'Н'Ролл Мёртв 4'56(   Читать дальше...   )Жанр: Rock, Folk, AcousticПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A1D05EAA7F447BBE68016E1B15D79E095E6ADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850027   (1054033) от 
+
+polnalyubvi - Песнь Нимфеи (2026) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Девочка с Севера [00:03:44]
+02. Ледяная [00:02:51]
+03. Я иду звёздной тропой [00:03:32]
+04. Рассказ теней [00:02:32](   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B84B7E0773B3CEB304419160F116DB83D11059
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849996   (1054034) от 
+
+Ангел-хранитель - Знахарь путь крови (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Metal, Horror-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:08]
+02. Берег мертвых деревьев [00:03:26]
+03. И всюду тьма [00:04:19]
+04. Сумерки богов [00:03:46](   Читать дальше...   )Жанр: Heavy-Metal, Horror-PunkПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C260A506CD29716F757DC4CDF51AF921422B5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850303   (1054212) от 
+
+Аквариум - А+ (2013) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054212.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. Как Движется Лед 3'49
+2. Молитва И Пост 3'27
+3. Рухнул 4'47(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29A5D6B0BFA70DFE9367E0B59FEB50BE6F3C51C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850613   (1054699) от 
+
+Мёртвая Вера - 2 Albums (2025-2026) [FLAC|Lossless|WEB-DL|tracks] <black-metal, death-metal, doom-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2025 - Запечатлённый дьявол
+2026 - Не ври мне, что всё будет хорошоЖанр: black-metal, death-metal, doom-metalПродолжительность: 2 CD, 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B44F2BD134987795C014798D7628EF73714D4B5
 ```
 
 

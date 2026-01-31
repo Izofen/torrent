@@ -1,3 +1,30 @@
+###  Публикация: 1216070   (752943) от 29.03.2018
+
+VA - Girls Romances vol.3 (2018) [MP3|192-320 Kbps] <Pop, Ballad, Blues-Rock, Chillout, Deep House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julia Samoylova - Flame Is Burning
+02. Beth Hart - Picture In A Frame
+03. The Cranberries - Why
+04. Bonnie McKee - Stars In Your Heart(   Читать дальше...   )Жанр: Pop, Ballad, Blues-RockПродолжительность: 02:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AEB9C32244648232228DCFAC380A8FA1E56B7C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216075   (753056) от 29.03.2018
 
 VA - Deep House - Slow Motion (2018) [MP3|320 Kbps] <Deep House>
@@ -665,33 +692,6 @@ VA - Romantic Soul: Popular Lyric Collection (2020) [MP3|320 Kbps] <Romantic, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28708B16CDC416AF31C0AF766F0068F414B38DD7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395251   (755286) от 10.07.2020
-
-VA - This is Rock Blues folk country (2020) [MP3|320 Kbps] <Rock, Blues, Country>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cream - Sunshine Of Your Love
-02. The Doors - Roadhouse Blues
-03. Jimi Hendrix - Purple Haze
-04. Lynyrd Skynyrd - Sweet Home Alabama(   Читать дальше...   )Жанр: Rock, Blues, CountryПродолжительность: 06:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E88DDD0750F2710FDCFC7BA90AF02DC71A75C1
 ```
 
 

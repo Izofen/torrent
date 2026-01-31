@@ -1,3 +1,36 @@
+###  Публикация: 552905   (446225) от 27.09.2012
+
+VA - Рашн Дэнс на DFm (2012) [MP3|256 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J'Well & Dmitry Eremyan - Маруся (Radio Edit)
+02. Max Vishnevsky - Кадриль (2012 mix)
+03. Ruslan Nigmatullin - La Cucaracha (Radio Mix)
+04. Братья Грим - Парашюты (DJ Aleksey Rubcoff Remix)
+05. Юлия Савичева - Сердцебиение (DJ Tarantino Remix)
+06. DJ Niki feat. Soda - Красивые слова (Radio Edit)
+07. DJ Vengerov feat. Сати Казанова - Буэнос-Айрес (Remix)
+08. Roma Kenga - Ты Будешь Счастливои? (Anton Orf & Dj Gladiator Radio Edit)
+09. DJ Smash - Young Hearts (Original Mix)
+10. Саша Зверева - Схожу С Ума (DJ Kostas & DJ Yonce Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B184D336B10752947E8F46AE4BDCD2A6B6CFE4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061698   (446244) от 11.10.2016
 
 VA - New Italo Disco Music (2016) [MP3|320 Kbps] <Pop, Italo Disco, Hi-NRG, Synthpop, Dance>
@@ -701,39 +734,6 @@ VA - Инструментальная музыка (2012) vol. № 83 [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF7C510A4D9E6BDB5A16BF03701E895DAD921EE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550034   (448168) от 26.09.2012
-
-VA - Инструментальная музыка (2012) vol. № 81 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_448168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.Marradi - Rain And Tears
-02. T.Timmermans - Andrea With The Flowered Bag
-03. H.Marvin & The Shadows - Riders In The Sky
-04. Mario Battaini - Malaguena
-05. С.Панкратов & Б.Леготин - На тот большак
-06. The Ventures - Tequila
-07. R.Clauderman - I'm Not In Love
-08. Karunesh - Expansion
-09. Русские ДиДжеи - Чародеи
-10. Antonio De Lucena - Luceros(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39A5C5C849843A7BEC4F4CC87813E457CE47150
 ```
 
 

@@ -1,3 +1,36 @@
+###  Публикация: 544332   (491835) от 07.09.2012
+
+VA - Number 1 Hits Of The 1950's (2008) [MP3|320 кб/с]<Pop, Rock, Oldes, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_491835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Laine - I Believe [02:10]
+02. Eddie Calvert - Cherry Pink and Apple Blossom White [02:24]
+03. Johnnie Ray - Yes Tonight, Josephine [02:31]
+04. Andy Williams - Butterflys [02:22]
+05. David Whitfield - Cara Mia [03:10]
+06. Tony Bennett - Strangers in Paradise [03:05]
+07. Tennessee Ernie Ford - Sixteen Tons [02:37]
+08. Doris Day - Que Sera Sera [02:05]
+09. Guy Mitchell - She Wears Red Feathers [03:08]
+10. Kitty Kallen - Little Things Mean Alot [03:00](   Читать дальше...   )Жанр: Pop, Rock, Oldes, RetroПродолжительность: 01:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7B465C0C9BBA80A93B9F3DE7341203FFA156CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544306   (491837) от 07.09.2012
 
 VA - Ночной клуб сентября (2012) [MP3|320 кб/с]<Dance, Club>
@@ -692,33 +725,6 @@ VA - Best tracks of Transitions by John Digweed on Kiss 100. Volume 1 - 2000-200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE6EC89543590D36296EE45E4F4E74E646EBC697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318484   (494611) от 06.08.2019
-
-VA - Лучшие Trance треки Ver.9 (2019) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miroslav Vrlik - Sundown (Original Mix) 6:14
-02. Mark Sherry - Luminosity Curve (Extended Mix) 5:27
-03. Darren Porter feat. Ana Criado - Dream Like I Do (Extended Mix) 7:46
-04. Roman Messer feat. Cari - Serenity (Extended Mix) 6:26(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting Trance, Vocal TranceПродолжительность: 05:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEF622A61AEEBE82C38E824AFF6096951BFCD79F
 ```
 
 

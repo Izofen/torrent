@@ -1,658 +1,672 @@
-###  Публикация: 1275186   (791035) от 10.01.2019
+###  Публикация: 1276583   (788224) от 16.01.2019
 
-Анна Кроули Реддинг | Про GOOGLE (2018) [FB2]
+Twilight Force - Heroes of Mighty Magic (2016) [FLAC|Lossless|tracks + .cue] <Power Metal>
 
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791035.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Можно ли изменить мир? Конечно! Особенно если у вас есть хорошая идея и желание ее исполнить – на своем примере это доказали два студента Стэнфордского колледжа, Ларри Пейдж и Сергей Брин, которые мечтали изменить мир и собрать всю информацию воедино – в цифровом виде. Идея, которая сейчас кажется такой простой, а тогда была инновационно новой, и казалось бы, невоплощаемой (   Читать дальше...   )Жанр: Интернет-бизнес, Истории успеха, Просто о бизнесеФормат: FB2
+01. Battle of Arcane Might (5:07)
+ 02. Powerwind (5:17)
+ 03. Guardian of the Seas (5:39)
+ 04. Flight of the Sapphire Dragon (5:40)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA4852541785F9AD0510D271509C64BDAF02535D
+magnet:?xt=urn:btih:B906EDC459C65ABDA53FD2C55669F524C914ADE7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274744   (791036) от 10.01.2019
+###  Публикация: 1276391   (788225) от 16.01.2019
 
-Борис Карлов | Очертя голову, в 1982-й (2018) [MP3]
+Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791036.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-: Известный писатель, ресторанный лабух и сидящая на игле проститутка. Три судьбы, три жизни катятся к черту по наклонной. Но что, если вернуться в прошлое и все исправить?! Если такое стало вдруг возможно? А как же эффект бабочки? Малейшая неточность повернет весь ход истории! Но это другая вселенная и другая история. Эту, другую историю, можно ломать о колено. (   Читать дальше...   )Жанр: фантастика попаданецПродолжительность: 11:09:14
+01. Alger 69
+02. Day by Day
+03. My Girlfriend
+04. Away Alive(   Читать дальше...   )Жанр: Vocal Jazz, World, PopПродолжительность: 00:34:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FE42443A3E512C607A3238A390B9142DB67766C
+magnet:?xt=urn:btih:C6B2714925AFF218FCB80208184E5DE2BF94BCA4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275273   (791037) от 10.01.2019
+###  Публикация: 1276348   (788226) от 16.01.2019
 
-Николай Беляев | Седьмая сестра (2017) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто попаданцы отлично осведомлены о мире, в который попадают. Но представьте, что отправившаяся в разведку группа бойцов Красной Армии после взрыва попадает... куда? В ад... или просто в другой мир?
-Данное произведение - художественное переложение книги Shadowdale: The scouring of the land (вселенная Forgotten Realms), написанной Ричардом Бэйкером, Эриком Л.Бойдом (   Читать дальше...   )Жанр: Попаданцы в другие миры, Эпическое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711C08A44A157B38F7310B09F7E982221A7E5B2E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275148   (791038) от 10.01.2019
-
-Шрифты - Creative Market - SKATISTA 80% Greek+Cyrillic - 236715 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять типов, которые сделают ваш дизайн более увлекательным, вдохновленным скейтбордингом и идеально подходящим для экстремальных видов спорта.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01A97FC59204C05086465BFCA8F9A5FAB8D1D67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274974   (791039) от 10.01.2019
-
-Андрей Кивинов | Опережая выстрел (Книга 1). Контрснайпер (2018) [MP3, Михаил Мурзаков]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюда возьмут не каждого, здесь свои традиции и свои законы. Свои правила приличия и понятия о долге. Отряд милиции специального назначения, или просто СОБР. Они умеют все, они не знают слова «невозможно», и лучше не вставать на их пути. Они действуют со скоростью пули и бьют без промаха. И кому, как не им, известно – что быстрее выстрела и поражает гораздо сильнее… (   Читать дальше...   )Жанр: Боевики, Полицейские детективыИздательство: StorySide ABПродолжительность: 09:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC16AE591C0F32B57C022F91E3C41480C469E63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275282   (791040) от 10.01.2019
-
-Мари Бреннан | Мемуары леди Трент. Путешествие на «Василиске» (2018) [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третий роман цикла «Естественная история драконов».
-
-Те, кто знаком с блистательной и скандальной карьерой натуралистки-драконоведа Изабеллы Кэмхерст, возможно, полагают, будто уже знакомы со всеми подробностями ее исторического путешествия на борту Флота Его Величества Исследовательского Судна «Василиск», однако подлинная история этого поучительного, ужасающего, (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Книги про драконовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E928551889549C5E4B00431F820A964A96F5DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275136   (791041) от 10.01.2019
-
-Opera 57.0.3098.116 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4A9AD1D8399A99F9C972B0C5781ADBAD02EE43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275145   (791042) от 10.01.2019
-
-Шрифты - Creative Market - Miletta typeface with ligatures - 313565 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Miletta - красивый рукописный шрифт, написанный настоящей кистью и тушью. Отсканированный с любовью и адаптирован для использования в качестве шрифта. Автор делал много лигатур и альтернатив, поэтому Ваша творческая работа будет веселой и милой.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3963C6A1736F9AAF2A803E432AFF9C638D55BDF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275144   (791043) от 10.01.2019
-
-Шрифты - Creative Market - Laqonic 4F Unicase (Family) - 526666 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791043.jpg" />
-</div>
-
-
-###  Подробнее
-
-Laqonic 4F Unicase - Простой и в тоже время интересный лаконический шрифт для Ваших будущих надписей.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDA096B8286425B759547A348AADE2567BAA6758
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275143   (791044) от 10.01.2019
-
-Шрифты - Creative Market - Gora – full pack - 781102 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gora - Многоязычный симпатичный, оригинальный шрифт с засечками в 5 видах: обычный, жирный, обычный трафаретный, трафаретный полужирный и грубый. Так же включает в себя множество функций: лигатуры, дроби, цифры, нижние и верхние индексы, стрелки и символы валют. Отличный выбор для заголовков и небольших объемов текста, логотипов и иллюстраций, этикеток и упаковки.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB286F04766C38B6F25CD7F6ED73DDEDA150B3A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275088   (791045) от 10.01.2019
-
-Шрифты - Creative Market - Bubble Kids - 597557 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bubble Kids - Забавный улыбающийся шрифт, включает простые и выделенные буквы и юмористический стиль, чтобы направлять водяные пузыри в письме, типографская форма, вдохновленная стилем брызг воды.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2776F9CF316326D2303946FB23607EBF3532C073
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275240   (791046) от 10.01.2019
-
-Labyrinths of the World 9: Lost Island (2019) [En] (1.0) Unofficial [Collector's Edition]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда опасные катастрофы по всему миру совпадают с исчезновением вашего брата, вы отправляетесь исполнить миссию Искателя. Ваше расследование быстро становится ужасным, когда вы обнаруживаете опасного преступника, пытающегося уничтожить миры, а ваш брат помогает врагам! Можете ли вы спасти своего брата и миры во времени?Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1101EB101F303486F1D8CD9CB5B7C54B25B78DEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274753   (791047) от 10.01.2019
-
-Bryan Ferry - As Time Goes By (1999) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791047.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 As Time Goes By
-A2 The Way You Look Tonight
-A3 Easy Living
-A4 I'm In The Mood For Love(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB76396D3CA873C176950026DCEA6FDC2B27D4F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275328   (791048) от 10.01.2019
-
-Reflections of Life 7: Slipping Hope / Отражения жизни 7: Ускользающая надежда (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Страж должен охранять и защищать миры. Ваше первое задание - не дать юноше разбудить свою сестру, которая во сне является хранителем смертоносного магического артефакта. С вашим верным помощником, механической совой, вы наверняка справитесь с любым, даже самым сложным, заданием.Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1BD329046075253A29CCF4BDBC2D47061021EC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201795   (791049) от 27.01.2018
-
-Lane 8 - Little By Little (2018) [FLAC|Lossless|WEB-DL|tracks] <Vintage Progressive House>
+Maayan Nidam - Sea of Thee (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep House, Electronic>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791049.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01/10. Daya (6:18)
- 02/10. No Captain (5:16)
- 03/10. Atlas (5:50)
- 04/10. Clarify (4:00)(   Читать дальше...   )Жанр: Vintage Progressive HouseПродолжительность: 00:55:01
+01. Dust And Dirt (04:06)
+02. Die Sonne Innere (08:00)
+03. Acid Kiss (06:41)
+04. In A Lair Of My Other (05:27)(   Читать дальше...   )Жанр: Tech House, Deep House, ElectronicПродолжительность: 00:51:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CACCA3C4BF01CA9D648EBE6D1E81B7BFE066E2E1
+magnet:?xt=urn:btih:AED58E5BB1A33E1500767831BF62DEA360E9254A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201645   (791050) от 27.01.2018
+###  Публикация: 1276603   (788227) от 16.01.2019
 
-VA - Hed Kandi:Back To Love (1999) [FLAC|Lossless|tracks] <House, Garage House, Deep House, Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.T-Empo - Saturday Night, Sunday Morning (T-Empo Mix) (8:10)
-02.Degrees Of Motion featuring Biti - Shine On (Original 12') (7:09)
-03.Jomanda - Got A Love For You (Hurley's House Mix) (7:35)
-04.Jamiroquai - Space Cowboy (Morales Classic Club Mix) (7:51)(   Читать дальше...   )Жанр: House, Garage House, Deep House, DiscoПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B73CDB5FB9223CDB2C0BA98A908685C1ECEDED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202104   (791051) от 27.01.2018
-
-Эрнест Сетон-Томпсон | История одного волка (1910) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказ для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:280A32283E8EDA24294AF64C74A28E6B107DB670
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201967   (791052) от 27.01.2018
-
-Forrest Fang - Scenes From a Ghost Train (2018) Projekt [FLAC|Lossless|tracks+.cue] <Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scenes from a Ghost Train - I. Five-Mile Crater (05:08)
-02. Scenes from a Ghost Train - II. Koch's Veil (05:35)
-03. Scenes from a Ghost Train - III. A Meeting of Totems (05:31)
-04. Scenes from a Ghost Train - IV. The Pulse of the Stars (05:14)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD121F7FCE00364738B97863A502B24774A9B931
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201711   (791053) от 27.01.2018
-
-VA - DMC Seasons Winter: Trance Uplifting Party (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791053.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Van Dyk & Farhad Mahdavi feat. Sue Mclaren - Together Again
-002. Ram & Darren Porter - The Calling (Grotesque 300 Anthem)
-003. Roman Messer - Lullaby (Original Mix) (Feat. Roxanne Emery)
-004. DJ T.H. & Athema feat. Elyse G. Rogers - Strong Enough(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75522121F0872BAB3778E3D68051E130CB1FA3D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201975   (791054) от 27.01.2018
-
-VA - Ferry Corsten presents Corsten's Countdown January (2018) [MP3|320 Kbps] <Trance>
+VA - Reanimate Music Volume 1 (Mixed by Somna) (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791054.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ferry Corsten  -  Lonely Inside (Extended Ferry Fix)  5:56
-02.  Alpha 9  -  You And I (Extended Mix)  5:38
-03.  BT & Jes  -  Every Other Way (PureNRG Extended Remix)  7:32
-04.  Gabriel & Dresden  -  Sequoia (Original Mix)  7:24(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:32
+01. Anden State - Dogma (Extended Mix)
+02. Formal One - Neon City (Original Mix)
+03. Andrew Bayer feat. Alison May - Immortal Lover (In My Next Life Mix)
+04. Somna & Blu Eyes - Drawn To You (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD86425616CF7F24FC72DEAFE38D442562692392
+magnet:?xt=urn:btih:95FBD9537238B13466B11EE58B89CF17A35A951F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201200   (791055) от 27.01.2018
+###  Публикация: 1276598   (788228) от 16.01.2019
 
-А. П. Селивановский | Творческие задачи пролетарской литературы (1930) [PDF]
+VA - Markus Schulz - Global DJ Broadcast - World Tour Los Angeles (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New World Punx - Torque (Markus Schulz Big Room Reconstruction)
+02. Skyrim - The Song of Dragonborn (Markus Schulz Festival Mix)
+03. Faithless vs. VIZE - Glad You Came from Insomnia (Markus Schulz Mashup)
+04. Virtual Self - Ghost Voices (Markus Schulz Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D3462C725316AE8A2043F894FB2980164D0D9C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276460   (788229) от 16.01.2019
+
+VA - Gym Floor Energy 2019 [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spikaa Feat. Deja - Home (Radio Mix) 3:11
+02. Eros Pandi - Second Chances (Radio Mix) 2:43
+03. Gianni Camelia Feat. Sabrina Christian - Don't Stop The Beat (Luke Db Remix Edit) 2:40
+04. Skelectro Feat. Norah B. And Itto - No Time (Original Mix) 3:13(   Читать дальше...   )Жанр: HouseПродолжительность: 01:24:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870AA17436018D0A5AB8551C2182155C52CAFBFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276492   (788230) от 16.01.2019
+
+Money Pro 2.0.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
+
+Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEC44C6B8CDDFB89AE675B5980AD2F3EA65F129
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276409   (788231) от 16.01.2019
+
+VA - New Music Releases Week 52 of 2018 (2018) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788231.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Altson 45 - Back To You
+002. Clarv - Blizzard
+003. Savoir Adore - When The Summer Ends (Rac Mix)
+004. Bbno$, Y2k, Lewis Grant - Thankful(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3BA139987C8179F64F9469E282BDBBEC5898F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276589   (788232) от 16.01.2019
+
+VA - It's a Cool, Cool Christmas (2000) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grandaddy - Alan Parsons in a Winter Wonderland (02:59)
+02. The Dandy Warhols - Little Drummer Boy (03:12)
+03. The Webb Brothers - Every Day Is Christmas (02:55)
+04. Eels - Everything’s Gonna Be Cool This Christmas (02:48)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92DD6B7AC4362CD5DE30A614B3283CD8BB4C7003
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276576   (788233) от 16.01.2019
+
+Suffocation - Human Waste (1991) EP, 1994, Relapse Records [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infecting the Crypts (4:38)
+ 02. Synthetically Revived (3:38)
+ 03. Mass Obliteration (4:29)
+ 04. Catatonia (3:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5A9576FCDBF253444AE242397AA60BAA43A939
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276471   (788234) от 16.01.2019
+
+KCNcrew Pack 01-15-19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788234.jpg" />
+</div>
+
+
+###  Подробнее
+
+KCNcrew Pack - это огромнейший сборник серийников на софт под Mac OS X с удобной оболочкой для просмотра и поиска. Существует уже очень давно и каждый месяц обновляется!Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: iSerialПоддерживаемая ОС: macOS 10.4 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9238CF9CB909F5CF4CF9054E961DB2D105910D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276482   (788235) от 16.01.2019
+
+Mike LeDonne - The Groover (2010) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock With You [6:59]
+02. Blues For McCoy [6:36]
+03. Little Mary [6:39]
+04. I'm Goona Make You Love Me [8:24](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9BF447F23945057EF04ACB7C8E018B14C179DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276596   (788236) от 16.01.2019
+
+Disgorge (US) - Cranial Impalement (1999) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deranged Epidemic (3:07)
+ 02. Atonement (3:18)
+ 03. Cognative Lust of Multilation (2:41)
+ 04. Period of Agony (3:15)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146FF9AE43C9B9F3854EED2ECAB2AC08684BE978
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203142   (788237) от 02.02.2018
+
+А. Янтарев | Тактика ВКП(б) по отношению к буржуазным и мелкобуржуазным партиям (1928) [PDF]
 
 >>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791055.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предлагаемая вниманию читателя брошюра, посвященная основным вопросам творческой платформы пролетарской литературы, рассчитана на начинающих пролетарских писателей, и в частности на кадры рабочих писателей-ударников, впервые входящих в наше движение и нуждающихся в ознакомлении с сущностью происходящей сейчас творческой дискуссии и с важнейшими творческими лозунгами (   Читать дальше...   )Жанр: История, политология, искусство, литературоведениеФормат: PDF
+Одна из основных задач брошюры — показать, как меньшевики, являвшиеся уже с момента возникновения РСДРП чистейшими оппортунистами, силою вещей должны были сами превратиться, и превратились, в одну из мелкобуржуазных партий, полностью перейдя в лагерь врагов рабочего движения.
+
+Специальная глава брошюры посвящена изложению, правда, по необходимости очень краткому, (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F13AA7C44EF6EA571D03D35E7B8BE25EBB43138E
+magnet:?xt=urn:btih:BBD831DE9A0041AE5AEC409B62114D66ACE0BEDE
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201990   (791056) от 27.01.2018
+###  Публикация: 1203519   (788238) от 02.02.2018
 
-Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+VA - Progressive Psychodelic Trance Vol.2 (Exlusive Tracks) (2018) [MP3|320 Kbps] <Psy Trance, Psychodelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cosmic Tone  -  Spirit Technology (Original Mix)  7:28
+02.  Static Movement & Mindwave  -  Sources (Original Mix)  8:14
+03.  Arunarush  -  Reactivate (Original Mix)  7:28
+04.  Juiced  -  Under The Rain (Original Mix)  5:20(   Читать дальше...   )Жанр: Psy Trance, PsychodelicПродолжительность: 03:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AE25AEC2000311EFFD72F7D465726EEBAF3A98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203279   (788239) от 02.02.2018
+
+VA - Suanda Music Radio Top 25 (January / February) (2018) [MP3|320 Kbps] <Trance, Progressive, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
+02.  Feel  -  The Nutcracker (Original Mix)  3:27
+03.  Aelyn  -  Water & Fire (Ruslan Radriges Remix)  3:49
+04.  Hamzeh & Ahmad Ai  -  Lachrymose (Original Mix)  3:56(   Читать дальше...   )Жанр: Trance, Progressive, Vocal TranceПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D1BAAF1DB7DC988F9F2799ACD69DD1AD7262E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203550   (788240) от 02.02.2018
+
+Freddy  Johnson  And  His  Orchestra - 1933 - 1939 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791056.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Tangerine [05:24]
-02. La Rosita [05:06]
-03. Cocktails For Two [02:44](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:36:41
+01. Sing About The Swanee [03:18]
+02. My Baby's Gone [02:59]
+03. Sweet Georgia Brown [03:11]
+04. Foxy And Grapesy [03:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:12:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A563A1BB6AD7ECABE65EFEC9BA552AAD72CBEBBF
+magnet:?xt=urn:btih:2DC06924F764E70F95A85063ECCD107B95A59DE3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201933   (791057) от 27.01.2018
+###  Публикация: 1502252   (788241) от 22.11.2021
 
-Daniel Avery - Slow Fade EP (2018) Phantasy Sound [FLAC|Lossless|WEB-DL|tracks] <Techno, Drone, Ambient>
+Avira Phantom VPN Pro 2.37.4.17510 RePack by elchupacabra [Multi/Ru]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791057.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Slow Fade (05:31)
- 02. After Dark (04:34)
- 03. Radius (08:03)
- 04. Fever Dream (05:26)Жанр: Techno, Drone, AmbientПродолжительность: 00:23:34
+Avira Phantom VPN — является новым эффективным приложением, которое предлагает все преимущества частных виртуальных сетей в ненавязчивой форме. Разблокируйте запрещенные сайты и сервисы и улучшите безопасность Интернет-подключений с помощью современной и надежной VPN-службы.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1FAA894F789E69712DFDC0EAEC82FF9BDF46172
+magnet:?xt=urn:btih:26EACFCE872905CB1B6363675A49F9C1B4C66CA8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201821   (791058) от 27.01.2018
+###  Публикация: 1093424   (788242) от 22.11.2021
 
-VA - Travel Emotions (20 Chill Out, Lounge, Bossa Tracks) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+F.E.A.R. 2: Project Origin (2009) [Ru/En] (1.05/dlc) Repack Other s [Дополненное издание]
 
->>Electronic
->>Easy listening
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791058.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Room Antigua - La Habana Vieja
-02. The Original Uncle Sam - Wiki Wiki
-03. Accademia Marina - Turkish Melody
-04. Anu Shamane - The Man From Caribe(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:03:08
+F.E.A.R. 2: Project Origin — продолжает популярную серию шутеров от первого лица F.E.A.R. Вас снова ждет захватывающий, пропитанный ужасом сюжет, всепоглощающая атмосфера постоянного необъяснимого страха, реалистичная детализированная графика, новое суперсовременное оружие и множество безжалостных врагов.
+Вечно молодая наводящая ужас девочка Альма вырывается из разрушенной (   Читать дальше...   )Тип издания: RepackРазработчик: Monolith ProductionsЖанр: Action (Shooter, Horror), 1st Person, 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E692116276921296B58C0887991531E462515988
+magnet:?xt=urn:btih:EBF7B755D24E5A7BC986D2D6EA857F6B39D277C6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201791   (791059) от 27.01.2018
+###  Публикация: 641155   (788243) от 22.11.2021
 
-Miles Davis & Stan Getz - Move (1950 - 1952) 2003, Dynamic Entertainment [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+Стервятники / Scavengers (2013) HDRip [VO]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>След.
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791059.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Conception [04:09]
-02. Ray's Idea [05:56]
-03. That Old Black Magic [02:18]
-04. Max Is Making Wax [04:02](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:15:41
+Научно-фантастический фильм про космических искателей «ничейных» товаров, энергии и сокровищ. Когда команда под предводительством Эмерсон находит инопланетный Генератор Хаоса, их ждет неприятная встреча с бывшим партнером — злобным капитаном Джекелем.Производство: США, California PicturesЖанр: фантастика, боевик, триллерРежиссер: Трэвис ЗаривныАктеры: Шон Патрик Флэнери, Джереми Лондон, Луиз Линтон, Келли Вилден, Джэми Стрэйндж, Марк Выстрач, Расселл Ричардсон, Тайлер Поэлль, Джон Ли Амес, Pavlos SkountzouПеревод: Одноголосый любительскийЯзык озвучки: РусскийПродолжительность: 01:33:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E572B1A61BA1DDE3E28BD5B2A15D395943485F5
+magnet:?xt=urn:btih:562A88AADEE5ECEA09809D1EC0E279804A0D104D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201966   (791060) от 27.01.2018
+###  Публикация: 1511760   (788244) от 22.11.2021
 
-The Octagon Man - The Exciting World Of.... (1995) Electron Industries [FLAC|Lossless|tracks] <Electro, Experimental>
+XYZ School, Артем Гансиор | Movie Man (2021) WEB-DL [AD]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_791060.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tunx (05:45)
- 02. The Second Shape (08:10)
- 03. Klunk (07:26)
- 04. Xon (02:38)(   Читать дальше...   )Жанр: Electro, ExperimentalПродолжительность: 01:00:21
+О ХУДОЖНИКАХ ПО ПЕРСОНАЖАМ
+При взгляде на персонажа, созданного талантливым художником, у зрителя немедленно возникает с ним эмоциональная связь — он сразу понимает, что это за герой, включает воображение и домысливает его характер и предысторию.
+НА КУРСЕ ТЫ НАУЧИШЬСЯ:
+Создавать детализированных антропоморфных персонажей(   Читать дальше...   )Производство: XYZ SchoolЖанр: ДизайнПродолжительность: 213:42:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96CC34652F634E85E45ADB703AB9AD5FF059315E
+magnet:?xt=urn:btih:EB64B1D2B961EDF372F1D265F530866E490D36D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351063   (788245) от 22.11.2021
+
+Гарри Поттер: Коллекция / Harry Potter: 8-Film Collection (2001-2011) UHD BDRip [H.265/2160p-LQ] [4K, HDR, 10-bit]
+
+>>Коллекции / *логии
+>>Зарубежное кино (коллекции / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия романов, написанных английской писательницей Джоан К. Роулинг, является летописью жизни молодого волшебника Гарри Поттера и его друзей: Гермионы Грейнджер и Рона Уизли. Все они являются студентами в Хогвартс. Основная фабула истории касается борьбы Гарри против Лорда Волдеморта - темного волшебника, который намеревается стать бессмертными, свергнуть мастера (   Читать дальше...   )Производство: США, Великобритания / Warner Bros. Pictures, Heyday Films, 1492 PicturesЖанр: Фэнтези, Приключения, СемейныйРежиссер: Крис Коламбус, Альфонсо Куарон, Майк Ньюэлл, Дэвид ЙэтсАктеры: Дэниэл Рэдклифф, Руперт Гринт, Эмма Уотсон, Ричард Харрис, Алан Рикман, Мэгги Смит, Робби Колтрейн, Том Фелтон, Мэттью Льюис, Иэн ХартПеревод: Дублированный, Двуголосый профессиональный x4, Многоголосый профессиональный x4, Авторский x6Субтитры: русские (форсированные, полные), английские (полные, для слабослышащих)Продолжительность: 02:32:22 / 02:41:04 / 02:21:44 / 02:37:12 / 02:18:25 / 02:33:32 / 02:26:05 / 02:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94610597C1F2700A757BC9DC82A20D5137C633D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511801   (788246) от 22.11.2021
+
+Farming Simulator 22 (2021) [Ru/Multi] (1.1.1.0/dlc) License FAIRLIGHT
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788246.jpg" />
+</div>
+
+
+###  Подробнее
+
+Farming Simulator 22 – очередная часть серии симуляторов фермера, в которой вас ждет около 400 единиц техники от более сотни реальных бендов и новые сельскохозяйственные культуры, а также смена сезонов. Кроме этого игра предлагает улучшенную оптимизацию, продвинутый искусственный интеллект и поддержку модов от пользователей.Тип издания: LicenseРазработчик: Giants SoftwareЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:573CE994696DC6F458CA68E71129EC6423AA87C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511862   (788247) от 22.11.2021
+
+Тайна Сен-Тропе / Mystere a Saint-Tropez (2021) WEB-DL [H.264/1080p-LQ]
+
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Убийство — это не повод для смеха. Обычно. Но вот попробуйте сдержать улыбку, когда преступление происходит среди харизматичных богачей на курорте Сен-Тропе, а расследование ведет весьма эксцентричный и не самый смышленый сыщик. Мотив есть у каждого, а вот с дедукцией — явно дефицит! Чтобы распутать это дело, горе-детективу придется притвориться дворецким и затеряться (   Читать дальше...   )Производство: Франция, Бельгия | Canal+ (fr), Ciné, Curiosa Films, France 2 Cinéma, France TélévisionЖанр: комедия, криминал, детективРежиссер: Николя БенамуАктеры: Кристиан Клавье, Бенуа Пульворд, Тьерри Лермитт, Жером Коммандёр, Росси де Пальма, Вирджини Хок, Жерар Депардье, Венсан Дезанья, Николя Бриансон, Жиль АльмаПеревод: Дублированный (iTunes)Язык озвучки: РусскийПродолжительность: ~01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92A690E73F0B65C6D833878A6B0601F768BC6F34
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510087   (788248) от 22.11.2021
+
+Мосгаз. Западня (2021) WEBRip (сезон 8, серии 1-8 из 8)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788248.jpg" />
+</div>
+
+
+###  Подробнее
+
+1980 год. Предолимпийская Москва. Перед МУРовцами поставлена задача: не допустить в столице ни одного преступления, очистив город от всех неблагонадежных элементов. К выполнению привлечен даже убойный отдел. Черкасову и его команде поручена борьба с проституцией и «фарцой». Но, вместо этого, Иван Петрович вынужден расследовать одно убийство за другим. В центре событий (   Читать дальше...   )Производство: Россия / Красный квадрат, Студия Русский проектЖанр: детективРежиссер: Сергей ПоповАктеры: Андрей Смоляков, Марина Александрова, Владимир Юматов, Алексей Бардуков, Александр Голубев, Юрий Тарасов, Вадим Андреев, Сергей Угрюмов, Дмитрий Куличков, Александр ФеклистовПродолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56999F15E065E47197BC013D0495D46072C1162A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510971   (788249) от 22.11.2021
+
+Windows 10 Enterprise LTSC 2021: Основные изменения
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_788249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Компания Microsoft выпустила новую версию Windows для долгосрочного канала обслуживания Windows 10 Enterprise LTSC 2021, предназначенную для корпоративных клиентов. Новый выпуск основан на Windows 10 Enterprise LTSC 2019 и включает набор функций, эквивалентный Windows 10, версия 21H2.В отличие от Windows 10 Enterprise LTSC 2019, Windows 10 Enterprise LTSC 2021 включает (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1497915   (859645) от 25.09.2021
+
+VA - Synthwave Dream Collection (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_859645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raiders Of The Lost Arp - Sinetheme
+002. DJ T. - Harem Disco
+003. Kukuzenko - Sweet As Candy
+004. Maxnickel - 2er(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 07:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1C9F513571C91A0EE7CD3D1127A389BB012086
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497908   (859649) от 25.09.2021
 
 VA - Music News vol.134 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,33 +695,6 @@ James Brown - 10 Of The Best (2015) [MP3|320 кб/с] <Funk, Soul, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41FAA5AA9F9858F24730B4D8BCD5D2C5E723D464
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108540   (862581) от 25.02.2017
-
-Livin' Blues - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_862581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shylina
-02. I Came Home At Night
-03. One Night Blues
-04. Sunrise(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:28:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE51AA87096C13B03C9E5B35F23127CF44FA4CAC
 ```
 
 

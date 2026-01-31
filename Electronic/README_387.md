@@ -1,3 +1,30 @@
+###  Публикация: 1391862   (771628) от 22.06.2020
+
+Проект Лазарь (Project Lazarus) - К солнцу, к звёздам (2019) [MP3|320 Kbps] <Synthwave, Vaporwave, Dark Ambient, Chillwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_771628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. К солнцу, к звёздам (3:46)
+02. Я разговариваю с луной (3:34)
+03. Скафандр (3:07)
+04. Будь готов к полёту (4:06)(   Читать дальше...   )Жанр: Synthwave, Vaporwave, Dark Ambient, ChillwaveПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7DAA9A22BCC164343B6500FD192608A06850D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016239   (771730) от 13.05.2016
 
 VA - Enhanced Ibiza 2016 (unmixed tracks) (2016) [MP3|320 кб/с] <House, Electro House>
@@ -656,33 +683,6 @@ Memphidos - Discography 10 Releases (2009-2018) [FLAC|Lossless|WEB-DL]<IDM, Ambi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94843FF0EA30C7BA485D16D8F64833E62A51650D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278156   (773293) от 24.01.2019
-
-VA - Fitness & Jogging Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <House, ElectroHouse, BigRoom>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Maximus - We Rave (Original Mix) 3:47
-02. Raffee - Society (Original Mix) 3:45
-03. Angelo Adinolfi - Wet (Original Mix) 4:59
-04. Axel & Jeizer - You Ready (Original Mix) 4:38(   Читать дальше...   )Жанр: House, ElectroHouse, BigRoomПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3270826F581064A62430447A2CACE41FDB1676A
 ```
 
 

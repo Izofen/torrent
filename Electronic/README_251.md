@@ -1,3 +1,30 @@
+###  Публикация: 1320485   (465519) от 21.08.2019
+
+VA - Bikini Beach, Vol. 3 (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Amisso - Sparks 04:34
+02.Dirty Wild - Game Over 03:56
+03.Grund - Bring Me Up Above (DJ Luciano Remix) 03:43
+04.Lonely DJ - Life is a Rave 04:44(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85B40E35314997683094AB6CBD296F035754156C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246109   (465671) от 09.09.2018
 
 Shinichi Atobe - Discography 7 Releases (2001-2018) DDS, Jadac Recordings [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, House, Minimal, Dub Techno>
@@ -657,33 +684,6 @@ CiM - Series Two (Reissue) (2020) Delsin [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF899642474C713073BCD2CF0AD82543D7938272
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407119   (468602) от 06.09.2020
-
-VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech House, Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tm Shuffle & Kalle-M - Androidien Maailma (07:22)
- 02. Genning - Life Of Faraway Birds (07:07)
- 03. Dan Goul - Automation (07:30)
- 04. Supply-Demand - What Came Before (07:56)Жанр: Tech House, Techno, ElectroПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF33E280B53D236F283E5BA04380A5FC74887973
 ```
 
 

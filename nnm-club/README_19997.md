@@ -1,665 +1,679 @@
-###  Публикация: 1206346   (782519) от 13.02.2018
+###  Публикация: 1209639   (779139) от 28.02.2018
 
-Б.А. Калиникос и др. | Спин-волновые устройства и эхо-процессоры (2013) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены два класса устройств функциональной электроники – спин-волновые устройства обработки сигналов и эхо-процессоры; описаны свойства сверхвысокочастотных спиновых волн в ферромагнитных плёнках; показаны примеры их использования при аналоговой обработке СВЧ сигналов. Даны основы теории магнитного резонанса и характеристика функциональных возможностей эхо-процессоров, (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62856D68DA27048F82D32A68599BD9D4AB8CCFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205962   (782520) от 13.02.2018
-
-Justine - You`re My Sunshine (2000) Single [MP3|320 Kbps] <Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You`re My Sunshine (Radio Version) 3:24
-02. You`re My Sunshine (Extended Mix) 5:15
-03. You`re My Sunshine (Bonelli Remix) 3:32
-04. You`re My Sunshine (Karaoke Version) 3:30Жанр: EuropopПродолжительность: 15:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF67643422062C69B04EBFC4CFC553A8B9922B2D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206413   (782521) от 13.02.2018
-
-Royal Hunt - Cast In Stone (2018) [MP3|320 Kbps] <Melodic Progressive Metal>
+The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782521.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779139.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fistful Of Misery
-02. The Last Soul Alive
-03. Sacrifice
-04. The Wishing Well(   Читать дальше...   )Жанр: Melodic Progressive MetalПродолжительность: 00:57:14
+01. Thunder Child (03:57)
+02. Lions Blood (03:47)
+03. Secrets (03:44)
+04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FF5EAB4628E9038B65AE050B116A54E828F12B2
+magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206301   (782522) от 13.02.2018
+###  Публикация: 1209719   (779140) от 28.02.2018
 
-Журнал | Мой прекрасный сад [Россия]. Спецвыпуск. Календарь садовода (2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782522.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Календарь садовода» - специальный выпуск журнала «Мой прекрасный сад», посвященный сезонным работам на дачном участке. Здесь вы найдете полезные и практичные советы буквально на все случаи дачной жизни, которые для комфортного поиска сгруппированы по рубрикам: декоративный сад, плодовый сад, газон, теплица, огород. Календарь основных работ в саду, привязанный к (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52877A9BE53EE4A69E32FC82550AD00FAC605B10
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206215   (782523) от 13.02.2018
-
-Журнал | Budujemy Dom [Poland] №1-2 (2018) [PDF] [Pl]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Buduemy Dom ("Строим дом") - польский строительный журнал, издающийся с 1998 года. Затрагиваемые темы - проектирование и строительство домов, обзор инструментов, технологий и материалов, советы и идеи дизайна, ремонт, домохозяйство. Строим дом своей мечты. Жить в своем доме – это удобно и комфортно. Его можно купить, а можно построить коттедж своей мечты, (   Читать дальше...   )Жанр: Строительство, хоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED789F6C4040F4FEFFBA945B1796F9003E71E270
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206335   (782524) от 13.02.2018
-
-VA - De Top 100 Aller Tijden 1980 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782524.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. ABBA - The Winner Takes It All (4:55)
-002. Electronica's - De Vogeltjesdans (2:33)
-003. Olivia Newton John & Electric Light Orchestra (ELO) - Xanadu (3:29)
-004. Barbra Streisand - Woman In Love (3:52)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3779B36DB4F6CCDFE53C6F77E479B3EDAF9C639C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206189   (782525) от 13.02.2018
-
-Журнал | Эксперт №7 (1063) (февраль 2018) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Эксперт» — одно из самых влиятельных еженедельных деловых аналитических изданий России. За 14 лет своего существования в непростых политических и экономических условиях изданию удалось не только выжить и сохранить своих читателей, но и расширить их круг, заслужив репутацию несомненного лидера российской деловой журнальной прессы. Все наши знания и опыт нацелены (   Читать дальше...   )Жанр: Экономика, политикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BCFD537A52175BF47790B7D08E259A3F5C8315
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206336   (782526) от 13.02.2018
-
-Kinza Browser 4.5.0 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kinza Browser - японский браузер на базе Chromium с дополнительными настройками, такими как жесты мышью, супер перетаскивание, управление поведением вкладок, многофункциональная боковая панель (закладки, RSS, история).Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5C1FC5CBB6E111382332BA81A8C4C55CD865AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206408   (782527) от 13.02.2018
-
-Татьяна Алюшина | Мой слишком близкий друг (2012) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марта – успешная, уверенная в себе девушка, у которой всё есть: любимая работа в престижной компании, заботливые родители, обожаемые братья и лучший друг Митя, всегда готовый примчаться на любой конец света, если Марта в беде. Но личная жизнь не складывается – череда неудачных романов вводит девушку в депрессию. В попытке помочь подруге Митя увозит ее в другую страну, (   Читать дальше...   )Жанр: Современный любовный романФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB7FDED02B89B503D788B4A16182920EE6F6FF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206409   (782528) от 13.02.2018
-
-Татьяна Алюшина | С молитвой о тебе (2012) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бежать... Бежать как можно дальше. Затаиться, залечь на дно. Не за-водить друзей. Опасаться знакомств с противоположным полом... Таковы правила Ксении. Загнанная, преследуемая, она уже давно не ждет счастья. Тем большим подарком для девушки становится встреча с человеком, которого она любила в юности и не позабыла за все эти полные тревог годы... Но можно ли отдаться (   Читать дальше...   )Жанр: Современный любовный романФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4731C8DAF36551746F4DE194921865840284FA7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206405   (782529) от 13.02.2018
-
-Татьяна Алюшина | Девушка с проблемами (2013) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саша возвращалась домой, когда дорогу ее машине перегородил здоровенный джип, из которого вышли двое вооруженных громил. Случайное ограбление? Ничуть не бывало! Налицо оказались все признаки серьезных неприятностей. К счастью, нашелся и человек, готовый помочь в решении возникших проблем. Вот только кто объявил охоту на Сашу и чего он, собственно, хочет?..Жанр: Современный любовный романФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F890D62BA387D71DDC0254509FA1A672519274
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206238   (782530) от 13.02.2018
-
-VA - Dead And Dead-Doom 90s (2018) [MP3|320 Kbps] <Doom, Death Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782530.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Death  -  Scavenger Of Human Sorrow  6:55
-002.  Atheist  -  Mother Man  4:33
-003.  Benediction  -  Artefacted Irreligion  3:20
-004.  Tiamat  -  Clouds  3:40(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 07:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629DAF7E328175AAEF09042D990866579C02AB6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206382   (782531) от 13.02.2018
-
-Журнал | Идеальный дом №2 (февраль 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальный дом - журнал для влюблённых в свой дом. Журнал посвящен вопросам недвижимости, архитектуры, дизайна интерьеров, а также затрагивающий темы, касающиеся защиты прав домовладельцев и землепользователей, модернизации жилого пространства в соответствии с новыми технологиями, стилями и канонами. Издание, предлагающее креативные идеи и пути их осуществления...Жанр: Интерьер, дизайнФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED44C134D489CE92DFD60A73BA146569409266FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206208   (782532) от 13.02.2018
-
-VA - Happy Birthday Fish (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.James Curd & J Dub - Too Cool To Dance
-02..Nora En Pure - Waves (Original Club Mix)
-03.Alex Safa - Come Is It Go (Extended Mix)
-04.Malaa - Notorious(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 04:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E05EA2DF4A246D8C9F227DC47BF90EC125E7F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206463   (782533) от 13.02.2018
-
-Векторный клипарт - Vector Animal Collection #8 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Зверушки
-25 AI + jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3290BCA9FB442AA72EB58F02249279A54B9AB68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206197   (782534) от 13.02.2018
-
-Журнал | Дачный сезон №1 (январь 2018) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35235E16748ABF5BB28B94A52F4B16F9F7173C2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206156   (782535) от 13.02.2018
-
-Ferry Corsten - Blueprint (Remixed) (2018) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
+Smolik - Smolik3 (2006) [FLAC|Lossless|tracks + .cue] <Downtempo, Nu-Jazz, Chillout>
 
 >>Electronic
->>Trance
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782535.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779140.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Blueprint (Ciaran McAuley Extended Remix)  6:36
-02.  Your Face (feat. Eric Lumiere) (Duncan La Barre Rendition)  3:24
-03.  Something To Believe In (feat. Eric Lumiere) (Saad Ayub Extended Remix)  5:53
-04.  Waiting (feat. Niels Geusebroek) (DIM3NSION Extended Remix)  6:01(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:30:28
+01. S.Dreams (07:26)
+02. Cmyk (04:45)
+03. Cye (03:26)
+04. 50 Trees (04:10)(   Читать дальше...   )Жанр: Downtempo, Nu-Jazz, ChilloutПродолжительность: 00:47:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:076A3D61A6AEFD6446F626E99D5074509C135D53
+magnet:?xt=urn:btih:F3BD9858ED6B31B85875105937A2F3CD84113FE1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206456   (782536) от 13.02.2018
+###  Публикация: 1209819   (779141) от 28.02.2018
 
-Векторный клипарт - Vector Stuff, Household Items Collection #1 [AI]
+Cary Brothers - Who You Are (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782536.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779141.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Векторный клипарт для дизайна.
-Вещи, предметы быта
-25 AI + jpg PreviewФормат: AI
+01. Jealousy (4:52)
+02. Ride (3:41)
+03. Who You Are (3:41)
+04. The Glass Parade (4:50)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:53:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7D4DCE599160E9B4A140D5B1E7D3FBA8DB34E622
+magnet:?xt=urn:btih:58B57B5A34CCC76279F6E13B4FEEE6D6EA105E08
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206454   (782537) от 13.02.2018
+###  Публикация: 1209582   (779142) от 28.02.2018
 
-Векторный клипарт - Vector Predators Collection #5 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782537.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Хищники
-25 AI + jpg PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA137B5D238C3F396B3AB2BA4E1F6C487B99E230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206361   (782538) от 13.02.2018
-
-Векторный клипарт - Vector Fantastic Heroes Collection #8 [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Коллекция фантастических героев
-25 AI + PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7451DE8967F1747A4A69CA9ECD9C892E8BE69A25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206360   (782539) от 13.02.2018
-
-Векторный клипарт - Ambulance [AI, EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Скорая помощь
-5 AI, EPSФормат: AI, EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C75B7D98F7404E47D1381DF384718DF5831169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206322   (782540) от 13.02.2018
-
-VA - Deep House Collection vol.157 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agatino Romero feat. Duncan Townsend - All I Wanna Do (Original Mix) 3:07
-02. Airbas - After Hours (Petros Odin Nightwalking Remix) 7:36
-03. Alberto Jossue - Iquitos (Extended Dub) 8:53
-04. Al Bradley - Malandro (Original Mix) 7:43(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D508674DE3819708C08CA7D6D024B7E9AD750D86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206236   (782541) от 13.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Конькобежный спорт. 2-й День соревнований (11.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782541.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 февраля 2018 года, воскресенье. 10:00 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Конькобежный спорт. 2-й День соревнований:
-Мужчины. 5000 м(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FD3A172EDCDE764299D35B93570F858B6FD61B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206260   (782542) от 13.02.2018
-
-Laurent Colson - Emptiness (2018) [MP3|320 Kbps] <Downtempo, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Emptiness (Chapter I)  3:18
-02.  Ceremony  4:49
-03.  Frozen World  5:28
-04.  The Key Of Time  5:33(   Читать дальше...   )Жанр: Downtempo, ElectronicaПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AC950D3BF179B13920B3948E6DD88BC2EB9317
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206243   (782543) от 13.02.2018
-
-VA - Cold Rush - Collected (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kaimo K & Cold Rush feat. Katty Heath  -  Here I Am (Original Mix)  6:43
-02.  Cold Rush & Kaimo K feat. Sarah Russell  -  Angel Fly (Original Mix)  6:46
-03.  Cold Rush & Mhammed El Alami  -  Seshego (Original Mix)  7:14
-04.  Cold Rush & Ion Blue feat. Danny Claire  -  Near You (Cold Rush Remix)  7:27(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FD4E008B5468ED056E7FF032CD0209DFFD33677
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206267   (782544) от 13.02.2018
-
-Laurent Colson - Emptiness (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Electronic>
+Ball Park Music - Good Mood (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_782544.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779142.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Emptiness (Chapter I)  3:18
-02.  Ceremony  4:49
-03.  Frozen World  5:28
-04.  The Key Of Time  5:33(   Читать дальше...   )Жанр: Downtempo, ElectronicПродолжительность: 01:04:23
+1. The End Times (04:07)
+2. I Am A Dog (03:36)
+3. Frank (03:49)
+4. The Perfect Life Does Not Exist (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F154FC81404E1B1BCEF20130E7176EC36C14F8D0
+magnet:?xt=urn:btih:F0FF1D303812463549C6117A98990C291FE938C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209676   (779143) от 28.02.2018
+
+Frantic Amber - Burning Insight (2015) Reissued, 2017 [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Burning Insight
+03. Bleeding Sanity
+04. Soar(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93273802989F67CAA6E95F916EE694C97D364151
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209763   (779144) от 28.02.2018
+
+VA - Vocal Endless Story (2018) [MP3|320 Kbps] <Energy, Blissful, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Bukovski & Andy Elliass & Arczi With Aneym - All I Can Do (Extended Mix) 6:34
+02. Andy Moor & Michele C - We Can Be Free (Evan Pearce Remix) 6:33
+03. Rene Ablaze Ft. Crystal Blakk - Torn Into Pieces (Extended Mix) 7:11
+04. Sarah Lynn - Put You Together Again (Extended Mix) 7:28(   Читать дальше...   )Жанр: Energy, Blissful, UpliftingПродолжительность: 01:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7D440E783B59C3F11E9818248B75880C6A4F652
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209701   (779145) от 28.02.2018
+
+VA - Winter Deep House (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7even (GR) - Make It Hot (Original Mix)
+002. The Models - Twist & Bounce
+003. Jaques Le Noir - Now It's Time (Original Mix)
+004. Beach Coffee Ensemble - Bsospicius Area(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D29F35AE37201735FF339649FB03D75B24836FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209670   (779146) от 28.02.2018
+
+Amanda Ginsburg - Jag har funderat pa en sak (2018) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I de manga valens land (4:09)
+02. Vem ar du? (4:20)
+03. En romantisk komedi (2:07)
+04. Flykten fran vardagen (feat. Nils Landgren) (4:25)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552814170AD452FC25A6BBEE37B7A773EA9D65A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209849   (779147) от 28.02.2018
+
+VA - Yoga Love - The Full Moon Sessions 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Arrival  11:20
+02.  Polyshake Bells  13:13
+03.  Interludium  02:54
+04.  Good Mooning  29:22(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DACBB21C71435799AB69AE5DCDA848288AED39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209635   (779148) от 28.02.2018
+
+Н.В. Тулупов, П.М. Шестаков (ред.) | Пасхальный сборник (1913) [JPG]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повести и рассказы русских писателей.Жанр: Детская прозаФормат: JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDC1B5707AFA634AE613434ECBE39DDA480D403
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209756   (779149) от 28.02.2018
+
+VA - We Are Trance February (2018) [MP3|320 Kbps] <Uplifting, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dim3nsion - Agarimo (Extended Mix)
+002. Kiyoi & Eky - Turn Back The Rain (Mark Van Gear Remix)
+003. Richard Lowe - Levitate (Original Mix)
+004. Enfortro - We Came To Conquer (Veizo Remix)(   Читать дальше...   )Жанр: Uplifting, Progressive TranceПродолжительность: 13:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034CB98CA86B54D200544776E4F8B4226E8D0EB5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209769   (779150) от 28.02.2018
+
+И. Якушевский | Ленинизм, революция и «советология» (1968) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779150.jpg" />
+</div>
+
+
+###  Подробнее
+
+В предлагаемой книге анализируются «советологические» трактовки и концепции теории и практики Октябрьской революции. В отличие от работ, освещающих ее исторический и социально-экономический аспекты, здесь берется философский аспект — она рассматривается под углом зрения единства и взаимодействия революционной теории и практики.
+
+«Советология» уделяет также большое (   Читать дальше...   )Жанр: История, политология, философия, социология, психологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4DD75D6196F5796589799226A27064D35FB7E73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209665   (779151) от 28.02.2018
+
+Bitter:Sweet - Drama (2008) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Dramatico (0:11)
+02. Get What I Want (03:25)
+03. Come Along With Me (02:19)
+04. The Bomb (03:02)(   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AF407BECB44DEB5F67793453C1FED70A6C5481
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209803   (779152) от 28.02.2018
+
+VA-Artistic Dance Zone 14 (2018) [MP3|320 Kbps] <House, Tech House, Deep House, Funky>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinechain - Discoking (Radio Edit)
+02. Rheinkraft - Glow the Freeker
+03. DJ Anady - Dale Mas
+04. DIMES - Turn It Up(   Читать дальше...   )Жанр: House, Tech House, Deep House, FunkyПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43CF48B50EA4B52A2A99F4C7E0A0C8FA639C85DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209945   (779153) от 28.02.2018
+
+VA - Rooftop Lounge The Sounds of Chillout (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ku You - Sandhand 05:03
+02. Thomas Sopper & Herr Schmidt - Wolken im Wind 06:44
+03. Han Tronic - Tea del Mar 06:02
+04. Ritmo Fatalismo - Sangria After Midnight 06:00(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0AD8C9EC4D9327E4E40597FDD365AFBEA7449B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209761   (779154) от 28.02.2018
+
+VA - Psychometry: 100 Psy Goa Trance (2018) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Egova - Shivaratri
+002. Kristallklar - Gears Of Existence (Original Mix)
+003. Psilocybe Project - I Am Darkness (Original Mix)
+004. Elliptic - Machine Elves(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:28:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA28B6392351D40E01676C02298A34D256A14DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209699   (779155) от 28.02.2018
+
+VA - Hed Kandi: Fit & Fabulous (2010) [FLAC|Lossless|tracks] <House, Electro House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Various - Fit & Fabulous (continuous DJ mix) (40:33)
+02.Various - Fit & Fabulous (continuous DJ mix) 2 (40:52)
+03.Groovefinder - All This Love That I'm Giving (feat Leah McCrae - Christian Hoff mix) (5:23)
+04.Polina - Shotguns (Scumfrog remix) (6:20)(   Читать дальше...   )Жанр: House, Electro House, Tech HouseПродолжительность: 04:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE748568D916D5728E7C03D0538BA18237BA1A85
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209733   (779156) от 28.02.2018
+
+Koenraad Ecker - A Biology Of Shadows (2018) In Aulis [FLAC|Lossless|WEB-DL|tracks] <Experimental, Spoken Word>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Entrailles Du Mensonge (04:50)
+ 02. Between The Desire And The Spasm (Falls The Shadow) (04:21)
+ 03. Black Blocks And Red Zones (05:04)
+ 04. Under Glass Argus Eyes (01:47)(   Читать дальше...   )Жанр: Experimental, Spoken WordПродолжительность: 00:43:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F55FDAE5D3006A3B81C9197D35B7D4223809C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209660   (779157) от 28.02.2018
+
+VA - Dance All Night Vol. 1 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex DJ Zeya - Marry Me 05:11
+02. Alex Sheavy - Vessel 02:54
+03. ArcticA - Anastasia (Last Sky Remix) 05:15
+04. Aveo - Colors 04:30(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A9419BB1D692474AD09ECA38D3D4E738BFF654
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209554   (779158) от 27.02.2018
+
+Final Fantasy XV (2018) [Ru/Multi] (Build 1130472) Repack =nemos= [Windows Edition]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снова в путь — на пределе качества! Много бонусного контента, поддержка самого высокого разрешения и HDR 10: в красивейшем мире FINAL FANTASY XV все продумано до мелочей. Такого вы еще не видели! События Final Fantasy XV происходят в мире, где реальность соседствует с фантазией. Вместе с наследным принцем Ноктисом и его товарищами вам предстоит отправиться в грандиозное (   Читать дальше...   )Тип издания: RepackРазработчик: Square EnixЖанр: RPG (Open World), Action, 3rd Person, 3DЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62107CA0A6341C85F3A244CD8386E6F6230DC679
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170987   (779159) от 27.02.2018
+
+Улица (2017) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-79 из 79)
+
+>>Отечественные сериалы
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779159.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Улица» — это история жителей одной из улиц спального района большого города. Школьники и студенты, домохозяйки и продавцы, олигархи и простые рабочие — здесь встретятся более 30 персонажей разного возраста и социального статуса, у каждого из них своя история. В большой Вселенной «Улицы» нет главных и второстепенных героев, здесь есть бурная жизнь с ее радостями, (   Читать дальше...   )Производство: Россия / ТНТ, ГудСториМедиаЖанр: драма, мелодрама, комедияРежиссер: Жанна Кадникова, Николай Бурлак, Михаил СоловьёвАктеры: Егор Клинаев, Ольга Баранова, Владимир Хацкевич, Екатерина Седик, Павел Савинков, Сергей Змичеревский, Артемий Падалка, Марина Богатова, Ксения Жданова, Марта Дромашко и др.Продолжительность: ~00:27:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:011FD43038C0FD47FBCB95250030E2CF572C6D21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209364   (779160) от 27.02.2018
+
+Red Giant Universe 2.2.2 RePack by Team V.R [En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Giant Universe - это библиотека профессиональных эффектов для графических редакторов
+After Effects, Premiere Pro, DaVinci Resolve и Sony Vegas от известного разработчика Red Giant.
+Редакция Universe включает в себя более шестидесяти эффектов, ориентированных на создание сложного монтажа,
+работы с хромакей, изменения освещения, осуществление цветокоррекции, работы (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CB9829B9332394F4121856B7BE88AE6D4052464
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209407   (779161) от 27.02.2018
+
+Стальной алхимик / Hagane no renkinjutsushi / Fullmetal Alchemist (2017) WEB-DLRip [H.264] [MVO] [PR]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779161.jpg" />
+</div>
+
+
+###  Подробнее
+
+В стране Аместрис алхимия широко распространена как точная наука. Два брата Эдвард и Альфонс Элрики ещё детьми пытались при помощи алхимии воскресить мёртвую маму, но поплатились за это. Старший лишился руки и ноги, младший — всего тела, хотя и был в самый последний момент чудом спасен — брат привязывает его душу к стальным рыцарским доспехам. Теперь два брата — (   Читать дальше...   )Производство: Япония / Square Enix Co. Ltd.Жанр: Боевик, фэнтези, приключенияРежиссер: Ясухиро Ириэ, Киёмицу Сато, Хироши ИкетомиАктеры: Рёске Ямада, Цубаса Хонда, Дин Фудзиока, Рюта Сато, Мисако Рэмбуцу, Ё Ойзуми, Кэндзиро Исимару, Ясуко Мацуюки, Синдзи Утияма, Каната ХонгоПеревод: Многоголосый закадровый (AlexFilm)Субтитры: русские (форсированные, полные), английские, + много других языков (см. MediaInfo)Продолжительность: 02:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934C998FF078FF457CFCEE54FBB6018E0A4B1C1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209556   (779162) от 27.02.2018
+
+Здесь и сейчас / Here and Now (2018) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-3 из 10)  Greb&Creative (обновляемая)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779162.jpg" />
+</div>
+
+
+###  Подробнее
+
+История о многонациональной семье, которая живет в США: профессоре философии Грег Бишоп, его супруге-юристе Одри, их общем ребенке и трех приёмных детях — из Вьетнама, Колумбии и Сомали. За фасадом счастливого, прогрессивного семейства таится множество проблем, к которым со временем прибавляется ещё одна напасть — один из детей начинает наблюдать необъяснимые вещи, (   Читать дальше...   )Производство: СШАЖанр: драма, комедияРежиссер: Ута Бризвитц, Алан Болл, Джереми ПодесваАктеры: Холли Хантер, Соси Бэйкон, Джеррика Хинтон, Рэймонд Ли, Тим Роббинс, Дэниэл Дзоватто, Марван Салама, Джо Уильямсон, Некар Задеган и др.Перевод: Многоголосый закадровый, профессиональный -  Greb and Creative Group Company по заказу AmediaСубтитры: английскиеПродолжительность: ~01:00:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D3B89733D2607D47BBEAC7D8837EF20F0A5E2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204966   (779163) от 27.02.2018
+
+Пожалуйста, приготовьтесь / Please Stand By (2017) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не смотря на аутизм и находясь в спец-центре, Вэнди пытается вести нормальный образ жизни. Со временем состояние девушки улучшилось: она устроилась на работу, завела четвероногого друга и вполне может заботиться о себе сама, но сестра Одри отказывается забирать ее из центра. Вэнди обожает сериал «Звездный путь», она даже пишет собственную книгу, главным героем которой (   Читать дальше...   )Производство: США | 2929 Productions, Allegiance TheaterЖанр: Драма, КомедияРежиссер: Бен ЛуинАктеры: Дакота Фэннинг, Тони Коллетт, Элис Ив, Ривер Александр, Марла Гиббс, Джессика Рот, Майкл Сталь-Дэвид, Стефани Аллен, Мэттью Кардаропле, Мэтт КорбойПеревод: Многоголосый закадровый (HDrezka Studio)Субтитры: Русские, английскиеПродолжительность: 01:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDBF350A2BB5E26FE5A1867A751928972607FBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209560   (779164) от 27.02.2018
+
+Фердинанд / Ferdinand (2017) BDRip [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фердинанд — самый добродушный бык во всей Испании. Несмотря на внушительные размеры и недюжинную силу, он с детства предпочитал сидеть на лужайке и любоваться цветами вместо того, чтобы бодаться с другими быками. По нелепой случайности Фердинанд был выбран среди других соплеменников для участия в бое быков в Мадриде.
+Фердинанду предстоит отстоять свои миролюбивые (   Читать дальше...   )Производство: США, Blue Sky Studios, Davis Entertainment, Twentieth Century Fox AnimationЖанр: Мультфильм, Приключения, Комедия, СемейныйРежиссер: Карлос СалданаПерсонажи: Джон Сина, Кейт МакКиннон, Дэвид Теннант, Бобби Каннавале, Энтони Андерсон, Джек Гор, Джет Юргенсмейер, Найл Диас, Колин Х. Мерфи, Карлос Салдана ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E1F0363DFD49E8DFBD34D182E19CFF8891F7DB
 ```
 
 

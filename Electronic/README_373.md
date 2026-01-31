@@ -1,3 +1,30 @@
+###  Публикация: 1217452   (743483) от 04.04.2018
+
+VA - Tech Trance Essentials Vol.12 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Van Orton - The Scarlet Flower  (Phase II) (original mix)
+02. Alex Van Orton - Le Projet De Janvier (original mix)
+03. 2Sher - Illustrator (Illustration 1)
+04. 3rd Planet - Planet Rock (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339BCE27E434F626BFCDCD65DD8B6E998AD63958
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217459   (743484) от 04.04.2018
 
 VA - Trance Generator (2018) [MP3|320 Kbps] <Trance>
@@ -664,33 +691,6 @@ David August - D'Angelo (2018) [FLAC|Lossless|tracks + .cue] <Tech House, Deep H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A08D5F951836D29675927AA1881A7FB112C27A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282490   (745406) от 12.02.2019
-
-Lito - Hayastan EP (2018) Precept [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teryan 1 (08:02)
- 02. Arpa River (07:03)
- 03. Opposition Crowd (07:17)
- 04. Teryan 1 (Saphileaum's Second Sky) (05:51)Жанр: TechnoПродолжительность: 00:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4A50F897DB3EAA446E378A12054A61413B7008
 ```
 
 

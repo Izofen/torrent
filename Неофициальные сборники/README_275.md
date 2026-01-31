@@ -1,3 +1,30 @@
+###  Публикация: 1059767   (459387) от 05.10.2016
+
+VA - Autumn Blues 77 Songs (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob Dylan -  Watching The River Flow
+02. Blues Doctors  -  Ja To Nie Ty
+03. Vargas Blues Band -  Del Sur
+04. The Beat Daddys -  Livin' This Love(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F2255826004D8ADA2DA09936268EF4CA1D14273
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059773   (459459) от 05.10.2016
 
 VA - Romantic Jazz Lounge: Wonderful Moments (2016) [MP3|320 Kbps] <Jazz>
@@ -691,33 +718,6 @@ VA - BadboE - 30 min TruFunk Mix (2011) [MP3|320 кб/с]<Nu Funk, Ghetto Funk,B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C901BA4F8783146C8AEEDB4FE1FA48764B0153E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059490   (461253) от 04.10.2016
-
-VA - Sense Of Renewal: Club House Party (2016) [MP3|320 Kbps] <Club, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461253.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Wildones Ft David Julien - You Dancing (Original Mix)
-002. Zito & Alray - Amazing (Zito s HU On The Rocks Mix)
-003. Chris Largo feat. Orry Jackson - Close To Mine (Extended mix)
-004. Alan-Lee - Give It Up (Clubmix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 10:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0338D5148628DF088EC0190321BE1DF66328EDFE
 ```
 
 

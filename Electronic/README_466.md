@@ -1,3 +1,30 @@
+###  Публикация: 1369200   (905634) от 22.03.2020
+
+VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kbps] <Progressive House, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Collins - In The Air Tonight (Kluster Dark Mix) (8:50)
+02. J Groove's - Beginning To Believe (Original Mix) (6:08)
+03. Rephlex One - Pulse (Coming Soon Remix) (6:38)
+04. UDG - Workshop Of Devil (5:24)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B25C891A7D3CACCD2CBE1F8ABA0C48AA24ECE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369135   (905646) от 22.03.2020
 
 VA - Kontor Festival Sounds 2020.01: The Beginning (2020) [MP3|320 Kbps] <House, Club House, Progressive>
@@ -653,33 +680,6 @@ Enduser | end.user - Discography 71 Releases (2002-2020) Sonicterror, Ad Noiseam
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E037C37797A884766D61B33057C3533B1F0BD84F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368036   (907214) от 21.03.2020
-
-Sofi Tukker - Treehouse (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Indie Pop, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuck They (03:04)
-02. Energia (03:07)
-03. Benadryl (03:16)
-04. Batshit (03:23)(   Читать дальше...   )Жанр: Dance-pop, Indie Pop, HouseПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD883951A096EDD1509ACCF8A10B6E74938F521
 ```
 
 

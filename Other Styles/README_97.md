@@ -1,3 +1,192 @@
+###  Публикация: 1297778   (603075) от 24.04.2019
+
+Deepthi - Valoa (2019) [MP3|320 Kbps] <New age, World Music, Ethno>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loitsu (5:33)
+02. Valoa (3:36)
+03. Marian rukous (6:26)
+04. Aiti Maa (4:32)(   Читать дальше...   )Жанр: New age, World Music, EthnoПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6F6FED079CDA1A55FD87F0C387D0641DD42C06
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297558   (603082) от 24.04.2019
+
+Max Rende - My World (2019) [MP3|320 Kbps] <New age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (My World) (2:18)
+02. Arrival of the Jelly Bubbles (4:25)
+03. Bb's Nest Building (2:32)
+04. Bb's Working Their Magic (2:41)(   Читать дальше...   )Жанр: New age, WorldПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595DD704F5D8198D3ED3B18D1FA6E81A8EF67620
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297703   (603089) от 24.04.2019
+
+Plotnik82 - Акустика (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603089.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Атомы любви
+2. Перезагрузи
+3. Родины нет во мне
+4. Рядом с тобой(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343B736BE09B35A017A1B2A07F16B612173CD64B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297787   (603090) от 24.04.2019
+
+VSOP Vienna Symphonic Orchestra Project - The 6th - A Kind Of Magic (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Fading Like A Flower
+2.	Wind Of Change
+3.	Don't Let The Sun Go Down On Me
+4.	Vintage (Ballade To Australian Wine)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A4AD43251590195F00B8C3299F53EE5829F24D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297649   (603095) от 24.04.2019
+
+Venice - Jacaranda Street (2019) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603095.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Jacaranda Street (5:33)
+2. The Lavender Lighter (3:32)
+3. My Love Waits For Me (4:06)
+4. Stepping On That Bridge (3:32)(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DB87800156C61EB3CD70335C75D7A0FD23854A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231744   (603182) от 21.06.2018
+
+Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda [03:09]
+02. Visitors from the Stars [02:38]
+03. Ancestors [03:08]
+04. A Million Years Journey [03:13](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B494F55DD309505B083D7F2EA2B1F635660AE1D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231743   (603195) от 21.06.2018
+
+Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exile [03:31]
+02. Revolt [02:11]
+03. Cytokine Storm [01:59]
+04. Heart and Soul [02:38](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546870   (603350) от 27.04.2022
 
 VA - Borderlands 3 Original Game Soundtrack (2019) [FLAC|Lossless|tracks] <Game OST>
@@ -512,213 +701,6 @@ Wychazel - Cloud Forest Temple (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7B4B5AB31340CE8B0C6FC2E917763547F0588A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 222010   (609412) от 27.07.2010
-
-Adiemus - Дискография (1995 - 2006) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_609412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adiemus (Adiemus I - 1999 Version) (3:57)
-02. Pie Jesu (Requiem) (4:33)
-03. Hymn Before Action (The Armed Man) (2:38)
-04. Cantus: Song of Tears (Adiemus II - Journey Edit) (3:56)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545800   (609618) от 22.04.2022
-
-Chet Atkins – From Nashville With Love & Solo Flights (2015) [FLAC|Lossless|image + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609618.jpg" />
-</div>
-
-
-###  Подробнее
-
-From Nashville with Love (1966)
-01. La Fiesta (2:56)
-02. The Song from Moulin Rouge (2:21)
-03. Something Tender (3:03)(   Читать дальше...   )Жанр: CountryПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE241779760CDBF30B67CFA31AB1AAC465D3191B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545025   (609620) от 22.04.2022
-
-Urferd - Resan (2022) [FLAC|Lossless|WEB-DL|tracks] <Nordic Folk, Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gryning (00:03:57)
-02 - Avfärd (00:08:25)
-03 - Strövtåg (00:04:07)
-04 - Hymn (00:03:49)(   Читать дальше...   )Жанр: Nordic Folk, AmbientПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C235C762652BB5253CF0BE251435A4EA05E1E60B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525304   (609703) от 20.07.2012
-
-Митя Кузнецов - Воображаемое путешествие в Китай (2006) [MP3|320 кб/с]<New Age, Ethnic Fusion>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Старик/Ностальгия
-02 Рисовые поля моей жизни
-03 Дети
-04 Гора под храмом
-05 Дыхание небес
-06 Источник сознания
-07 В ритме жизни
-08 Голос в ночи
-09 Утренняя дымка
-10 Встреча и судьба(   Читать дальше...   )Жанр: New Age, Ethnic FusionПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FB6FA2B18CCD9D3FFA653A6AA9F3E7708D866F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525132   (609711) от 20.07.2012
-
-Mesa Music Consort & Native Flute Ensemble - Wind Riders (2001) [MP3|320 кб/с]<Native American, New Age, Flute ,Ethnic,Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609711.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mesa Music Consort - Conferring Power 05:31
-2. Native Flute Ensemble - Deer Spirits Welcome the Dawn 02:08
-3. Mesa Music Consort - Wolf Woman Calls Hawk Spirit 04:17
-4. Native Flute Ensemble - Site of Great Mystery 03:08
-5. Mesa Music Consort - Council of the Flocks 05:35
-6. Native Flute Ensemble - Mustang Island 05:01
-7. Native Flute Ensemble - Spirit Seekers Ceremony 05:05
-8. Native Flute Ensemble - Dream Echoes 02:36
-9. Mesa Music Consort - Medicine Flute Dance 05:34
-10. Mesa Music Consort - Spirit of the Geese 03:54(   Читать дальше...   )Жанр: Native American, New Age, Flute ,Ethnic,FolkПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B547D63A94F08C394491D1925A04E66C942F1C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525096   (609888) от 20.07.2012
-
-Grupo Contraste - Native Voice (2004) [MP3|320 кб/с]<Native American, Ethno, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_609888.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Flying Condor (5:19)
-2. Buffalo Trail (5:32)
-3. Axtu Leman Sumix Sacred Mountain (5:17)
-4. Nothing Else Matters (5:18)
-5. Montezuma (4:45)
-6. The Return of Ringo (4:39)
-7. Precious Waters (5:54)
-8. Dawa (4:23)
-9. Spirit of the Flying Eagle (5:48)
-10. White Buffalo (5:34)(   Читать дальше...   )Жанр: Native American, Ethno, Ambient, New AgeПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A95BB4968BA8780F05758578AF4E3D3E5C50D634
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296191   (610126) от 18.04.2019
-
-Faun - XV - Best Of (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pagan, Folk, Medieval>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Diese kalte Nacht (3:05)
-02.Federkleid (4:43)
-03.Feuer (4:39)
-04.FAUN feat. Micha Rhein - Buntes Volk (4:19)(   Читать дальше...   )Жанр: Pagan, Folk, MedievalПродолжительность: 02:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93A480B5324D7CC711002FE2CF7E764CBEA211B7
 ```
 
 

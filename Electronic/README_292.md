@@ -1,3 +1,30 @@
+###  Публикация: 1234425   (571020) от 05.07.2018
+
+VA - Lounge Theme (25 Sofa Grooves), Vol. 2 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grand Hotel - Please Fasten Your Seatbelts (Original mix) 03:01
+02. Jazzamor - Fly Me to the Moon (Original mix) 03:15
+03. Mazelo Nostra - Walk Through The Streets (Original mix) 04:40
+04. Five Seasons - Une Rose (Original Mix) 03:51(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C246D30D22EB74B9FEBC8C7ADD790B356152C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234485   (571028) от 05.07.2018
 
 VA - Chillout Summer Essentials (2018) [MP3|320 Kbps] <Chillout,Lounge>
@@ -675,33 +702,6 @@ VA - Sweet Lounge Session Vol 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CCBCBC66ED5258B879B82DE2431FBCECDE9823C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303359   (572923) от 21.05.2019
-
-VA - Sweet Lounge Session Vol 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stepo Del Sol - Summer Dreams
-02. Taco-Town - Con Su Permiso
-03. Mazelo Nostra - Memories Of Love
-04. Bob Zopp - Summer On The Strand(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 01:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018AD68CDD74B9EFA0EE66734F46E8F7C075F418
 ```
 
 

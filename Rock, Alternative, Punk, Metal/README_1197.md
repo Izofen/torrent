@@ -1,3 +1,383 @@
+###  Публикация: 600010   (998648) от 09.01.2013
+
+Triosphere - The Road Less Travelled (2010) Japan Edition [WavPack|Lossless]<Power/Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ignition (Intro) [01:57]
+02. Driven [04:35]
+03. Human Condition [04:33]
+04. Death Of Jane Doe [04:43]
+05. Marionette [05:30]
+06. The Road Lesstravelled [05:24]
+07. The Anger And The Silent Remorse [06:23]
+08. Watcher [04:46]
+09. Twenty One [04:47]
+10. Worlds Apart [06:23](   Читать дальше...   )Жанр: Power/Progressive MetalПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599922   (998754) от 08.01.2013
+
+Led Zeppelin - Mothership: The Very Best Of Led Zeppelin (2012) Limited Celebration Day Version [FLAC|Lossless]<Hard Rock, Blues-Rock, Folk-Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Blues-Rock, Folk-Rock, Heavy MetalПродолжительность: 01:09:20
+
+01. The Song Remains the Same (5:32)
+02. Over the Hills and Far Away (4:49)
+03. D'Yer Mak'er (4:24)
+04. No Quarter (7:00)
+05. Trampled Under Foot (5:36)
+06. Houses of the Holy (4:04)
+07. Kashmir (8:30)
+08. Nobody's Fault But Mine (6:16)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599928   (998890) от 08.01.2013
+
+Автоматические удовлетворители и Олеся Троянская - Пейте С Нами! (1995) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Все равно 5:03
+02 Асса 4:14
+03 День рождения 3:44
+04 Огуречный лосьон 3:45
+05 Я никому не нужен 3:21
+06 Дельта-план 4:15
+07 Соловей 3:32
+08 Мясо 3:40
+09 Возможности 2:48
+10 В тюремной камере 4:26(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600259   (998906) от 08.01.2013
+
+Жар-Птица - Лучшее (2011) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маша [0:04:02.49]
+02. Неужели [0:01:46.27]
+03. Отпусти меня [0:04:07.38]
+04. Ты говоришь [0:04:28.24]
+05. Окна [0:03:30.22]
+06. Я подожду [0:04:21.23]
+07. Это мой мир [0:04:47.24]
+08. Rock'n'Roll [0:03:41.28]
+09. Некрасивая [0:03:05.65]
+10. Что стоит мне [0:04:54.73](   Читать дальше...   )Жанр: RockПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9284B878985F183815CF249112B3D83448B88880
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599914   (998919) от 08.01.2013
+
+Олеся Троянская - Квартирник (1985) [FLAC|Lossless]<Acoustic/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Враги 2:04
+02. Когда вели Антуаннету 1:48
+03. Магазин "Берёзка" 1:34
+04. Диссиденты 2:05
+05. Песня русских эмигрантов 2:27
+06. Прощальная 2:06
+07. Я пью... 1:52
+08. Песня о Москве 1:21
+09. Медный колокол 1:32
+10. Поручик Голицын 1:55(   Читать дальше...   )Жанр: Acoustic/RockПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600308   (998933) от 08.01.2013
+
+Majesty - Thunder Rider (Limited Edition) (2013) [FLAC (tracks+.cue)|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder Rider
+02. Warlords Of The Sea
+03. Anthem Of Glory
+04. Make Some Noise
+05. Metalliator
+06. Raise The Beast
+07. New Era
+08. Asteria
+09. Young And Free (Bonus Track)
+10. Rebellion Of Steel(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599471   (998941) от 08.01.2013
+
+A Body Divided - The Rescuer [EP] (2012) [MP3|320 кб/с]<Technical Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beginnings (03:14)
+ 02. I Am Alive (04:11)
+ 03. JSB (04:18)
+ 04. A Familiar Vice (03:33)
+ 05. Resurrection (05:20)Жанр: Technical DeathcoreПродолжительность: 00:20:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27CD2A8D0C27DBFD0998A7E0C07D59D8DE36CBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599819   (998962) от 08.01.2013
+
+Ending Tyranny - Perpetual Greed (2013) [MP3|320 кб/с]<Brutal Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_998962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exordium
+02. Enveloped
+03. Continuous Expansion
+04. Rapacity In Nature
+05. The Dark Age
+06. Below The Global Throne
+07. The Overseer
+08. Altered Existence
+09. Harvesting The Unknown
+10. Purely Infected RebirthЖанр: Brutal DeathcoreПродолжительность: 00:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD75242DD23852323A9237533C8577BC00FE06A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599308   (999282) от 06.01.2013
+
+Shocking Blue - Very Best of Collected (2011) 2CD Box Set / RED BULLET / [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599194   (999306) от 06.01.2013
+
+Dimmu Borgir - 5 CD (1994 - 1998) [FLAC|Lossless]<Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Moonchild Domain (05:24)
+02 - Hunnerkongens Sorgsvarte Ferd Over Steppene (Re - recorded version) (03:05)
+03 - Chaos Without Prophecy (07:10)
+04 - Raabjørn Speiler Draugheimens Skodde (Re - recorded version) (05:04)
+05 - Metal Heart (04:40)
+06 - Stormblåst (live) (05:10)
+07 - Master Of Disharmony (live) (04:27)
+08 - In Death's Embrace (live) (06:16)Жанр: Symphonic Black MetalПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599447   (999336) от 06.01.2013
+
+Airbourne - Runnin' Wild (2007) [MP3|320 кб/с]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stand Up For Rock 'N' Roll
+02. Runnin' Wild
+03. Too Much, Too Young, Too Fast
+04. Diamond In My Rough
+05. Fat City
+06. Blackjack
+07. What's Eatin' You
+08. Girls In Black
+09. Cheap Wine & Cheaper Women
+10. Heartbreaker(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B2FFB0CAD5D6E41DF5114503CF63CE442C1272B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598541   (999337) от 06.01.2013
+
+VA - Futuristic Metal Compilation: Cyber Metal (2011) [MP3|256-320 kbps] <Cyber Metal , Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Herrschaft - I Am The One (05:22)
+02. Sybreed - Neurodrive (04:09)
+03. Helltrash - Cyber Messiah (03:30)
+04. Neurotech - Nonexistent (04:11)
+05. Cruentus - Terminal Code (03:25)
+06. 2 Times Terror - Lust (04:03)
+07. ...And Oceans - Silhouette: In White Rooms: Vacant Bodies (03:47)
+08. Synthetic Breed - Cybernetics (03:47)
+09. Vortech - Humanity: Static (00:00)
+10. The Kovenant - Mirrors Paradise (04:59)(   Читать дальше...   )Жанр: Cyber Metal , Industrial MetalПродолжительность: 01:15:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CD524113DBE6B80F2B2EBF78FC005DE0C91AE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598708   (999376) от 06.01.2013
 
 Shining - 7 Альбомов (2000 - 2009) [FLAC|Lossless]<Depressive Black Metal>
@@ -393,366 +773,6 @@ Seventh Wonder - The Great Escape  (2011) / Japanese Edition / [FLAC|Lossless]<P
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597460   (1000477) от 02.01.2013
-
-Mechina - Empyrean (2013) [MP3|320 кб/с]<Industrial Death Metal / Cyber Metal / Atmospheric>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aporia (1:18)
- 02. Asterion (3:34)
- 03. Interregnum (5:41)
- 04. Imperialus (3:18)
- 05. Anathema (5:23)
- 06. Catechism (5:47)
- 07.Жанр: Industrial Death Metal / Cyber Metal / Atmospheric||Формат: MP3||Продолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E258DDEBD98A09C9F7EB931F41BCD6D9C033BB44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596855   (1000498) от 02.01.2013
-
-Jonestown Revival - Brand New Dad (2012) [MP3|320 кб/с]<Psychedelic Jazz / Progressive Rock / Mathcore>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dad Returns 00:51
-2. Eastern McFeaster 04:01
-3. The Infinite Doughnut 03:25
-4. Soul Claw 04:34
-5. Beef Storm 04:02
-6. Planet of the Crepes 06:15
-7. Simon and Dark Uncle 02:04
-8. Mark Hamill/ Hittler, PA 02:59
-9. Celine Dijon 03:00
-10. Brand New Dad 03:04Жанр: Psychedelic Jazz / Progressive Rock / MathcoreПродолжительность: 00:34:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:024886525E8D60EB379FDCFB31FED31A549D79AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596864   (1000501) от 02.01.2013
-
-Mondo Generator - Hell Comes To Your Heart (2012) [MP3|320 кб/с]<Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dead Silence [02:23]
-02 The Way I Let You Down [03:05]
-03 Burn The Bridge [03:38]
-04 Wont Let Go [03:59]
-05 Like The Sky [03:04]
-06 This Isn't Love [02:51]
-07 The Dirt Beneath [02:56]
-08 Hang 'em High [03:11]
-09 Central Nervous System High School [02:47]
-10 Smashed Apart [03:14](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9699EA45169E44ECB68BF98097C004C2DFB33C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596803   (1000510) от 02.01.2013
-
-Bad City - Welcome To The Wasteland (2010) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Showdown In Central Park
-02.  Take Me For A Ride
-03.  Do You Believe In Rock N Roll
-04.  Wildlife
-05.  Fire In The Pouring Rain
-06.  Call Pall Stanley
-07.  Heatwave
-08.  Look Out!
-09.  Touch
-10.  Straight To The GraveЖанр: Hard RockПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E9E31AA9E193D1209F9FF9873A64CFD968F687E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597274   (1000543) от 02.01.2013
-
-Compos Mentis - Fragments Of A Withered Dream (2003) [WavPack|Lossless]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drained [05:17]
-02. Temptation [04:04]
-03. My Inner Beast [05:18]
-04. Within Me [03:51]
-05. Dead Among The Dead [04:15]
-06. The Prophecy [04:23]
-07. Black Clouds Gather [03:32]
-08. The Innate God [06:23]Жанр: Melodic Death MetalПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597302   (1000689) от 01.01.2013
-
-Кам'яний Гість - 60/70 (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000689.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Під плач гітари моєї #1
-2. Там вдалині
-3. Люди дивні
-4. Мерседес Бенц
-5. Зафарбую чорним
-6. Ми знали
-7. Вітер десь носить
-8. Леді в чорному
-9. Храм короля
-10. Ти скажи мені, друже…(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:919C37B41A520137CBF5E33AB8D9E9130EC50854
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596816   (1000697) от 01.01.2013
-
-Kryptos - The Coils Of Apollyon (2012) [MP3|320 кб/с]<Thrash Metal/Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mask Of Anubis 04:29
-02. The Coils Of Apollyon 04:07
-03. Serpent Mage 06:49
-04. Nexus Legion 05:21
-05. Eternal Crimson Spires 06:55
-06. Spellcraft 03:48
-07. Starfall 06:03
-08. Visions Of Dis 08:05
-09. The Isle Of Voices 01:36Жанр: Thrash Metal/Heavy MetalПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDF598CA8D5757B62FC5E6C6DBEE545CC6483D1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352720   (1000864) от 15.01.2020
-
-Nightwish - Decades: Live in Buenos Aires (2019) 2CD [FLAC|Lossless|tracks + .cue] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Swanheart [2:50]
- 02 - End Of All Hope [4:01]
- 03 - Wish I Had An Angel [4:20]
- 04 - 10th Man Down [5:28](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 02:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52C5C723F4F18E357D068557811290810C9B1408
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352696   (1000888) от 15.01.2020
-
-Rage - Wings of Rage (2020) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000888.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - True [5:02]
-2 - Let Them Rest in Peace [4:31]
-3 - Chasing the Twilight Zone [4:30]
-4 - Tomorrow [5:02](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD14794B6C8166B47ECCCB157E8DFC616180725
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352503   (1001011) от 14.01.2020
-
-Twenty One Pilots - TOPxMM (The Mutemath Sessions) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heathens (feat. MUTEMATH) (04:35)
- 02. Heavydirtysoul (feat. MUTEMATH) (04:00)
- 03. Ride (feat. MUTEMATH) (03:49)
- 04. Tear in My Heart (feat. MUTEMATH) (03:49)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, PopПродолжительность: 00:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDABA3A5218EE7597128403A5D5B60594031B09C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515355   (1001107) от 14.08.2021
-
-The Who - MFSL Gold Discs Collection: 5 Albums (1969-1978) Reissue 1990-1999 / Mobile Fidelity Sound Lab / [FLAC|Lossless]<Rock, Hard rock, Power pop, Art rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Релиз восстановлен в рамках проекта "Включаем DHT в старых раздачах". Ну и кроме того сегодня ровно 50 лет назад, 14 августа 1971 года, в свет вышел альбом Who's Next, с одной стороны справедливо считающийся не только одной из самых выдающихся работ великой английской рок-группы, но и одним из высших музыкальных достижений рок-музыки, с другой ставший надгробием (   Читать дальше...   )1969 Tommy (MFSL UDCD 533) 1990
-1970 Live At Leeds (MFSL UDCD 755) 1999
-1971 Who's Next (MFSL UDCD 754) 1999
-1973 Quadrophenia (MFSL UDCD 2-550) 2 СD, 1991(   Читать дальше...   )Жанр: Rock, Hard rock, Power pop, Art rockПродолжительность: 06:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5D66A9900DB6CDFFFFF7FE2436EF7E2EDB3F30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488979   (1001190) от 14.08.2021
-
-Nawather - Kenz Illusion (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Oriental Metal, Male Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Treasure Chest
-02. Breath of Jasmin
-03. Money Slave
-04. Falleg(   Читать дальше...   )Жанр: Heavy Oriental Metal, Male Female VocalПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAC10742A52E2D887D87327D0F2F0739E8E380D
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1149237   (602401) от 09.07.2017
+
+VA - Classical Music (2017) [MP3|320 Kbps] <Classical, Classical Crossover, Vocal Opera>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_602401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Cellos - Game Of Thrones Medley
+002. Sarah Brightman - Dust In The Wind
+003. Royal Liverpool Philharmonic Orchestra - (Everything I Do) I Do It For You
+004. George Frederick Handel Overture to Samson: I. Andante - Adagio(   Читать дальше...   )Жанр: Classical, Classical Crossover, Vocal OperaПродолжительность: 07:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:781A4292CA4DDADD1F2674344D669F928D7FDECE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148869   (602411) от 09.07.2017
 
 VA - Europa Plus Euro Hit Top-100 Взгляд в прошлое vol.23 (2017) [MP3|128-320 Kbps] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - I Love Ballads - Part X (2016) [MP3|256 Kbps] <Rock, Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C374197351DB0CAE675C3B08F47F41E405BBFF9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148657   (603410) от 07.07.2017
-
-VA - Unknown 80's (part VII) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_603410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Truth - Weapons Of Love - 1987
-02. Beranek - Dum-Dee-Dum-Dee - 1988
-03. Scooter - Red Ruby Lips - 1981
-04. Transmuters - Things Are Getting Better - 1984(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C993388E3A42F22D9354F670CB23FAA123A0AA7
 ```
 
 

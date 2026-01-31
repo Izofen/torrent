@@ -1,3 +1,30 @@
+###  Публикация: 1100742   (893047) от 08.02.2017
+
+VA - Снежный хит-парад. Русские хиты выпуск №6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_893047.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Вероника Андреева - Я Люблю Своего Мужа 3:30
+002. Велинская - Кома 2:45
+003. Helena-Shadia Feat. Cj One-X - Давай Сейчас Помечтаем 3:38
+004. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E701E59D5A82487F8C951C95EC8363957CF25E91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371011   (893051) от 29.03.2020
 
 VA - Top 50 Club Tracks 2 (2019) [MP3|320 Kbps] <House, Pop, Club, Dance>
@@ -674,33 +701,6 @@ VA - Sports Megamix 2016.1 (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07F6D3A0C0D6A7DD49CFBE6AFFCFF942CA66969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493658   (894074) от 04.09.2021
-
-VA - Beatport Synth Electronic: Sound Pack #341 (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_894074.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Firehold - Human
-002. Microsha 89 - Soviet Union
-003. Eccodroid - Lingering Decay Of The Mind
-004. A Reis - Love In The Night(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 07:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DBBC2BA20A8BCA29C2563B44D56D636D36360D3
 ```
 
 

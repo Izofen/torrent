@@ -1,3 +1,30 @@
+###  Публикация: 1367684   (915551) от 16.03.2020
+
+VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legal - Holding Back [04:19]
+02. BK - Sleeper Cell [04:30]
+03. Jake Robertz - Guest List [04:37]
+04. B1tyze - International Clash [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097176   (915730) от 26.01.2017
 
 Propaganda - 1234 (1990) [APE|Lossless|image + .cue] <Synthpop, New Wave>
@@ -665,33 +692,6 @@ Das.RBT - At Night (2017) [MP3|320 Kbps] <Electronic, Downtempo, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8B4BFF806ED8BA5A2DA1150DC3024323B525CCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096748   (917785) от 25.01.2017
-
-VA - Vocal House on Ice Lech 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack & Jones - Lift Me Up (Outro) [00:01:23]
-02. Mr. Leading - One More Time [00:03:21]
-03. Massimo Vanoni - I See You (Fingerman's Disco Odyssey edit) [00:09:20]
-04. Re-Tide - Try This [00:06:35](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531287E590A6AD80108C469537947E4AEACCF8D3
 ```
 
 

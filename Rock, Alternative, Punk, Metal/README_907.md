@@ -1,3 +1,326 @@
+###  Публикация: 1172001   (650369) от 27.03.2019
+
+Candlemass - 12 Albums, 6 Compilations, 3 Lives, 3 Single & EP (1986-2019) 58CD [FLAC|Lossless|image + .cue] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Candlemass - шведская метал-группа, известная как одна из основоположников и самых успешных исполнителей в жанре дум-метал. Именно благодаря Candlemass дум-метал получил признание как отдельный жанр, а само его название происходит от дебютного альбома этой группы Epicus Doomicus Metallicus. Название группы происходит от английского слова Candlemas — «Сретение», при (   Читать дальше...   )Список альбомов:
+1986 - Epicus Doomicus Metallicus
+1987 - Nightfall
+1988 - Ancient Dreams(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 52:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A4478237665F101C9903114D031903ADF16F4EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292036   (650370) от 27.03.2019
+
+Battle Beast - No More Hollywood Endings (2019) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Melodic Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unbroken (4:09)
+ 02 - No More Hollywood Endings (3:55)
+ 03 - Eden (4:00)
+ 04 - Unfairy Tales (3:33)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F05F6EEFE8E46BA91A4449633CB57F776B34F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292083   (650377) от 27.03.2019
+
+Powerwolf - Metallum Nostrum (2019) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Touch of Evil (Judas Priest cover)
+2. Conquistadores (Running Wild cover)
+3. Edge of Thorns (Savatage cover)
+4. Power and Glory (Chroming Rose cover)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D72084D3F42DA70850CDCFEDE63A5D0DEE67C9C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292035   (650382) от 27.03.2019
+
+Yngwie Malmsteen - Blue Lightning (2019) [MP3|320 Kbps] <Neoclassical, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Lightning
+02. Foxy Lady
+03. Demon's Eye
+04. 1911 Strut(   Читать дальше...   )Жанр: Neoclassical, MetalПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731F86C474BEFEB88E0F732F2E79F087B300EB00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540878   (650468) от 31.03.2022
+
+Bad Omens - The Death Of Peace Of Mind (2022) [FLAC|Lossless|tracks + .cue] <Metalcore, Post-Hardcore, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CONCRETE JUNGLE (03:40)
+02. Nowhere To Go (04:06)
+03. Take Me First (03:19)
+04. THE DEATH OF PEACE OF MIND (04:01)(   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Pop RockПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:261EBBDCA5755900C671272C36533D96E3448B02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291793   (650487) от 27.03.2019
+
+Jenny Lewis - On The Line (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heads Gonna Roll (05:13)
+02. Wasted Youth (04:13)
+03. Red Bull & Hennessy (04:48)
+04. Hollywood Lawn (04:34)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FAE49137F282EDBC02799F9C90845A51C025F1C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540620   (650590) от 31.03.2022
+
+Placebo - Never Let Me Go (2022) Remixes [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surrounded By Spies (Timo Maas / André Winter "Smack The Spies" Extended Remix) (7:35)
+02. Surrounded By Spies (Richard Norris Bag on the Platform Mix) (6:33)
+03. This Is What You Wanted (Digital 21 & Stefan Olsdal Remix) (5:34)Жанр: Alternative, Indie RockПродолжительность: 00:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794DFEECC5225459D8C196BA9221F9F8908BD79C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291897   (650603) от 27.03.2019
+
+Whitechapel - The Valley (2019) [MP3|320 Kbps] <Deathcore, Alternative Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When a Demon Defiles a Witch
+02.Forgiveness Is Weakness
+03.Brimstone
+04.Hickory Creek(   Читать дальше...   )Жанр: Deathcore, Alternative Metal, Groove MetalПродолжительность: 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64707E29BC8564F896DD04A0EB4AD91D9E94CE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540709   (650746) от 31.03.2022
+
+Marc Bolan & T. Rex - Star King (2021) Remastered Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born to Boogie (Working Version) (2:44)
+02. Dreamy Lady (Re-Record for Tv Performances) (3:04)
+03. The Groover (Demo) (3:25)
+04. Blackjack (Earlier Master Version) (3:18)(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71FF16902B2B0AF9C55648542249FA6FE077850E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540804   (650750) от 31.03.2022
+
+Lovell's Blade - Deadly Nightshade (2022) [MP3|320 Kbps] <NWOBHM, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Running Out of Time (03:28)
+ 02 - Drivin' Me Crazy (05:12)
+ 03 - Mystery (05:06)
+ 04 - The Cries Go Unheard (04:09)(   Читать дальше...   )Жанр: NWOBHM, Hard RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E24FB79E108FE3672CD22235DD287C5215C183E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540693   (650751) от 31.03.2022
+
+Третье измерение - Открой позабытую сказку (2022) [MP3|320 Kbps] <Folk Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Рим [00:04:34]
+02 - Суккуб [00:04:17]
+03 - Не со мной [00:04:04]
+04 - Языческая Русь [00:04:40](   Читать дальше...   )Жанр: Folk Rock, Hard RockПродолжительность: 00:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552B739AB5545B70669CD0585F338F746705C642
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540691   (650752) от 31.03.2022
+
+Теория Всего - Инициация (2022) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро [00:02:36]
+02 - Правила игры [00:03:22]
+03 - Ты и они [00:03:18]
+04 - Отражение [00:03:35](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:26:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843F27C5E51A0B68E6D0F7167A391EC454D4D2C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905331   (650761) от 05.06.2015
 
 Muse - Drones (2015) [MP3|320 кб/с]<Alternative Rock>
@@ -377,328 +700,6 @@ Beauvoir - Free - American Trash (2015) [MP3|320 кб/с]<Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75C21B8A56510DCF95BFD206F51B76139E0EC812
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905268   (651583) от 05.06.2015
-
-Ozric Tentacles - Technicians Of The Sacred (2015) 2CD [FLAC|tracks+.cue]<Psychedelic, Progressive, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epiphlioy
-02. The Unusual Village
-03. Smiling Potion
-04. Rubbing Shoulders With The Absolute(   Читать дальше...   )Жанр: Psychedelic, Progressive, Space RockПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A882039A27C7F8624C717CF8B98041A347B96D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905005   (651594) от 05.06.2015
-
-Michael Cosyn Group (Feat. Paul Shortino) - Burn The Earth (2015) [MP3|320 кб/с]<Classic Rock, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651594.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Burn The Earth
-2. Rivers Run Dry
-3. Angel's Wings
-4. Blind Man(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Blues RockПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4105519EFB6A020707B3A9B045F629E90704ED8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905386   (651595) от 05.06.2015
-
-714 - American Tragic (2012) [MP3|320 кб/с]<Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Tragic
-02. Melt the Glue
-03. Kiss Me Now
-04. Beautiful Tonite(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0401DAA31DC5181D6F57E4D331BB9537F8A833E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905051   (651608) от 05.06.2015
-
-House Of Lords - Indestructible (2015) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go To Hell
-02. Indestructible
-03. Pillar Of Salt
-04. 100 Mph(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376AF05AEA90397543472D36A999C56143449A71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678661   (651617) от 12.07.2013
-
-John Mayer - John Mayer (2001-2009) 5CD BoxSet /Sony Music,2013/  [FLAC|image + .cue]<Pop Rock, Blues Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_651617.jpg" />
-</div>
-
-
-###  Подробнее
-
-В состав бокс сета вошли первые четыре студийных альбома (с бонус треками) и третий концертный альбом. Бокс сет выпущен в виде книги в жёстком переплёте.
-РипЖанр: Pop Rock, Blues Rock, Folk RockПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905245   (651731) от 05.06.2015
-
-V8 Wankers - Harden The Fuck Up! (2015) [MP3|320 кб/с]<Hard Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harden The Fuck Up
-02. Oh, What A Jerk He Is
-03. Go Fast Or Go Home
-04. Every Man A Tiger(   Читать дальше...   )Жанр: Hard Rock, Rock'n'RollПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6608C88692B81E2BDB903957437219630CE1AA81
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905044   (651733) от 05.06.2015
-
-Trixter - Human Era (2015) [MP3|320 кб/с]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' To The Edge Of The Night
-02. Crash That Party
-03. Not Like All The Rest
-04. For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E90557B4B31B3893391D8FA44D33D977614B87A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905271   (651734) от 05.06.2015
-
-Ozric Tentacles - Technicians Of The Sacred (2015) 2CD [MP3|320 кб/с]<Psychedelic, Progressive, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epiphlioy
-02. The Unusual Village
-03. Smiling Potion
-04. Rubbing Shoulders With The Absolute(   Читать дальше...   )Жанр: Psychedelic, Progressive, Space RockПродолжительность: 01:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A4EC30E0CBBD99665E442F1C3BC2BD27C4767F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905011   (651735) от 05.06.2015
-
-Greg Golden Band - Greg Golden Band (2015) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away
-02. Bad Winter
-03. Old School
-04. Burning Hearts(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27FAF6C8B9E76EF10EE45A712114142D85040419
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905278   (651744) от 05.06.2015
-
-Hammer King - Kingdom of The Hammer King (2015) [MP3|320 кб/с]<Heavy / Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I - Kingdom of the Hammer King
-02. I Am the King
-03. Aderlass; The Blood of Sacrifice
-04. Chancellor of Glory(   Читать дальше...   )Жанр: Heavy / Power MetalПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9147EE98A0EB6633B38C36570368FB1BEED28163
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905151   (651748) от 05.06.2015
-
-Maiden uniteD - Remembrance (2015) [MP3|320 кб/с]<Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Strange World
-02 Charlotte the Harlot
-03 Killers
-04 Remember Tomorrow(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147F66F178F62CED85CA8EFDD5671688E548352A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031699   (651801) от 04.07.2016
-
-Doogie White & La Paz - Shut Up and Rawk (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Light the Fire
-02. Heart of Stone
-03. No Place in Heaven
-04. The Revenge of el Guapo(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B88A859360F70532527C1677DAB7D9CE4CC4BEF
 ```
 
 

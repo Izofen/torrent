@@ -1,3 +1,84 @@
+###  Публикация: 1114768   (831557) от 12.10.2021
+
+Rockets - The Reissue Collection (1976 - 2021) [MP3|320 Kbps] <Electronic, Synth-pop, Space Rock, Disco, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французская поп-рок группа. Известны своим имиджем "пришельцев из космоса", одними из первых в истории музыки масштабными шоу с использованием целого каскада спецэффектов (в частности, "инопланетных" декораций, пиротехники, лазеров). Альбомы Plasteroid и Galaxy стали золотым и платиновым соответственно.Список альбомов:
+1976 - Rockets (2002)
+1978 - On The Road Again (1996)
+1979 - Plasteroid (2004)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Space Rock, Disco, HouseПродолжительность: 11:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB40535394AC5B2A3A617A60A5C083626CAB408B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380697   (831666) от 04.05.2020
+
+Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Crash My Car [0:03:53.70]
+02. Rich People [0:04:32.20]
+03. Empty Rooms [0:04:23.55]
+04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114770   (831765) от 15.03.2017
+
+VA - Acoustic Morning (To Wake Up Well in Your House!) (2017) [MP3|320 Kbps] <Dance, Bossa Nova, House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Beige - Nightgirl (05:35)
+02. Amana Melome - Encantada (04:47)
+03. Blade & Masquenada Family - Bahia Acustic (04:56)
+04. AdrianoMaria - Tokyo (05:15)(   Читать дальше...   )Жанр: Dance, Bossa Nova, HouseПродолжительность: 01:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228EF5A80EE661361F9FB0B800312628AE0FC614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502019   (831816) от 12.10.2021
 
 VA - Я тебя знаю (Дмитрий Маликов Трибьют) (2021) [MP3|320 Kbps] <Pop>
@@ -614,84 +695,6 @@ Harmony Cats - Harmony Cats (1982) LP [MP3|320 Kbps] <Disco, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD4005B1A9443E33F531C684F11F3D58162678BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501574   (835204) от 10.10.2021
-
-Humphrey Robertson - Essentials (2021) [MP3|320 Kbps] <Eurodance, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love in Your Eyes (Radio Version) (3:30)
-02. Don't Stop Loving Me (Radio Version) (3:51)
-03. Touch of Summer (Radio Version) (3:35)
-04. One Step Closer (Radio Remixed) (3:38)(   Читать дальше...   )Жанр: Eurodance, Euro-DiscoПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA6E288AC68B65789B4B300C1E71241CA914ECC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501495   (835205) от 10.10.2021
-
-VA - DJ Beats Chart 94 (2021) [MP3|320 Kbps] <Pop, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris feat. Tom Grennan - By Your SideЖанр: Pop, Dance, Dubstep, DiscoПродолжительность: 00:36:05 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE2D19E4CAFB598BB29722C66653B5E88C5A3230
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501297   (836283) от 09.10.2021
-
-Zivert - Vinyl #2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рокки
-2. CRY
-3. DEL MAR
-4. Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC14D9C2C4F1936E30826A82897667411714141
 ```
 
 

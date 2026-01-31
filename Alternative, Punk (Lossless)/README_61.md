@@ -1,3 +1,30 @@
+###  Публикация: 1117123   (818786) от 22.03.2017
+
+Reamonn - Eleven (The Ultimate Best Of Reamonn) (2010) Compilation, 2CD [FLAC|Lossless|image + .cue] <Alternative Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Only Ones (3:51)
+02. Star (4:14)
+03. Alright (4:59)
+04. Strong (4:36)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 01:33:03 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFA6F078DC179A347C3972A1BDA3C5746FE428C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196953   (819070) от 05.01.2018
 
 The Octopus Project - Memory Mirror (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Rock>
@@ -668,33 +695,6 @@ Deftones - Gore (2016) [FLAC|tracks|WEB-DL]<Alternative Metal, Post-Metal, Exper
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8645F086DF0D4864C67D75C5D2AC263603E08D9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113265   (838083) от 11.03.2017
-
-Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] <Alternative, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Love Song (03:05)
- 02. Personal Jesus (04:07)
- 03. mOBSCENE (03:27)
- 04. The Fight Song (02:57)(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 01:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B21EC414216574C8D361513363A583B2880EE196
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 930260   (516397) от 22.08.2015
+
+VA - Natural Lounge and Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_516397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mauri J – Judith’s Song
+02. P & V Guitarra – Mas Que Nada
+03. Moonlight Electric Orchestra – Waveform Sax
+04. David Maj – Marea(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6215437B5C1BB61DD570FB9FF19BBA850B2F2354
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1561176   (516501) от 03.07.2022
 
 VA - Русская дискотека 90-х-2000-х (2014) [MP3|320 Kbps] <Pop, Dance, Shanson>
@@ -689,39 +716,6 @@ VA - Music News vol.199 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0294EEBE9907D31ABFB68FBC2A6C90933F925698
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 534932   (518897) от 14.08.2012
-
-VA - Best Of MTV Hits (2012) [MP3|128 кб/с]<Dance, Pop, RnB, Hip Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Inna - Ai Se Eu Te Pego
-002 Andreea Banica Feat. Play & Win - Sexy (Radio Edit)
-003 Akon - Love Handles
-004 Nicole Scherzinger - Funky Town
-005 Nelly - Just A Dream
-006 David Guetta Feat. Sia - Titanium
-007 Snoop Dogg & Wiz Khalifa Feat. Bruno Mars - Young, Wild & Free
-008 Jennifer Lopez Feat. Pitbull - On The Floor (Radio Edit)
-009 Massari - Live It Up
-010 Alex Gaudino Feat. Kelly Rowland - What A Feeling (Radio Edit)Жанр: Dance, Pop, RnB, Hip HopПродолжительность: 12:22 :09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A543F39B1D90F667362CC7C63011916E9E450ED8
 ```
 
 

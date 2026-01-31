@@ -1,3 +1,30 @@
+###  Публикация: 925603   (539300) от 07.08.2015
+
+VA - Summer on the Beach (Downtempo Lounge and Chilled House) (2015) [MP3|320 кб/с]<Downtempo, Future Jazz, Lounge, Nu Jazz, Broken beat, Bossa, Latin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lower Man (Remix) - Sonik Boom 04:00
+02. September Morn - Ely Bruna 03:58
+03. Ta Ta Ya Baby - Sarah Jane Morris 05:23
+04. Mama Blues - Jestofunk 05:15(   Читать дальше...   )Жанр: Downtempo, Future Jazz, Lounge, Nu Jazz, Broken beat, Bossa, LatinПродолжительность: 02:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AD6B2BB898FE9B16E1F11DCAC3838DCE87CCE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311519   (539490) от 30.06.2019
 
 VA - 100 хитов в дорогу (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -710,33 +737,6 @@ VA - Ibiza 2015: Summer EDM Party (2015) [MP3|320 кб/с]<Progressive House, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13A2D7BD810916CE9137A1ADC8DE9FF794EFD373
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925440   (541489) от 06.08.2015
-
-VA - Lounge Surprise (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Mundi - Simple Ou Double - Original Mix
-02. Cesar Martinez Ensemble - Abaco - Original Mix
-03. Mario Pinosa Trio - La Fuente Funk - Original Mix
-04. The Sura Quintet - Intimacy - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70281D835F9DA1CE5D295A73B794185AFB000E44
 ```
 
 

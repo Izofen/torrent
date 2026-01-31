@@ -1,3 +1,30 @@
+###  Публикация: 1209301   (779391) от 26.02.2018
+
+VA - Love Is A Catastrophe: Synthpop Neuroactive Mix (2018) [MP3|200-320 Kbps] <Synthpop, Electronic Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mflex - Wonderful Memories
+02. NamNamBulu - Idol
+03. Nordika - Seduceme
+04. Erasure - Be Careful What You Wish For!(   Читать дальше...   )Жанр: Synthpop, Electronic DiscoПродолжительность: 04:01:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAE3AD4B61065728846DC33E3CA11F799D0B0F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209348   (779393) от 26.02.2018
 
 VA - Night Noir Deep House Portrait (2018) [MP3|320 Kbps] <Deep House, Electro>
@@ -668,33 +695,6 @@ VA - Empire Records - Tropical Disco 4 (2018) [MP3|256-320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F876512F25EF5479B360E77E9BE8242838B52FCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207804   (780422) от 19.02.2018
-
-VA - Empire Records - Chill Progress 2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daxsen & Tony Moss & INDATWIN & Juralis  -  Gravity (Forever Yours) (Juralis Remix)  4:15
-02.  Thomas Lemmer  -  A IV (Original Mix)  4:14
-03.  Klangstein  -  Klangsine (Part 2) (Original Mix)  4:43
-04.  Ju'Go  -  Ocean (Original Mix)  6:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA651A858345F1126F592F4E38C31596CBA5BEC1
 ```
 
 

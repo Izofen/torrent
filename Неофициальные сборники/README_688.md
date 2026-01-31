@@ -1,3 +1,30 @@
+###  Публикация: 1604439   (1045397) от 13.01.2023
+
+VA - Trance Anthems 2023 [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Talla 2XLC & Alex M.O.R.P.H. - Afterlife (Extended Mix) (6:51)
+02. Armin van Buuren feat. Scott Abbot - I'm Sorry (Extended Mix) (5:41)
+03. Ronski Speed x Linnea Schössow - Two Of Us (Extended Mix) (8:07)
+04. DJ T.H. & Claas Inc. and Alexandra Badoi - Time to Rave (Extended Mix) (6:09)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D42D2E76C5CD61CF770D9E1D1FDC65955EEC0A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604110   (1045476) от 12.01.2023
 
 VA - Music News vol.237 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -668,33 +695,6 @@ VA - VA - No name compilation part 18 Instrumental, Other (2025) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3B2A3328E0F08F68001FA487F2EE082F8DBC0E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840449   (1047231) от 05.12.2025
-
-VA - Solo Projects From Ария (1985-2025) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маврин - Крылья. instrumental
-02. Дубинин & Маврин - Ужас и Страх. live
-03. Беркут - Берёзы
-04. Маврин - Иллюзия(   Читать дальше...   )Жанр: RockПродолжительность: 07:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFCC5983B274B177B574F182265FFA7F8276734B
 ```
 
 

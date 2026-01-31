@@ -1,3 +1,375 @@
+###  Публикация: 605408   (995947) от 19.01.2013
+
+Angellore - 2 EP (2008-2009) [MP3|128 кб/с]<Atmospheric Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Atmospheric Doom MetalПродолжительность: 00:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE408B204B67033AD7D29DDF0B6CE8AD932C4BF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605186   (995948) от 19.01.2013
+
+Zaraza - 2 альбома + Demo (1994 - 2003) Дискография [MP3|320 кб/с]<Industrial Doom Metal/Experemental Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necessary (13:26)
+02. 24 Hours (6:21)
+03. A Quickie (Screw Rave) (3:06)
+04. A Foreplay (Screw Seduction) (1:59)
+05. A Screw (5:28)
+06. Zaraza (16:23)
+07. Slavic BlasphemyЖанр: Industrial Doom Metal/Experemental MetalПродолжительность: 02:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49A9E4BA4A0A58593B02C093BCD891323C1DF8FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604710   (995989) от 18.01.2013
+
+Hollywood Undead - Notes From The Underground (2013) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Bite (03:38)
+02. From The Ground (03:45)
+03. Another Way Out (02:47)
+04. Lion (03:54)
+05. We Are (04:34)
+06. Pigskin (02:41)
+07. Rain (03:41)
+08. Kill Everyone (02:52)
+09. Believe (04:14)
+10. Up In Smoke (03:39)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D2EE7A87937BD24F5ADAF63EA713EBFDD7288B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604592   (996170) от 18.01.2013
+
+The Courteeners - ANNA (2013) [MP3|320 kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You In Love With A Notion (04:15)
+02. Lose Control (03:48)
+03. Van Der Graaff (03:40)
+04. Push Yourself (03:25)
+05. When You Want Something You Can 't Have (04:06)
+06. Welcome To The Rave (04:07)
+07. Save Rosemary In Time (03:27)
+08. Sharks Are Circling (04:16)
+09. Marquee (03:58)
+10. Money (03:23)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B05D57336F791482C762D692BC3FEE36C9DCA01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604685   (996184) от 18.01.2013
+
+Everything Everything - Arc (2013) [MP3|320 кб/с]<Indie-Rock, Indie-Pop, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cough Cough - 3:42
+02. Kemosabe - 3:44
+03. Torso Of The Week - 4:34
+04. Duet - 3:42
+05. Choice Mountain - 3:24
+06. Feet For Hands - 3:56
+07. Undrowned - 3:01
+08. _Arc_ (Album Version) - 1:29
+09. Armourland - 3:41
+10. The House Is Dust - 3:29(   Читать дальше...   )Жанр: Indie-Rock, Indie-Pop, ExperimentalПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB740502B1BD782E5A7763084D2E5D7EAA5FC48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604565   (996185) от 18.01.2013
+
+Coheed and Cambria - The Afterman: Descension (2013) [MP3|320 kbps] <Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretelethal (03:21)
+02. Key Entity Extraction V: Sentry The Defiant (05:44)
+03. The Hard Sell (05:10)
+04. Number City (03:48)
+05. Gravity's Union (06:45)
+06. 06 Away We go (03:55)
+07. Iron Fist (04:45)
+08. Dark Side Of Me (05:02)
+09. 2's My Favorite 1 (04:54)Жанр: Alt. RockПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D46C0D914E76D9305FBB56C9429CCA7B2DB9BE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604704   (996190) от 18.01.2013
+
+Волчий острог - Багряный восход возрождения (2012) [MP3|219-269 kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лишь эта земля (02:03) [219kbps]
+02. Змея тетивы (05:21) [262kbps]
+03. Воители луны (04:43) [263kbps]
+04. Волчий острог (03:29) [269kbps]
+05. По деяниям тропа (02:19) [232kbps]
+06. Наши мечи (06:48) [253kbps]
+07. Вены взрывает звериная кровь (05:37) [260kbps]
+08. Багряный рассвет возрождения (04:51) [245kbps]
+09. На руинах Аркаима (03:29) [246kbps]
+10. Потомки хранителей воли Богов (03:20) [264kbps](   Читать дальше...   )Жанр: MetalПродолжительность: 01:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F369B299FC62604A90BCE22BCD8C16593DECB97E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604588   (996200) от 18.01.2013
+
+Mutiny Within - Mutiny Within 2: Synchronicity (2013) [MP3|320 kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Embers (02:57)
+02. In My Veins (03:25)
+03. In a Moment (03:20)
+04. Falls to Pieces (04:05)
+05. Machines (03:54)
+06. Never (03:08)
+07. Become (04:22)
+08. Lights (04:24)
+09. Balance (04:26)
+10. Life to Dust (04:08)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62783DE404EEFA5DFF50CF4C2315AE8FAEE554DA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604849   (996204) от 18.01.2013
+
+Infernal Poetry - Paraphiliac (2013) [FLAC|Lossless]<Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996204.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Preliminaries 01:09
+2. Stumps 03:20
+3. In Glorious Orgy 04:07
+4. Hypertrophic Jellyfish 04:27
+5. Everything Means "I" 03:54
+6. Barf Together 04:22
+7. Cartilages 03:49
+8. The Copy / Paste Syndrome 03:44
+9. The Miss-Treated 03:00
+10. Paraphilias 04:30Жанр: Death MetalПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604711   (996205) от 18.01.2013
+
+Newsted - Metal (2013) EP [MP3|320 kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soldierhead (04:16)
+02. Godsnake (05:16)
+03. King of the Underdogs (06:00)
+04. Skyscraper (06:37)Жанр: MetalПродолжительность: 00:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C931F9EE2F4B5AAC36C6A54D8F4F19006205561
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604591   (996207) от 18.01.2013
+
+Stained Blood - One Last Warning (2013) [MP3|320 kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vulcan (01:19)
+02. Mind Control (04:04)
+03. Close Horror (03:49)
+04. The Loser (04:20)
+05. Monster Inside (03:56)
+06. One Last Warning (03:49)
+07. Another Test In The 4th Stage (03:33)
+08. Rotten Roots (02:44)
+09. Shadows Throne (04:17)Жанр: Melodic Death MetalПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D32834228A88CF42AD0D9C292DB63C52C5A8DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604512   (996229) от 18.01.2013
+
+Dreams After Death - 2 альбома (2011-2012) Дискография [MP3|320 кб/с]<Atmospheric Funeral Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anger (9:00)
+02. Worry (8:46)
+03. Sadness (7:27)
+04. Peace (9:10)
+05. Love (13:11)
+06. Nothingness (13:31)Жанр: Atmospheric Funeral Doom MetalПродолжительность: 01:58:43
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604708   (996242) от 18.01.2013
 
 Fen - Dustwalker (2012) [MP3|320 kbps] <Black Metal>
@@ -426,365 +798,6 @@ Supertramp - 12 альбомов (1970-2002) неремастеры [FLAC|Lossle
 1970 - Supertramp
 1971 - Indelibly Stamped
 1974 - Crime Of The Century(   Читать дальше...   )Supertramp (супертрэмп) — британская рок-группа, чью музыку относят к направлениям прогрессивный рок и поп-рок. Образована Риком Дэвисом и Роджером Ходжсоном в 1969 году.Жанр: Progressive Rock |Продолжительность: 10:03:41 |
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603034   (997144) от 14.01.2013
-
-Sex Pistols - 47 albums (1976-2008) Discography [MP3|112-320 kbps] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Save The Queen [03:19]
- 02. Did You No Wrong [08:38]
- 03. Don't Give Me No Lip Child [04:19]Жанр: Punk |Продолжительность: 00:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E23F4BE2A7D38A9DB02DF00010B875D77785E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603161   (997290) от 14.01.2013
-
-Beach Fossils - Clash the Truth (2013) [MP3|320 Kbps] <Indie, Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clash the Truth
-02. Generational Synthetic
-03. Sleep Apnea
-04. Careless(   Читать дальше...   )Жанр: Indie, Lo-FiПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7652AD9B18610FEA3E429E770C3B4823A8B00198
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 277536   (997352) от 13.01.2013
-
-Маша и Медведи - 4 CD + 1 EP (1998-2012) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рыбак и рыбка (04:21)
-02. С новым годом (03:42)
-03. Детка (03:51)
-04. На последнем этаже (05:18)Жанр: Rock |Продолжительность: 00:17:12
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235984   (997375) от 13.01.2013
-
-Магнитная Аномалия - 9 альбомов (2001-2011) [MP3|128-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поток Энергии (01:36)
-02. Караван (02:39)
-03. Вечность (feat "Слезы Смешны") (03:14)
-04. Банкиры (04:03)
-05. Легенда о самурае (03:41)
-06. Диалог (05:03)
-07. Ливень (03:29)
-08. На Игле (03:09)
-09. О том кто не смог (04:44)
-10. Весной (03:37)(   Читать дальше...   )Жанр: Rock |Продолжительность: 00:49:20
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602663   (997551) от 13.01.2013
-
-Corroded - State of Disgrace (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oderint Dum Metuant
-02. Let Them Hate As Long As They Fear
-03. More Than You Can Chew
-04. I Will Not
-05. Uncommon Sense
-06. I Am the God
-07. Believe in Me
-08. Beautiful Revolution
-09. Dirt
-10. As I Am(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA0AB971AA3B7ED09953797F511D662F149DB52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602334   (997558) от 13.01.2013
-
-Glass Delirium - Diamond Lullabies (2012) [MP3|320 кб/с]<Alternative Rock, Piano, Female, Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquility
-02. Reality
-03. Snowy London
-04. Beautiful Plaything
-05. Over The Ice
-06. Funeral of Eighty Days
-07. Untitled Lullaby
-08. Convalescence Dawn
-09. Consequential Halo
-10. Simple LifeЖанр: Alternative Rock, Piano, Female, VocalПродолжительность: 00:38:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5E398155B4CC92003FFF4E8B5E0B192C141571
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602290   (997577) от 13.01.2013
-
-Strangefish - Fortune Telling (2006) [MP3|320 кб/с]<Neo Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997577.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Happy as I am (8:48)
-2. It could be me (7:02)
-3. Random (5:04)
-4. 360° (1:18)
-5. Keep the exits clear (6:32)
-6. Have you seen the light? (5:51)
-7. Lightswitch (0:37)
-8. Ignorance of bliss (8:28)
-9. Reflection
-1) Reflection (3:02)(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B336A5FE443FDA357E62B08E4168B953EAAEDB67
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602511   (997597) от 13.01.2013
-
-MadLove - White With Foam (2009) [MP3|~245 кб/с (V0)]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rats With Wings
-02. Thread
-03. Absence & Noise
-04. Dirty
-05. In Love (In Theory)
-06. As Sad As It Was Beautiful
-07. Broke
-08. Left With Nothing
-09. Knowing
-10. The Mute Number(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B631919C923BC2507AE7ACE95AAF47A75655666
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602501   (997606) от 13.01.2013
-
-Ni - Ni [EP] (2012) [MP3|320 кб/с]<Mathcore / Math Rock / Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Non
-02 - El Gringo
-03 - Grand Barbier
-04 - Marquage Culotte
-05 - Carl LewisЖанр: Mathcore / Math Rock / ExperimentalПродолжительность: 00:29:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514A9142DB812CF19C9D259365F6BE407483C44F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601324   (997706) от 12.01.2013
-
-Radical Face - 6 альбомов (2003-2012) Discography [MP3|320 кб/с]<Indie-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indie-RockПродолжительность: 00:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AAA449DAE20ED8C9E870D734157F3D732828D76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602049   (997717) от 12.01.2013
-
-Hollywood Undead - Notes From The Underground (Best Buy Deluxe Edition) (2013) [FLAC|Lossless]<Alternative Rock / Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Bite (03:38)
- 02. From The Ground (03:45)
- 03. Another Way Out (02:48)
- 04. Lion (03:55)
- 05. We Are (04:34)
- 06. Pigskin (02:41)
- 07. Rain (03:42)
- 08. Kill Everyone (02:53)
- 09. Believe (04:14)
- 10. Up In Smoke 3:39)(   Читать дальше...   )Жанр: Alternative Rock / RapcoreПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601831   (997744) от 12.01.2013
-
-Hyax - Hyax (2013) [FLAC 2.0 24/48|tracks (WEB-DL)]<Post Punk, Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997744.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Noise (3:18)
-2. Twin (3:14)
-3. Light (5:10)
-4. Marble (4:01)
-5. Cloud (4:17)
-6. 5912 (3:50)Жанр: Post-Rock, AmbientПродолжительность: 00:23:52
 
 ## Скачать торент
 ```bash

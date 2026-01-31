@@ -1,3 +1,30 @@
+###  Публикация: 1493947   (891991) от 05.09.2021
+
+VA - Shazam Хит-парад World Top 200 Август (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_891991.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Kid LAROI, Justin Bieber - STAY (2:21)
+002. Ed Sheeran - Bad Habits (3:51)
+003. Lil Nas X, Jack Harlow - INDUSTRY BABY (3:32)
+004. Shouse - Love Tonight - Edit (4:01)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:03:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91BA05C9D56D4F694F5B29CBE3109E47743C64B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371399   (892028) от 30.03.2020
 
 VA - Beatport Deep House: Electro Sound Pack #43 (2020) [MP3|320 Kbps] <Deep House>
@@ -668,33 +695,6 @@ VA - Top 50 Club Tracks 4 (2020) [MP3|320 Kbps] <House, Club, Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E94B525B01B90EFAD359DDF743353CE036B55BFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100742   (893047) от 08.02.2017
-
-VA - Снежный хит-парад. Русские хиты выпуск №6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893047.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Вероника Андреева - Я Люблю Своего Мужа 3:30
-002. Велинская - Кома 2:45
-003. Helena-Shadia Feat. Cj One-X - Давай Сейчас Помечтаем 3:38
-004. Russell Ray Feat. Sergey Kutsuev - Хамелеоны 3:41(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E701E59D5A82487F8C951C95EC8363957CF25E91
 ```
 
 

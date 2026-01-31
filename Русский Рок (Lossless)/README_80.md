@@ -1,3 +1,30 @@
+###  Публикация: 1437729   (1042042) от 05.01.2021
+
+Хмарь - Мгла (2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Blackgaze, Post Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Когда деревья заговорят (7:39)
+02. Пыль (7:52)
+03. Сон (5:40)
+04. Колыбель леса (7:53)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Blackgaze, Post Black MetalПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B882C42430D43134A27CD7847B8E0ED79B8D96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437398   (1042045) от 05.01.2021
 
 Trna - Earthcult (2018) Reissue, 2019 [FLAC|Lossless|tracks + .cue] <Atmospheric Black Metal, Post Black Metal, Blackgaze>
@@ -668,33 +695,6 @@ The Hatters - Зеркало (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04581642F615EF642E719AC10FAF40216F933366
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840081   (1047173) от 03.12.2025
-
-Театр Одного Актера - Белый свет (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1047173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:00:48]
-02. Белый Свет [00:04:47]
-03. Зверь в темноте [00:04:12]
-04. Убийца [00:03:37](   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82209D014250C78EBD3E9A39ABE90A986C26F58A
 ```
 
 

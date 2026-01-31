@@ -1,3 +1,30 @@
+###  Публикация: 1475506   (1012272) от 07.06.2021
+
+VA - Mein Lieblings Schlager (2021) [MP3|320 Kbps] <Pop, Folk, Dance, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1012272.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sister Sister - Valerie
+002. Aitana - Con Cali Y El Dandee
+003. Eloy De Jong - Auf Das Leben
+004. Duncan Laurence - Loves You Like I Couldn’t Do(   Читать дальше...   )Жанр: Pop, Folk, Dance, SchlagerПродолжительность: 11:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3906F4FBFDBF817DA3F2A608E0D6C40A093D5087
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474970   (1012524) от 05.06.2021
 
 VA - All Out 00s (2021) [MP3|320 Kbps] <Pop, Rock, Other>
@@ -668,33 +695,6 @@ VA - The Favorite Fitness Music (2021) [MP3|320 Kbps] <EDM, Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2538BAFC4CA0C8349BF588F5D184245E76CB56F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473983   (1013401) от 31.05.2021
-
-VA - World Sound Funky: Jackin House Mixtape (2021) [MP3|320 Kbps] <Funky House, Jackin' House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1013401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Toshi,Timmy Regisford - Kiqi
-002. Federico Rosa - Love Is Strong
-003. Pavzo - The Jazz Bar
-004. Domineeky - Play(   Читать дальше...   )Жанр: Funky House, Jackin' House, Nu DiscoПродолжительность: 09:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E2CEEFB320C56BAAF2D7F0F1FD98439089CE44
 ```
 
 

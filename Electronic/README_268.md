@@ -1,3 +1,30 @@
+###  Публикация: 1241185   (521151) от 16.08.2018
+
+Lubomyr Melnyk - Piano Music (2015) [FLAC|Lossless|tracks + .cue] <Modern Classical>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_521151.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Illorium Nr. 03A 11:08
+2 Vocalize Nr. 27A 16:15
+3 Meditation Nr. 01C 7:09
+4 (Silence) 0:08(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C83F2FE8C7AE4A7038BA36C94BB012E55BC20AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314143   (521207) от 12.07.2019
 
 VA - Trance 100 (2019) [MP3|320 Kbps] <Trance, UpliftingTrance, ProgressiveTrance, VocalTrance>
@@ -665,33 +692,6 @@ Miles Whittaker (Miles, Millie, MLZ, Suum Cuique) - Discography 13 Releases (200
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2A78D4BECA9216572BCDF4FEDFF4CF7162CBBBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240748   (523669) от 13.08.2018
-
-VA - Black Hole Trance Music 08-18 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz & Emma Hewitt - Safe From Harm (Dylhen Extended Remix)
-02. Richard Durand - The Air I Breathe (Extended Mix)
-03. Betsie Larkin & Ferry Tayle - The Key (Extended Mix)
-04. Craig Connelly - New York Sunday (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0B51E7BCC508130988820CB1DDC25671890B0C4
 ```
 
 

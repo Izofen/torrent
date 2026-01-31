@@ -1,3 +1,30 @@
+###  Публикация: 1114264   (833416) от 14.03.2017
+
+VA - I Love Music! - Extreme Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_833416.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 40 Watt Sun - Another Room 11:55
+002. A Sun Traverse - The Autumn Of Fall 6:18
+003. Ailment - Dogma 12:51
+004. Bathsheba - Ain Soph 5:42(   Читать дальше...   )Жанр: Thrash Metal, Death Metal, Doom MetalПродолжительность: 17:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F35BA0EEC27D892E7E1571705CA2A1D8599D20F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114260   (833489) от 14.03.2017
 
 VA - I Love Music! - Gothic Metal Edition Vol.32 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
@@ -669,33 +696,6 @@ VA - Вспомним 90-2000 от Виталия 72 - 2 (2016) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:863B09698010C4FFBC8CCC463236E4478392004A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004970   (834158) от 08.04.2016
-
-VA - Love Lyric Compilation Rock Blues (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834158.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mungo Jerry - In the Summertime
-002. Monte Montgomery - Little Wing
-003. Mighty Mo Rodgers - Black Paris Blues
-004. Mike & The Mechanics - Mea Culpa(   Читать дальше...   )Жанр: Blues RockПродолжительность: 12:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD977424A9F05CDC6455BCA8EA33107B63DB5ACD
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1203595   (788200) от 02.02.2018
+
+VA - Elite Driving Trance Anthem (2018) [MP3|320 Kbps] <Uplifting, Vocal, Progressive, Emotional, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marc Van Gale - Mumbai Taxi (Original Mix) 4:36
+02. Activeblaze - Last Day 5:47
+03. Maarten De Jong & Katty Heath - Free To Feel Again (Extended Mix) 5:47
+04. Nolans Stenemberg ft. Jennifer Lauren - The Winter (R3dub Remix) 7:35(   Читать дальше...   )Жанр: Uplifting, Vocal, Progressive, Emotional, MelodicПродолжительность: 07:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:636854DA400720FCFFEDA648ACACEDD3874ADEAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276410   (788219) от 16.01.2019
 
 VA - New Music Releases Week 1 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
@@ -665,33 +692,6 @@ magnet:?xt=urn:btih:86A9911D6EDCB5DEE4479DD5E710228D75D7C30D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05C6D8F3459BB65F52B65955DC4ADB9B4A9DF6CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203018   (789063) от 31.01.2018
-
-VA - 150 Dance Extra Mixes (2018) [MP3|320 Kbps] <House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789063.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Basement Jaxx  -  Do Your Thing (Robbie Rivera Acid Remix)  3:33
-002.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-003.  50 Cent  -  Candy Shop (DJ Vini Remix)  5:06
-004.  Alan Walker  -  The Spectre  3:14(   Читать дальше...   )Жанр: House, DanceПродолжительность: 09:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062FC9521CD5266EE43D5EDEAF25174A8209C1BA
 ```
 
 

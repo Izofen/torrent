@@ -1,3 +1,30 @@
+###  Публикация: 1091192   (944162) от 08.01.2017
+
+Кукрыниксы - Артист (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Артист
+02. Шторм
+03. Вера
+04. Надежда(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D51BB1B0D0F59144E66C73AE8D96040374D2C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090612   (945972) от 07.01.2017
 
 Йорш - Держитесь (2016) [FLAC|lossless|image + .cue] <Punk-Rock>
@@ -689,33 +716,6 @@ BY Effect - Первый шаг (2012) [FLAC|Lossless] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26C1BE93620038B6E0E971BECF3BF3C1B7106DED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977862   (964654) от 22.01.2016
-
-Борис Гребенщиков - Radio London (1996) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up In Smoke (3:03)
-02. Eloise (3:57)
-03. Heading For The Absolute One (3:03)
-04. Best Years Of Our Lives (4:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2C4F2989665336D2B29FDECFF7779350BF4920
 ```
 
 

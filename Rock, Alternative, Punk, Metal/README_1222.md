@@ -1,3 +1,327 @@
+###  Публикация: 1473302   (1013850) от 28.05.2021
+
+Silver Talon - Decadence and Decay (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deceiver, I Am (5:25)
+02. Resistance 2029 (4:56)
+03. As the World Burns (5:26)
+04. Next to the Sun (6:31)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED6AD0869BD0865A9A5A8944301FC97F0445816
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473171   (1013866) от 28.05.2021
+
+Burning Witches - The Witch Of The North (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter's Wrath
+02. The Witch Of The North
+03. Tainted Ritual
+04. We Stand As One(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CED1C5CB485245DFCEFCF13A0A2D315DCA8C386C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473179   (1013877) от 28.05.2021
+
+Trick Or Treat - The Unlocked Songs (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hungarian Hangover (03:52)
+02. Almost Gone (06:01)
+03. I Cavalieri Dello Zodiaco (02:34)
+04. Dragonborn - Skyrim (03:50)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 00:55:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142534F207455723C358F2BB5BC07A12CBAAAB8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473182   (1013878) от 28.05.2021
+
+Tuple - Welcome To Hell (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Hell
+02. Hold On To Me
+03. 1-2-3-4-Go!
+04. So Damn Cruel(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A9F372C5602E3435B95E4BCEE93027050B924F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473194   (1013886) от 28.05.2021
+
+Trick Or Treat - The Legend of the XII Saints (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Athena (Intro)
+02. Aries: Stardust Revolution
+03. Taurus: Great Horn
+04. Gemini: Another Dimension(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26003F386A76E328B10CA9331826316C271B7E37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473193   (1013887) от 28.05.2021
+
+Cirith Ungol - Half Past Human (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Route 666
+02. Shelob's Lair
+03. Brutish Manchild
+04. Half Past HumanЖанр: Heavy Metal, Doom MetalПродолжительность: 00:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107A86A66C3C674AC655905F7CAAB0E2E5B8335B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473197   (1013893) от 28.05.2021
+
+Silench Crew - Trajan (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MMXX Hades
+02. Worldwide Mess
+03. The Birth Of Hope
+04. Northern Wars(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F9C643E43A9A43E565757A60F98CF655B09E4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 158320   (1013912) от 27.05.2021
+
+VA - Машина Времени (Трибьют) - Машинопись 2CD (2009) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алиса - Черно-белый цвет
+02. Ундервуд - Старый корабль
+03. Александр Градский - Посвящение Машине Времени
+04. Аквариум - Вверх(   Читать дальше...   )Жанр: RockПродолжительность: 02:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7B1A5A8831A0174C0C8ECC94F92FCED2A109D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 866746   (1013954) от 27.05.2021
+
+King of Asgard - 5 albums (2010-2021) [MP3|320 кб/с] <Melodic Death, Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013954.jpg" />
+</div>
+
+
+###  Подробнее
+
+King Of Asgard («Царь Асгарда») образовалась в 2008 году, когда её основатель Карл Бекман вновь объединил свои творческие усилия со своим давним коллегой по хорошо известному проекту так называемой «викинг-орды» Mithotyn, Карстеном Ларссоном. Скандинавская культура и мифология используется ими в качестве основной тематики как в музыкальном плане, так и для написания (   Читать дальше...   )2010 - Fi'mbulvintr
+2012 - ...to North
+2014 - Karg
+2017 - :taudr:Жанр: Melodic Death, Viking MetalПродолжительность: 04:08:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4477E49C2CC28A49B08CBA9067FEC4514912CFB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473033   (1013987) от 27.05.2021
+
+Владимир Кузьмин - МАХАГОН (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013987.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Зелёная дымка
+2. Страсть
+3. Туманная дорога
+4. Когда ты вспомнишь обо мне(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2895632FBD742D8ADA88B5F88426D1A8CB7CBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473010   (1014019) от 27.05.2021
+
+Психея - Видения (2021) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Видение первое
+02. Имя
+03. Расцвет (Свободный и дикий)
+04. 1 Х 1(   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB2B16A2AB8B49403DE7BD7701B0E38C4C37F33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473013   (1014031) от 27.05.2021
+
+Tanzwut - Die Tanzwut kehrt zuruck (2021) [MP3|320 Kbps] <Folk Metal, NDH>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Tanzwut kehrt zurück
+02. Feine Menschen
+03. Bis zum Meer
+04. Pack (feat. Saltatio Mortis)(   Читать дальше...   )Жанр: Folk Metal, NDHПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6403E889F0705B2C28829F09CB15819FF80427B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472918   (1014054) от 27.05.2021
 
 Cardynal - Intro (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -373,330 +697,6 @@ Storm Force - Age Of Fear (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:714D72307A61974969935F3982F5C621D836E460
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472242   (1014551) от 24.05.2021
-
-Compass - Our Time On Earth (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skies Of Fire
-02. Our Time On Earth Pt.I
-03. Caught In A Frame
-04. Neon(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9439C9B9458D1F055457BFD85926107F69924CE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471449   (1014625) от 23.05.2021
-
-Lindemann - Live in Moscow (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skills In Pills (Live) (4:31)
-02. Ladyboy (Live) (3:23)
-03. Fat (Live) (4:17)
-04. Frau & Mann (Live) (3:47)(   Читать дальше...   )Жанр: Industrial MetalФормат: PCMПродолжительность: 01:15:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855E83043D41435E9356475ECA2D7D2779ECEFEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472042   (1014640) от 23.05.2021
-
-Maneskin - Teatro d'ira - Vol. I (2021) [MP3|320 Kbps] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - zitti e buoni [00:03:14]
-02 - coraline [00:05:00]
-03 - lividi sui gomiti [00:02:45]
-04 - i wanna be your slave [00:02:53](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379AFFA51521900A4604301D49562A90E47F6257
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471939   (1014676) от 23.05.2021
-
-Nergard - Eternal White (2021) [MP3|320 Kbps] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Forgive My Haunted Mind
-02. Pride Of The North
-03. From The Cradle To The Grave
-04. Carry Me(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6109B593591E029E4D20B1BDEB5ECEAA4288F31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471948   (1014677) от 23.05.2021
-
-Андрей Лефлер - Море (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Парус [4:07]
-02. Мистраль [5:27]
-03. Море [3:44]
-04. Взаперти [5:12](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE3CAA25FCECBDADE2DC4D5C4B5B1B23D8FC7E6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472054   (1014680) от 23.05.2021
-
-Attack - The Secret Place (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light In Rhe Dark
-02. I Know
-03. Forgotten Dreams
-04. The Prophecy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1048F0F1FBB14DBD3D0F83FB759A86BC0FBDF6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472058   (1014681) от 23.05.2021
-
-Attack - Seven Years In The Past (1992) Reissue, 1993, Victor Entertainment, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Gloom
-02. Seven Years In The Past
-03. The Fighter
-04. On The Run(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7D32EAC825FB32BB56A79D894DF1CD7540CE32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472062   (1014683) от 23.05.2021
-
-Attack - Destinies Of War (1989) Reissue, 1993, Victor Entertainment, Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderland
-02. Back To Attack
-03. You're Not Free
-04. Live Or Die(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAB44750E67B1345C8C5567DD346926B2E1F977D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471953   (1014690) от 23.05.2021
-
-Xessive Supresin - 3 Albums (2019-2021) [MP3|320 Kbps] <Experimental, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:01:41]
-02. Fright [00:04:07]
-03. The Taste [00:04:54]
-04. Anto [00:04:02](   Читать дальше...   )Жанр: Experimental, Progressive Death MetalПродолжительность: 3CD, 02:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E681B0513F45AFF1EFE5460FBC533017755531A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471997   (1014691) от 23.05.2021
-
-Rockborn - Born To Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories Of You
-02. Never Said Forever
-03. Give Me Back My Radio
-04. Reasons Why I cry(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AE78556F5FF223F8796CC21F67395D80B1CD8CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471777   (1014695) от 23.05.2021
-
-Ciccada - Harvest (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eniania (Keepers Of The Midnight Harvest)
-02. Open Wings
-03. The Old Man and The Butterfly
-04. No Man's Land(   Читать дальше...   )Жанр: Progressive Rock, Folk RockПродолжительность: 00:46:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3D8D2184F0D2B4A6C18A90D0CD4F86CE39C498
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471818   (1014696) от 23.05.2021
-
-Debauchery - Monster Metal (2021) 3xCD [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Death 'n' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014696.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Debauchery:
-01. Bloodking
-02. Skull Mountain
-03. Debauchery Warmachine(   Читать дальше...   )Жанр: Death Metal, Death 'n' RollПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6943699FF6DEB2AD06BE3A607E8E7829246F5EC
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1568502   (457783) от 10.08.2022
+
+VA - Best tracks of Way Out There by Jody Wisternoff, 2012-2014, Volume 4 (2022) [MP3|192-320 Kbps] <Progressive House, Deep House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Qtier - Kind (4:55)
+02. Idjut Boys vs. Chogyam Trungpa - Love Hunter vs. LA Lecture 1983 (acapella) (4:11)
+03. Blue Fields - Seven X Seven (John Tejada remix) (6:14)
+04. Frank Ocean - Pink Matter (Manik Skeletonn rework) (6:03)(   Читать дальше...   )Жанр: Progressive House, Deep House, Techno HouseПродолжительность: 09:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069CD24D5E7981FEF0216EF33F73FCA55437A511
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568734   (457795) от 10.08.2022
 
 The Heavy Horses - Compilation (2022) [MP3|320 Kbps] <Country>
@@ -680,33 +707,6 @@ VA - Hardstyle Dance Generation (2017) [MP3|320 Kbps] <Hardstyle, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4FCCC6941CB26B983C9EE037B3BBF9DADD78B61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059767   (459387) от 05.10.2016
-
-VA - Autumn Blues 77 Songs (2016) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob Dylan -  Watching The River Flow
-02. Blues Doctors  -  Ja To Nie Ty
-03. Vargas Blues Band -  Del Sur
-04. The Beat Daddys -  Livin' This Love(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:42:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F2255826004D8ADA2DA09936268EF4CA1D14273
 ```
 
 

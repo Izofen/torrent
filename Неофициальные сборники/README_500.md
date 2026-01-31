@@ -1,3 +1,30 @@
+###  Публикация: 1013198   (777533) от 04.05.2016
+
+VA - Авто Recordный сборник хитов Vol.10 (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777533.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Primal Scream - When The Blackout Meets The Fallout(01:49)
+2. The Dollyrots - Little Medusa(03:01)
+3. Skylar Stecker - You Got The Golden Touch(03:17)
+4. Topic - Home(03:18)(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA57A6DF287D559E9499128C219AFD95F27BD938
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211484   (777550) от 07.03.2018
 
 VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
@@ -668,32 +695,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A76932F080D87D9E46B3C307F2663EE8E81652EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211084   (778025) от 05.03.2018
-
-Space - Slide by Eliyev Veli (2018) Remix [MP3|256 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Slide by Eliyev Veli
-2. DJ Yan Dern
-3. Up MusicЖанр: Club, DanceПродолжительность: 00:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4F8C13BC9F2EA0104520AAF8A6984469E699DE
 ```
 
 

@@ -1,3 +1,327 @@
+###  Публикация: 1276114   (789081) от 14.01.2019
+
+Brodequin - Methods of Execution (2004) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slaves to the Pyre (2:23)
+ 02. The Gridiron (2:40)
+ 03. The Red Theatre (2:38)
+ 04. Pressing to Plead (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C2D382843393CA848007EDC53466841B4648CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202990   (789084) от 31.01.2018
+
+Shakin' Stevens And The Sunsets - Rockin' And Shakin' (1972) Fontana, 6426 040, Scandinavia [MP3|320 Kbps] <Classic Rock, Blues, Rock&Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шейкин Стивенс (настоящее имя - Майкл Барратт), родившийся 4 марта 1948 года в 11-детной уэльской семье, держит в своей квартире две шкатулки, красную и черную. Складывает в них рецензии музыкальных изданий: в черную, естественно, отрицательные. Те издания, вырезки из которой оказались в черной шкатулке, вряд ли могут рассчитывать на интервью у певца: во всяком случае, (   Читать дальше...   )01. Roll Over Beethoven 3:02
+02. White Lightning 3:32
+03. One Night With You 2:32
+04. Hi Heel Sneekers 3:38(   Читать дальше...   )Жанр: Classic Rock, Blues, Rock&RollПродолжительность: 00:32:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D5D60CE960C6C27F0522F2F7CE00A09B1B41A64
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202957   (789090) от 31.01.2018
+
+Field Music - Open Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time in Joy (6:19)
+02. Count It Up (3:42)
+03. Front of House (1:45)
+04. Share a Pillow (2:54)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476710516EAACEB44ECD96490954E20209149FFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202765   (789091) от 31.01.2018
+
+Terry Brooks & Strange - No Exit (1984) Reissue, 2011, Austria Record Finder [MP3|320 Kbps] <Heavy Psych, Acid Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789091.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bottom Line
+2. Woman
+3. Mr. Strange
+4. It's A Beautiful Day(   Читать дальше...   )Жанр: Heavy Psych, Acid RockПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD5AC79B7480274504EEB5102D29CD35D3FD443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510911   (789198) от 20.11.2021
+
+Beast In Black - Dark Connection (2021) [FLAC|Lossless|tracks + .cue] <Melodic Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blade Runner
+02. Bella Donna
+03. Highway To Mars
+04. Hardcore(   Читать дальше...   )Жанр: Melodic Heavy Metal, Power MetalПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB7AECF5354C1BEF9DC29E44298DF56BACA8405B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 421958   (789232) от 13.01.2019
+
+Billy Squier - 14 Albums (1980 - 2011) 17 CD [FLAC|Lossless|image + .cue |tracks + .cue]<Classic Rock & Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Billy Squier начал сольную карьеру в 1980 году под крышей "Capitol" с пластинкой "Tale Of The Tape". Диск провел три месяца в чарте альбомов Billboard. Хотя ни одна из песен с альбома не попала в чарты, но сингл "You Should Be High Love" некоторое время активно крутилась на радио, а "The Big Beat" затем была особенно сэмплирована (   Читать дальше...   )Список альбомов:
+1980 - Tale Of The Tape
+1981 - Don't Say No
+1982 - Emotions In MotionЖанр: Classic Rock & Hard Rock, Arena RockПродолжительность: 16:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E34ACDBE2AB4D0E8AC2044C13E6BA4181386756
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511238   (789302) от 20.11.2021
+
+СерьГа - Своим чередом (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789302.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Своим чередом
+2. Воскресенье (feat. Александр Маршал)
+3. Мишка-Мишутка
+4. Тебя не сломать (Осень)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905FE33847CD206FF4419FCCC1C56254E92A654B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511239   (789359) от 20.11.2021
+
+VA - Animals Reimagined - A Tribute to Pink Floyd (2021) [MP3|320 Kbps] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nick Van Eede - Pigs on the Wing, Pt. 1
+02. Graham Bonnet - Dogs
+03. James LaBrie - Pigs (Three Different Ones)
+04. Arthur Brown - Sheep(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76B9FC3A7B926299F7652774CC091C68FBC54817
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511375   (789367) от 20.11.2021
+
+Crazy Lixx - Street Lethal (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crazy Lixx - шведская glam metal band, образованная в Мальмё в 2002 году. С момента своего дебютного альбома 2007 года, группа покоряла и увлекала публику своим уникальным брендом хард-рока 80-х. На творчество музыкантов Crazy Lixx повлияли такие гранды рок-сцены, как Guns N' Roses, Aerosmith, Kiss, Whitesnake, Alice Cooper, Def Leppard и Mötley Crüe. Неся (   Читать дальше...   )01. Enter The Dojo (1:01)
+02. Rise Above (4:23)
+03. Anthem For America (3:40)
+04. The Power (4:20)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA5CED7F4634152B17E951854BCB04B3FD0DA00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511150   (789368) от 20.11.2021
+
+TwentyDarkSeven - Catch A Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking High Wire
+02. Broken
+03. Hypocrites And Parasites
+04. One Light Burning(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FFF5A83BCB560CC7A6C612A382AA7D6A870CC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511389   (789372) от 20.11.2021
+
+Power Reset - Dungeon Master (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Void (01:16)
+02. Mystic Quest (06:39)
+03. Instinctive Hunter (04:10)
+04. Faded Dreams (04:49)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E9AEE1598909905F51DA603DE16B225CD1F5AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511148   (789373) от 20.11.2021
+
+MILKOVSKYI (Женя Мильковский) - Вернуться домой (2021) [MP3|320 Kbps] <Punk, Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нужен кто-то [00:02:41]
+02. Вернуться домой [00:02:32]
+03. Одиноко [00:02:09]
+04. Под гудки [00:02:12](   Читать дальше...   )Жанр: Punk, Alternative, RockПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2AA1A100368D3F7F1D7976BCDD312E91266133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275877   (789392) от 13.01.2019
 
 Toto - Old Is New (2018) [FLAC|Lossless|tracks + .cue] <Rock, Soft Rock>
@@ -374,330 +698,6 @@ magnet:?xt=urn:btih:01AF7941BE1B730439CE8979E55B7D70427F15E3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3011D7107917A1363E9601320F9391F4C74CC996
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511022   (789726) от 19.11.2021
-
-Без Обмежень / БеZ Обмежень / Without Limits - Вільні люди (2021) [MP3|320 kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Забрала ніч (02:50)
-02. Вільні люди (02:56)
-03. ЛітоКамон (03:00)
-04. Малий (03:20)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08BCEE6D2C1B8F80B4123326ADC20E56018B597A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510957   (789729) от 19.11.2021
-
-Robert Plant & Alison Krauss - Raise The Roof (2021) [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quattro (World Drifts In)
-02. The Price Of Love
-03. Go Your Way
-04. Trouble With My Lover(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01:01:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502EEA77C8EE2285D1A18D620AEE0A46875067DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510908   (789733) от 19.11.2021
-
-Issa - Queen Of Broken Hearts (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels Calling (3:30)
-02. The Way Out (3:49)
-03. The Night It Rained Forever (3:39)
-04. I'm Here To Stay (3:49)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611FED632388D59F378A01E07465B8C5C072FA65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511023   (789752) от 19.11.2021
-
-Janis Joplin - The Very Best  Of Janis Joplin (1988) [FLAC|Lossless|tracks + .cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Bobby McGee
-02. Cry Baby
-03. Kozmic Blues
-04. Move Over(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D86ECD87F9424A95355A843586992E191208210
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510981   (789755) от 19.11.2021
-
-Танцы Минус - Ассонансы (2021) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789755.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. надаже
-2. рыба-кит
-3. теряя тень 2.0
-4. четыре страницыЖанр: RockПродолжительность: 00:14:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553784FCF4BE7A39B3E5B8DC9072535CB32D3A61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511026   (789758) от 19.11.2021
-
-Jimi Hendrix - 3 Albums (1972 - 1975) [FLAC|Lossless|tracks + .cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789758.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Message To Love 3:14
-2. Somewhere Over The Rainbow 3:31
-3. Crash Landing 4:16
-4. Come Down Hard On Me 3:17(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4833AC12C6CF3A4DDDA6763C746CBE776BC70D08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511054   (789798) от 19.11.2021
-
-Swallow The Sun - Moonflowers (2021) 2CD,  Deluxe Edition [FLAC 2.0|48/24|tracks|WEB-DL] <Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc - 1 - Moonflowers:
-1. Moonflowers Bloom in Misery (6:19)
-2. Enemy (5:39)
-3. Woven into Sorrow (7:46)(   Читать дальше...   )Жанр: Death Metal, Doom MetalПродолжительность: 01:24:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48604049C8328D36B85315E9E21575F80744D777
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511094   (789805) от 19.11.2021
-
-Exodus - Persona Non Grata (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persona Non Grata
-02. R.E.M.F.
-03. Slipping Into Madness
-04. Elitist(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147F68B466256640D2FC7344A516B121DC3C2155
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511069   (789809) от 19.11.2021
-
-Carl Sentance - Electric Eye (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas
-02. Alright
-03. Electric Eye
-04. Overload(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0344558C13C1925EF9615D3276FAE350D75975F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511062   (789817) от 19.11.2021
-
-Barnabas Sky - Inspirations (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legends Rise (feat. Danny Vaughn)
-02. What Lies Beneath (feat. Zak Stevens)
-03. In My Mind (feat. Danny Martinez Jr.)
-04. Yesterday’s Gone (feat. Rob Rock)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966A8FA3F0CE813C20DABCD9F02BF83D773EEBA7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202517   (789835) от 29.01.2018
-
-Heaven - Bent (1982) Unofficial, 1999, Heatsink Records [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789835.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fantasy
-2. Nothing To Lose
-3. Take You Higher
-4. Storm(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:422E6850E465325A8D9154A7CFE3BE3286DF2D49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511118   (789840) от 19.11.2021
-
-Cherokee - Blood & Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Classic Rock, Female Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bill Pullman
-02. My Sweet Tulip
-03. Just One Summer Long
-04. Il Grande Silenzio(   Читать дальше...   )Жанр: Melodic Hard Rock, Classic Rock, Female RockПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEF924294D74031AE67B20B1C7951766C37E093
 ```
 
 

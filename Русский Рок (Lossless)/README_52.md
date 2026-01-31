@@ -1,3 +1,30 @@
+###  Публикация: 940228   (469163) от 24.09.2015
+
+Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cue]<Symphonic Black / Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcane Grail
+02. Of Snake and Raven
+03. Autumn Wed Us, Sinned and Lone
+04. Renaissant the Reverie(   Читать дальше...   )Жанр: Symphonic Black / Melodic Death MetalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564705FE98B83A77987F1B3965E39F01E7B5948F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567634   (470191) от 04.08.2022
 
 Amatory - Книга мертвых (2006) Reissue, 15th Anniversary Edition, 2022, Self-Released [FLAC|Lossless|tracks + .cue] <Metalcore, Nu Metal, Alternative Rock>
@@ -696,33 +723,6 @@ magnet:?xt=urn:btih:5A2DDFA27A92DC9576DF475238E4F2E81F61A017
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564231   (500586) от 18.07.2022
-
-Джоконда - Каждый охотник желает знать (2021) [FLAC|Lossless|image + .cue] <Symphonic Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_500586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Симфония
-02. Каждый охотник желает знать
-03. На краю
-04. Костры из книг(   Читать дальше...   )Жанр: Symphonic Rock, Female VocalПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C4443599B4AB4DE7A7DF611BD902D1F1F9C5E3
 ```
 
 

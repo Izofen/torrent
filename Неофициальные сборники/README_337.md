@@ -1,3 +1,30 @@
+###  Публикация: 1152487   (565392) от 23.07.2017
+
+VA - Record Super Chart #495 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yellow Claw - Open  3:31
+02.  Fedde Le Grand vs. Ian Carey - Keep On Rising (Sensation The Final Anthem)  4:48
+03.  Dzeko - Fluxland 2017  2:39
+04.  Abel Ramos & Albert Neve - Flat Beat  4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5616BA134DBC5F2F7E49A5DC025FD995451EF006
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152694   (565396) от 23.07.2017
 
 VA - Impulse 5 (2017) [MP3|320 Kbps] <House, Trap, Chillout, Dubstep>
@@ -683,33 +710,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C3D9AE42FC83F7CD72D4A90B91852A999BF3AB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044306   (566953) от 19.08.2016
-
-VA - Summery Jazz (2016) [MP3|320 Kbps] <Jazz, Bossa Nova, Easy Listening>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_566953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ramsey Lewis - Summer Samba 03:08
-02. Kenny Burrell - Hot Bossa 04:41
-03. Stefon Harris - Summertime 07:17
-04. Grant Green - The Things We Did Last Summer 05:56(   Читать дальше...   )Жанр: Jazz, Bossa Nova, Easy ListeningПродолжительность: 02:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:873E43DF6FFC71F6A3AC315212A92A3CF3853E76
 ```
 
 

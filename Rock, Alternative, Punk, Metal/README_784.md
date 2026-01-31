@@ -1,3 +1,327 @@
+###  Публикация: 1313942   (522188) от 11.07.2019
+
+Batushka (Батюшка) - Hospodi (2019) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wozglas
+02. Dziewiatyj Czas
+03. Wieczernia
+04. Powieczerje(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E2A1DEB9095FD6DFCA9D10C388E1C1796D7D2E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241039   (522203) от 15.08.2018
+
+Firkin - Whup (2010) [FLAC|Lossless|tracks + .cue] <Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Whup Jamboree (00:02:30)
+02 - Sailing Away (00:03:24)
+03 - Beggarman (00:03:16)
+04 - Crazy Man Michael (00:03:43)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:173E97B3E521DC2C3DFC6A48843AA90A93EA7622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313882   (522263) от 11.07.2019
+
+L.A. Guns - Electric Gypsy Live (2019) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Over the Edge (Live)
+02 – Kiss My Love Goodbye (Live)
+03 – Never Enough (Live)
+04 – Sex Action (Live)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A000F44870F075A5433917C7876B214594A483D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313927   (522269) от 11.07.2019
+
+The Kills - Keep On Your Mean Side (2003) [FLAC|Lossless|tracks + .cue] <Blues Rock, Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superstition (4:40)
+ 02. Cat Claw (3:33)
+ 03. Pull A U (3:23)
+ 04. Kissy Kissy (5:03)(   Читать дальше...   )Жанр: Blues Rock, Alternative Rock, Indie RockПродолжительность: 00:42:027
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB20F5362F3A1AE956D9E2E1C899240BD0B41ABC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313903   (522311) от 11.07.2019
+
+VA - Вечное Лето (2004) [FLAC|Lossless|tracks] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Netslov - Ветер свободы
+02.Найк Борзов - Ангел и змея
+03.LP - Люби
+04.Ундервуд - Покуситесь на президента(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F529B6AD17274E7C49BCC1259AAB17204500A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313976   (522324) от 11.07.2019
+
+The Kills - No Wow (2005) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Wow/Telephone Radio Germany (4:48)
+ 02. Love Is A Deserter (3:49)
+ 03. Dead Road 7 (3:23)
+ 04. The Good Ones (3:30)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E56D95B3B7DA96B26D541175FD620E6C29BC5EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313990   (522326) от 11.07.2019
+
+The Kills - Ash & Ice (2016) [FLAC|Lossless|tracks + .cue] <Garage Rock, Lo-Fi, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doing It To Death (4:08)
+ 02. Heart Of A Dog (3:47)
+ 03. Hard Habit To Break (3:53)
+ 04. Bitter Fruit (4:15)(   Читать дальше...   )Жанр: Garage Rock, Lo-Fi, Indie RockПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB19B4F45C176CBFEF33A642D5935D4D6A1C89FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313975   (522327) от 11.07.2019
+
+The Kills - Midnight Boom (2008) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Garage Rock, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U.R.A. Fever (2:16)
+ 02. Cheap and Cheerful (2:27)
+ 03. Tape Song (3:36)
+ 04. Getting Down (2:56)(   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Lo-Fi, Indie RockПродолжительность: 00:34:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FF0CE0BC2B41D6A08A61661902033B31572ACB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313923   (522328) от 11.07.2019
+
+The Kills - Blood Pressures (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Garage Rock, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Starts Slow (4:05)
+ 02. Satellite (4:13)
+ 03. Heart Is a Beating Drum (4:20)
+ 04. Nail In My Coffin (3:33)(   Читать дальше...   )Жанр: Alternative Rock, Garage Rock, Lo-FiПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9DCF5AF6D0E0321F45D8615197184F847A255EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313890   (522354) от 11.07.2019
+
+The Kills - Black Rooster E.P (2002) EP [FLAC|Lossless|tracks + .cue] <Indie Rock, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cat Claw (3:33)
+ 02. Black Rooster (Fuck and Fight) (4:24)
+ 03. Wait (4:48)
+ 04. Dropout Boogie (Live at Paint it Black) (4:28)(   Читать дальше...   )Жанр: Indie Rock, Lo-FiПродолжительность: 00:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A22E24FF9E5D46BDF858FF5401A189F2D066B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927992   (522514) от 16.08.2015
+
+Celldweller - End Of An Empire (Chapter 04: Death) (2015) [FLAC|Lossless]<Industrial, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Faction 10  00:44
+02 - New Elysium  06:53
+03 - Precious One  06:49
+06 - New Elysium (Zardonic Remix)  05:06(   Читать дальше...   )Жанр: Industrial Metal, ElectronicПродолжительность: 01:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA847F05C963A10703A75894B0408481CA27CEFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928103   (522517) от 16.08.2015
+
+Revolution Saints - Revolution Saints (2015) [FLAC|image + .cue]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back On My Trail
+02. Turn Back Time
+03. You're Not Alone
+04. Locked Out Of Paradise(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D4860CBF52C8C1B56BFFE7BEB5A656BFFA56BBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928415   (522524) от 16.08.2015
 
 The Doors - Weird Scenes Inside The Gold Mine (1972) 2CD/2014,Elektra/[FLAC|image + .cue]<Psychedelic Rock, Blues Rock>
@@ -374,330 +698,6 @@ Our Dying World - 2 Albums (2019-2022) [MP3|320 Kbps] <Symphonic, Thrash, Death 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36ABD798C48D85F7F0BAC8F7412AFF5DB42AF91D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560038   (522719) от 27.06.2022
-
-Issin - Rock’N’Rave (2022) [MP3|320 Kbps] <Alternative Metal, Ravecore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Issin [00:04:05]
-02 Прыгай [00:03:58]
-03 Бессонница [00:05:33]
-04 Королевство Абсурда [00:03:50](   Читать дальше...   )Жанр: Alternative Metal, Ravecore, Post-HardcoreПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA6A7856A348FD2E7900060897964E894CCF17FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559860   (522772) от 27.06.2022
-
-Our Dying World - Hymns Of Blinding Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ars Moriendi (00:01:46)
-02 - Everything We Know Is Gone (00:04:44)
-03 - Under The Hunter's Blade (00:07:33)
-04 - Survivor (00:07:32)(   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA538C73E2450CB3E2ADF985776E022E85DCC2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559648   (522774) от 27.06.2022
-
-Mark Edwards - Land Of The Living (1986) 2xCD, Reissue, Remastered, 2021, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Переиздание Deluxe Edition на 2CD. Австралийский певец, автор песен и гитарист Mark Edwards записал свой единственный сольный альбом после распада популярной группы The Runners. Он подписал контракт с WEA Records и выпустил хит «Worlds Away» и альбом «Land Of The Living», выпустив еще 3 сингла с альбома. Также на альбоме представлены Michael Hegerty (Jimmy Barnes), (   Читать дальше...   )CD - 1:
-01. Land Of The Living (3:52)
-02. World's Away (4:15)
-03. So Listen (5:47)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD2DE348E6498C767EFBB980147D77CC742DAD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559972   (522776) от 27.06.2022
-
-Антифаза - 3 Albums (2021-2022) [MP3|320 Kbps] <Trip-Hop, Progressive Rock, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мятеж / Rebellion [00:03:22]
-02. Огонь / Fire [00:03:40]
-03. Магия / Magic [00:02:59]
-04. Кулак / Fist [00:02:21](   Читать дальше...   )Жанр: Trip-Hop, Progressive Rock, DarkwaveПродолжительность: 3 CD, 02:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2EA4EA6416B3024028381D1855422A5BC424983
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560013   (522784) от 27.06.2022
-
-Horned Wolf - Become Like They Are (2022) [MP3|320 Kbps] <Sludge Rock, Doom Metal, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 You're Boring [00:04:35]
-02 Bloodlines [00:06:10]
-03 Charnel House [00:05:41]
-04 Drag The Bayou [00:04:10](   Читать дальше...   )Жанр: Sludge Rock, Doom Metal, Stoner MetalПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C524DEA30B53D42F4B5EF5A1CE8D24042E36E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559697   (522787) от 27.06.2022
-
-Hush - The Pornography of Ruin (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Am Without Heaven and a Law Unto Myself (00:08:09)
-02 - Above Your Head They Close Like Giant Wings (00:08:25)
-03 - There Can Be No Forgiveness Without the Shedding of Blood (00:04:16)
-04 - By This Are You Truly Known (00:12:14)(   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B816B9444EE8C111DC9D3A0BAD46B847DED13C5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559994   (522788) от 27.06.2022
-
-Shrooms Circle - The Constant Descent (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - S.z (00:02:54)
-02 - Tne Unreachable Spiral (00:05:11)
-03 - Demotion (00:04:53)
-04 - Aversion (00:00:52)(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AB4A094CDBDDE96B3E49D4F5FAB47D2226A701
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559996   (522789) от 27.06.2022
-
-Bongskrap - Bong Voyage (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Hellucination Supreme [00:02:55]
-02 Desert Oak [00:05:48]
-03 Eternity Divided [00:04:16]
-04 Carnivorous Bong [00:05:04](   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:627A7B27CA3C5557B1BF6EB030D35851A4714A0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560021   (522790) от 27.06.2022
-
-Green Altar - Green Altar (2022) [MP3|320 Kbps] <Stoner Rock, Sludge, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Rise [00:09:37]
-02 Forgotten Cults [00:05:38]
-03 Of Stone [00:09:43]
-04 The Plague of Man [00:07:34](   Читать дальше...   )Жанр: Stoner Rock, Sludge, Doom MetalПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCA4E213DFCB616B802C52E7067E36FCDCFB27F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240905   (522840) от 14.08.2018
-
-Sonata Arctica - The Harvests 2007-2017 (2018) Japanese Edition, 2CD [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522840.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01 | The Wolves Die Young | 04:11
-02 | Paid in Full | 04:24
-03 | Life | 05:06(   Читать дальше...   )Жанр: Power MetalПродолжительность: 02:03:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F117C08AF13EDDF0D5FE6DF4C6778A7ECC37FE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240948   (522895) от 14.08.2018
-
-Dead Man's Whiskey - Under the Gun (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522895.jpg" />
-</div>
-
-
-###  Подробнее
-
-◈ 01 - Live, Loud And Ready (00:05:03)
-◈ 02 - This Fight (00:03:43)
-◈ 03 - My Year (00:05:23)
-◈ 04 - Hoe Street (00:05:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F170CCC513C678B71A185657F87C8683933A42D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313760   (522961) от 10.07.2019
-
-Stigmata - Калейдоскоп (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_522961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Истории (3:14)
- 02. Цунами (4:22)
- 03. До девятой ступени (4:23)
- 04. Сожжённый дотла (4:11)(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E012CAF505DD6FF6A58B525F2246D14B16DE7C76
 ```
 
 

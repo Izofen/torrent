@@ -1,3 +1,30 @@
+###  Публикация: 1026269   (703956) от 15.06.2016
+
+VA - Megahits Sommer 2016 (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_703956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kungs vs. Cookin' On 3 Burners - This Girl
+02. DNCE - Cake By The Ocean
+03. Willy William - Ego (Radio Edit)
+04. Galantis - No Money(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0986243DEB9857DE78DE3F0527C6DFF85E344E76
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026266   (703958) от 15.06.2016
 
 VA - Instrumental Chill Sound (2016) [MP3|320 кб/с] <Instrumental, Downtempo, Chillout>
@@ -677,33 +704,6 @@ VA - New Music Releases Week 9 (2019) [MP3|192-320 Kbps] <Pop, Hip Hop, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6353C5EE407E9BE033E44959C27EDA68622182C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131797   (705388) от 07.05.2017
-
-VA - Весенняя 100-ка популярных треков выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705388.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Саша Санта - По Платьицу 3:39
-002. Прогульщики - We Are Young 4:03
-003. Samoel - Я Не Такой 3:58
-004. Егор Крид - Самба Белого Мотылька 3:06(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CEDFFB554294E727918B7BFDD29E67A3A44953
 ```
 
 

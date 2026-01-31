@@ -1,3 +1,30 @@
+###  Публикация: 972587   (981998) от 06.01.2016
+
+VA - Secret Massive Presets Control (2016) [MP3|212-320 кб/с] <Club, Bigroom, Future House, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_981998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fabelhaft Ft. Carmen & Camille - Bringing Me Back (Radio Edit) 03:31
+02. Dustin Mccoi - What You Want (Dayne S Remix) 06:21
+03. Eric Prydz - Opus (Original Mix) 09:03
+04. Dave Dean Feat. Kate Maerz - Will U Ever (Club Mix) 04:22(   Читать дальше...   )Жанр: Club, Bigroom, Future House, ProgressiveПродолжительность: 07:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30147BA4EAC7C93E65E148F9C9DC4E814B03D53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972446   (982000) от 06.01.2016
 
 Calypso - We Move The Jumpin' Hype! (1996) Digitally Remastered [MP3|320 кб/с] <Rave, Hardcore, Hard Trance>
@@ -686,33 +713,6 @@ VA - Fantasy Chillout Selection (2015) [MP3|320 кб/с] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7253E9002D64BDECE182817B536325ED1E19387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355071   (984866) от 25.01.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 24.01.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_984866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
-02. Rompasso - Paradise 2:51
-03. Zivert - Credo 3:04
-04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1B92A178B65F265DA86BF15523D75A4E9E3FEA
 ```
 
 

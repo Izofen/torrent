@@ -1,3 +1,30 @@
+###  Публикация: 1309675   (549187) от 21.06.2019
+
+VA - Дискотека 2019 Dance Club Vol. 191 от NNNB (2019) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_549187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka 2019!):
+
+001. DJ Layla feat. Sianna - Poison
+002. Styline - FIRE!(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 14:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A87EF1602A28A24829F51C2D9DB5A480EFFCB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046711   (549247) от 30.08.2016
 
 VA - Танцевальный ритм - 8 (2016) [MP3|256 Kbps] <Pop>
@@ -668,33 +695,6 @@ VA - Prime Elegante Chanson Francaise (2019) [MP3|320 Kbps] <Shancon, Folk, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18DFA95BFF52EB24D82056B8F64FD12B225A76BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047393   (550250) от 29.08.2016
-
-VA - 150 Cross Amsterdam: Summer Dance Party (2016) [MP3|~270-320 Kbps] <Dance, Club, House, Electro, Funky, Hands Up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550250.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sia - Cheap Thrills (Feat. Sean Paul)
-002. Avicii Vs Conrad Sewell - Taste The Feeling
-003. Birdy - Keeping Your Head Up (Don Diablo Remix) (Radio Edit)
-004. Mike Posner - I Took A Pill In Ibiza (Seeb Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro, Funky, Hands UpПродолжительность: 09:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877711257348CD568F2006E171E502192A1D537D
 ```
 
 

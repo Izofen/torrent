@@ -1,3 +1,30 @@
+###  Публикация: 1038199   (608699) от 27.07.2016
+
+VA - TOP Non-Stop 2010-2015 - Lounge, Chillout, Ambient. Vol.3 Classic 2000-2009 (2015) [MP3|112-320 Kbps] <Chillout, Lounge, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 | Ydille, E. Smidt | Meeting The Unexpected | 05:00min
+002 | Naomi | Anybody Here (Album Version) | 04:37min
+003 | Kinema | Katia | 05:05min
+004 | Neotropic | Beached | 05:33min(   Читать дальше...   )Жанр: Chillout, Lounge, AmbientПродолжительность: 06:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95910B3F60878396134092DFB53ED8C43705A67D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038185   (608703) от 27.07.2016
 
 VA - The Sun In My Hands: Instrumental Chill Jazz (2016) [MP3|320 Kbps] <Chill, Smoot Jazz, Instrumental>
@@ -680,33 +707,6 @@ VA - Chilled Sexy R&B 2016 - The Ultimate Sexy Rnb Chillout Slow Jams (R and B) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F5003ABDEA37C71E6FC3E99ED6A1D9DBEEA5697
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296731   (610048) от 18.04.2019
-
-VA - Зайцев.Нет лучшие новинки (Апрель) (2019) [MP3|320 Kbps] <Поп, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MOLLY - Набери мой номер (Vintage 1988 год, CCCР)
-02. Баста - Музыка будь со мной
-03. Клава Кока feat. Тимати - Девочка-пай
-04. Максим Свобода, Soufee - Котёнок у проруби(   Читать дальше...   )Жанр: Поп, Dance, RockПродолжительность: 04:49:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50ECC2D48FB55F87E84F99474228F093B9C9AB46
 ```
 
 

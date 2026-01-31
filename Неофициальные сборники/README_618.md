@@ -1,3 +1,30 @@
+###  Публикация: 1094084   (930951) от 17.01.2017
+
+VA - Trance Kaleidoscope (2017) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930951.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aurosonic, Sue Mclaren - Captured By Gravity (Original Mix) 8:08
+002. Fabio Xb & Liuck Feat Roxanne Emery - Nowhere To Be Found (Craig Connelly Remix) 6:23
+003. Juventa - A Thousand Words (Original Mix) 7:41
+004. 4 Strings - Wondering (Original Mix) 6:02(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 11:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5103F4B1D78B8D16148FA5969B44799A78B5E5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985918   (931044) от 14.02.2016
 
 Город 312 - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|256 кб/с] <Поп, Интервью>
@@ -668,33 +695,6 @@ VA - Beatport Deep House: Electro Sound Pack #27 (2020) [MP3|320 Kbps] <Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ED91ABEDE8FCD62130F981C783569D71AEE9CD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364924   (933803) от 05.03.2020
-
-VA - Beatport Electro House: Pack #19 (2020) [MP3|320 Kbps] <Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_933803.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alexey Sonar - Flight To Shambala
-002. Sasha - Trigonometry
-003. Ralphie Boss - Whithout Any Desire
-004. Deep Makers - I Watch You Arrive(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 13:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFB762F6ED4372BDE1253B233760194A1C81AFC0
 ```
 
 

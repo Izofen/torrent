@@ -1,3 +1,84 @@
+###  Публикация: 1479375   (1009259) от 26.06.2021
+
+Винтаж (Анна Плетнева) - 9 альбомов, 4 сборника, 1 концерт, 23 сингла (2007-2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009259.jpg" />
+</div>
+
+
+###  Подробнее
+
+2007 - Криминальная любовь
+2009 - Sex
+2011 - Анечка
+2013 - Very DanceЖанр: PopПродолжительность: 13:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCADEA3489214F0425094D29B5339AA54FFCD8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479926   (1009298) от 26.06.2021
+
+Andy Williams - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Vocal, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Howard Andrew Williams (3.12.1927 - 25.09.2012) - американский певец, который провел на музыкальных подмостках 74 года своей жизни и активно занимался музыкальной индустрией вплоть до своей смерти в 2012 году. За свою карьеру он записал 43 альбома, 18 из них стали золотыми и 3 получили платиновый сертфикат. По всему миру было продано более 100 млн пластинок с его (   Читать дальше...   )CD - 1:
+01. Can't Get Used To Losing You (2:21)
+02. Music To Watch Girls By (2:31)
+03. Speak Softly Love (Love Theme from ''The Godfather'') (3:03)(   Читать дальше...   )Жанр: Pop, Vocal, OldiesПродолжительность: 03:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F34B1B2749C17246DBBDF340AF5D36D028E911B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1479598   (1009559) от 24.06.2021
+
+VA - Female Voices (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia Rodrigo - drivers license (04:02)
+02. Hailee Steinfeld - Let Me Go (02:54)
+03. Selena Gomez - Lose You To Love Me (03:26)
+04. Bülow - Revolver (02:48)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89ACE4757128EFAF306585D303EF1E4BD37B4265
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479490   (1009586) от 24.06.2021
 
 VA - You're In My Heart: Acoustic Love Ballads (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -614,87 +695,6 @@ VA - Сборник 15-NP-Love Songs. Vol.1 (1994) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D56C59346C3BCAF63E32741AA826CBF5BE33F7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475158   (1012429) от 06.06.2021
-
-Anabel Englund - Messing With Magic (2021) Deluxe Edition [FLAC|LOSSLES-Web-DL] <Dance, Synth-pop, Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Hot (MK x Nightlapse Remix) [00:03:45]
-02. Float [00:03:32]
-03. Picture Us [00:02:37]
-04. Spell My Name [00:02:53](   Читать дальше...   )Жанр: Dance, Synth-pop, Dance-popПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77650AEC1A9704894B59DA37BE41D635F3E6ECC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475251   (1012439) от 06.06.2021
-
-Najwa - AMA (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Muñequita Linda
-02. Solamente Una Vez (con Israel Fernández)
-03. Esta tarde vi llover (feat. Rusowsky)
-04. Perfidia(   Читать дальше...   )Жанр: PopПродолжительность: 00:26:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4C3270352C53C5915A5925354C38E39C42FBEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474886   (1012694) от 04.06.2021
-
-Little Big - COVERS (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1012694.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Everybody (Little Big Are Back)
-2. Blitzkrieg Bop
-3. Barbie Girl
-4. Koldunya(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5291EDB78FFF255BAED487615DDDC1E70CB65C2A
 ```
 
 

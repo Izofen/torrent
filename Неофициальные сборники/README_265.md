@@ -1,3 +1,30 @@
+###  Публикация: 943862   (444611) от 05.10.2015
+
+VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 16) (2015) [MP3|320 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444611.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fr David & Dj Nikolay-D - Words(Dj Nikolay-D Remix ) (04:16)
+02. Fancy - Fools Cry(Dj Nikolay-D & Joemix Dj Remix ) (07:48)
+03. Silent Circle - Shy Girl(Dj Nikolay-D & Joemix Dj Remix ) (05:25)
+04. Johnny M5 & Dj Nikolay-D - Moscow Nights(Dj Nikolay-D Bonus Remix ) (07:04)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D366B762166675471348AEB2080E08E8D1648CFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943877   (444615) от 05.10.2015
 
 VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 17) (2015) [MP3|320 кб/с]<Italo Disco, Disco, Pop>
@@ -680,39 +707,6 @@ VA - Шансон 2012 года 3 Части (2012) [MP3|320 кб/с]<Шансо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A281038C3A40A58C83C9E15A1E05B205453F3F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552905   (446225) от 27.09.2012
-
-VA - Рашн Дэнс на DFm (2012) [MP3|256 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_446225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J'Well & Dmitry Eremyan - Маруся (Radio Edit)
-02. Max Vishnevsky - Кадриль (2012 mix)
-03. Ruslan Nigmatullin - La Cucaracha (Radio Mix)
-04. Братья Грим - Парашюты (DJ Aleksey Rubcoff Remix)
-05. Юлия Савичева - Сердцебиение (DJ Tarantino Remix)
-06. DJ Niki feat. Soda - Красивые слова (Radio Edit)
-07. DJ Vengerov feat. Сати Казанова - Буэнос-Айрес (Remix)
-08. Roma Kenga - Ты Будешь Счастливои? (Anton Orf & Dj Gladiator Radio Edit)
-09. DJ Smash - Young Hearts (Original Mix)
-10. Саша Зверева - Схожу С Ума (DJ Kostas & DJ Yonce Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 07:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B184D336B10752947E8F46AE4BDCD2A6B6CFE4
 ```
 
 

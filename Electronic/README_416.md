@@ -1,3 +1,30 @@
+###  Публикация: 1274244   (794165) от 06.01.2019
+
+NSDOS - Discography 5 Releases (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental, Field Recording>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DISPERSION (06:16)
+ 02. INTERACTION (07:31)
+ 03. MOTIVATION (05:19)
+ 04. DILUTION (07:50)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/Ambient/Musique Concrete/ExperimentalПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C359716CED1F0C7B83B8C4CEBDA736C72770013
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274282   (794169) от 06.01.2019
 
 VA - Cratediggers (2019) [MP3|320 Kbps] <House, Tech House>
@@ -663,31 +690,6 @@ System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBD8DF03380372DD33CFB4702EB4FC4C38173123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274051   (795071) от 05.01.2019
-
-Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road To Beijing (05:53)
- 02. Road To Beijing (Raffaele Attanasio LFJ Version) (04:16)Жанр: Techno, Deep HouseПродолжительность: 00:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697C307082D9964A129CCAA0E7079073D4CE398C
 ```
 
 

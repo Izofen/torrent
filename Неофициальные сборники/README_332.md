@@ -1,3 +1,30 @@
+###  Публикация: 1153567   (558279) от 27.07.2017
+
+VA - Top Selection Trance Today (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mind-X - Fantasy (Extended Mix)  6:11
+02.  Paul Denton - Zombie (Original Mix)  6:59
+03.  Mehdi Belkadi - Beautiful Goodbye (Original Mix)  6:02
+04.  Steve Allen & UDM pres. Nightflyers - Nightflyers  3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:26:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE88E5D08A052BA22FA203E634D09ABCA74BC36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530739   (558566) от 04.08.2012
 
 VA-Сборник нашего радио 2012 (2012) [MP3|256 кб/с]<Rock>
@@ -719,33 +746,6 @@ VA - Golden Vinil Time: Popular Disco Music Of The 70s (2019) [MP3|320 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41CB42E03D800D1685FCE5E0B798A146BDA9AA6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556441   (559721) от 09.06.2022
-
-VA - I'm Listening Now (2022) [MP3|320 Kbps] <Club, House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anturage & Alexey Union - I Can't Hide (Original Mix) (7:00)
-02. Elazion feat. George Sunday - One Step Closer (Retriv Remix) (3:35)
-03. Chris Yank - Люби меня (Winstep Remix) (3:38)
-04. MATUNO DADDY DJ - Komissar - Ты Уйдешь (Matuno Radio Remix) (3:45)(   Читать дальше...   )Жанр: Club, House, OtherПродолжительность: 04:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E07FD7BD1E6D6ECDCD863BE2C14379C37A9CD2B
 ```
 
 

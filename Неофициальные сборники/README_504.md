@@ -1,3 +1,30 @@
+###  Публикация: 1207804   (780422) от 19.02.2018
+
+VA - Empire Records - Chill Progress 2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daxsen & Tony Moss & INDATWIN & Juralis  -  Gravity (Forever Yours) (Juralis Remix)  4:15
+02.  Thomas Lemmer  -  A IV (Original Mix)  4:14
+03.  Klangstein  -  Klangsine (Part 2) (Original Mix)  4:43
+04.  Ju'Go  -  Ocean (Original Mix)  6:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA651A858345F1126F592F4E38C31596CBA5BEC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207630   (780424) от 19.02.2018
 
 VA - Empire Records - Fake 2 (2017) [MP3|320 Kbps] <Trance>
@@ -672,33 +699,6 @@ VA - The Great Drum Wave (2020) [MP3|320 Kbps] <D&B, Bassline>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93AB8025FCE82B87D3326E31C2AFA740E6F625F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206931   (781274) от 16.02.2018
-
-VA - Music For Running: Sport Electro Mix (2018) [MP3|320 Kbps] <Techno, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781274.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fernando Bavaro - Dark Ecos (Remake)
-002. Hammer - Rails
-003. Marcelo Paladini - Flying Bubble
-004. Hirosher - Geometrically(   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 12:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E68C79BB33BF6DBA7A81BD2B4824A0AC228AA1
 ```
 
 

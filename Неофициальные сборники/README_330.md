@@ -1,3 +1,29 @@
+###  Публикация: 1305931   (555930) от 02.06.2019
+
+VA - German Top 100 Single Charts 07.06.2019 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555930.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Samra & Capital Bra - Wieder Lila
+002. Juju - Vermissen (feat. Henning May)
+003. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1737740809138CDA8015C0D68CAB4DE3B1720A62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305892   (555931) от 02.06.2019
 
 VA - Record Super Chart 589 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -668,33 +694,6 @@ VA - Top 100 Зайцев.Нет Июнь 2018  [MP3|320 Kbps] <Pop, Dance, Othe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B3FF29B0D922D09F580612D845938AB16C59EBB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924709   (557275) от 04.08.2015
-
-VA - 100 золотых зарубежных хитов 80 - 90-х (2015) [MP3|320 кб/с]<Dance, Disco, Eurodance, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_557275.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Ross - Valentino Mon Amour
-002. Annie Anner - Night In The City
-003. Antares - Ride On A Meteorite
-004. Apotheosis - O Fortuna(   Читать дальше...   )Жанр: Dance, Disco, Eurodance, PopПродолжительность: 08:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2257DB57DFEF950A950E7528192FD8A96CE89FB2
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 925440   (541489) от 06.08.2015
+
+VA - Lounge Surprise (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Mundi - Simple Ou Double - Original Mix
+02. Cesar Martinez Ensemble - Abaco - Original Mix
+03. Mario Pinosa Trio - La Fuente Funk - Original Mix
+04. The Sura Quintet - Intimacy - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70281D835F9DA1CE5D295A73B794185AFB000E44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1311309   (541792) от 29.06.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 28.06.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -734,33 +761,6 @@ VA - Alterportal HITS 15 Vol. 83 - July (2015) [MP3 | 128-320 кб/с]<Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CDA0BB55A70A66F7571936D95C11ED625F1B151
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925008   (543007) от 05.08.2015
-
-VA - Hits Dance 2015 Surrender (2015) [MP3|320 кб/с]<Pop, Disco, Hands Up, Club, EDM>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L.A.R.5 & Mg King - Work It Out (Radio Edit)
-02. Etania - Warriors Of Love (Radio Edit)
-03. Denis Pewny Feat. Julia - Hero (Club Mix Edit)
-04. Tainos Feat. Alycia Stefano - Pam Pam (Latin Edit)Жанр: Pop, Disco, Hands Up, Club, EDMПродолжительность: 11:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84E5997E63481FF645C7F7A40E57D4B3A39549E
 ```
 
 

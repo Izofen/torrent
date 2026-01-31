@@ -1,3 +1,30 @@
+###  Публикация: 1287963   (699634) от 09.03.2019
+
+VA - Sing A New Song (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699634.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bobby Kalphat & The New Establishment - Adis A Wa Wa
+002. Glen Washington - One Day
+003. Mister Bis - Champagne A Flot
+004. Nomad - Celebration(   Читать дальше...   )Жанр: Reggae, Dub Ska, SoulПродолжительность: 09:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AAA32A3BA5695F0428B6A7E577C4CC510974217
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287964   (699770) от 09.03.2019
 
 VA - Techno House: Fashionable Music (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
@@ -668,33 +695,6 @@ VA - Club Dance Dependence Vol.7 (2017) [MP3|256-320 Kbps] <Club , Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E50C7AE5849A920DBC64C405849208306017D4BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132368   (701018) от 09.05.2017
-
-VA - Club Dance Ambience Vol.108 (2017) [MP3|320 Kbps] <Club House, Vocal House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_701018.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 20 Fingers Ft. Roula - Lick It (Block & Crown & Mike Ferullo Remix) 5:26
-002. Alaia & Gallo, Kevin Haden - Go (Original mix) 5:56
-003. AlexEnn - Come In Time  (Original mix) 3:20
-004. Alok - Never Let Me Go (Extended Mix) 4:14(   Читать дальше...   )Жанр: Club House, Vocal House, HouseПродолжительность: 07:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A99340F0DE0391B1DA2AE12ECFAC04127AEFBAF
 ```
 
 

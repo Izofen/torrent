@@ -1,3 +1,189 @@
+###  Публикация: 1031632   (651475) от 04.07.2016
+
+Kamal - 17 Альбомов (1987 - 2010) [FLAC|Lossless|tracks] <New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oregon hills    05:58
+02.  On my wings    04:24
+03.  Bonjour Nico    05:30
+04.  Shakuhaji tales    06:21(   Читать дальше...   )Жанр: New Age, Meditative, Relax |Продолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D85E8D29D2241B7D5DCBCC96036524D0FAD814
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031488   (651479) от 04.07.2016
+
+Cliff Martinez - The Neon Demon / Неоновый демон (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neon Demon (03:23)
+02. Mine (by Sweet Tempest) (03:43)
+03. The Demon Dance (by Julian Winding) (06:00)
+04. What Are You (01:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9A093ED9198EB5DAAD601A270C5AAD8FB6BFEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031467   (651480) от 04.07.2016
+
+Alexandre Desplat - The Secret Life of Pets / Тайная жизнь домашних животных (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Pets (02:38)
+02. Katie's Leaving (00:56)
+03. Meet Duke (03:37)
+04. Fetch Me a Stick (03:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:166D8140ABCFF48DFE3CAD61D506491529DD283F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031092   (651481) от 04.07.2016
+
+VA - Jam On Guitars (2009) [FLAC|Lossless|image + .cue] <Instrumental rock>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Took The Words Right Outta My Mouth 4:56 Michael Lee Firkins
+02. Free In The Park 4:35 Steve Morse
+03. Scorch 7:14 Alex Skolnick Trio
+04. Dance To The Music 4:32 The Clinton Administration(   Читать дальше...   )Жанр: Instrumental rockПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD891BCF5EC98C4A886CB99441B4827CF56ADBF8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031594   (651656) от 04.07.2016
+
+Music From The World Of Osho - Shadow Of The Pines (2000) [FLAC|Lossless|tracks] <New Age, Folk, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hot Season    04:23
+02.  Ummon's Hut    02:38
+03.  Lord of the Full Moon    04:21
+04.  Ancient Echoes    02:25(   Читать дальше...   )Жанр: New Age, Folk, WorldПродолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C59A7BC80F898597C3A961311F21C4C04DCF83E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031043   (651789) от 04.07.2016
+
+Llewellyn - Angel Sleep: Music for Blissful Sleep (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Sleep. Music for Blissful Sleep (Full Album Continuous Mix) [01:02:38]Жанр: New AgeПродолжительность: 01:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4E66E9068805A631AC6BB281F9B746EFED2D88
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031468   (651807) от 04.07.2016
+
+Paul Sills - Night Spa (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Space [00:18:02]
+02. Angelic Whispers [00:11:14]
+03. Lit by Stars [00:12:35]
+04. Floating Spa [00:12:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F834A88065C4083719463A607C451BF6CCE69EE1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031614   (651997) от 04.07.2016
 
 Catherine Duc - Voyager (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -547,210 +733,6 @@ Kate Ellis - Carve Me Out (2017) [FLAC|Lossless|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84190B82C8971BE759E975753B9C30434227B68B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139770   (658112) от 04.06.2017
-
-Danielle Egnew - You've Got to Go Back the Way That You Came (2017) [FLAC|Lossless|tracks] <Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stones (4:36)
-02 - Go Be Love (4:09)
-03 - Not Dead Yet (3:59)
-04 - Temperance (4:13)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B6C55B26F7A890A4E4CA0E5B7AB0ADAEF03DA2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514537   (658151) от 24.06.2012
-
-Wulfin Lieske - Spanish Guitar Music (1992) [FLAC|Lossless]<Classical Guitar>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_658151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Francisco Tárrega ( 1852 - 1909 )
-01. Capricho Arabe (Serenata) [05:25]
-02. Preludio No. 1 D-Moll/In D Minor [01:06]
-03. Endecha (Klage/Lament) [01:02]
-04. Oremus [00:48]
-05. Preludio No. 6 H-Moll/In B Minor [00:46]
-06. Preludio No. 2 A-Moll/In a Minor [01:43]
-07. Preludio No. 5 E-Dur/In E Major [01:32]
-08. Preludio No. 13 A-Moll/In a Minor [00:53]
-09. Lagrima (Preludio) [01:43](   Читать дальше...   )1992Жанр: Classical GuitarФормат: CDПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514324   (659118) от 23.06.2012
-
-Land of Kush - 2 albums (2009-2010) [FLAC|Lossless] <Avant-garde, Free Jazz, Post-Rock, Experimental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_659118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The 1st And The Last (06:07)
-02. Scars (17:26)
-03. Boo (04:00)
-04. Tunnel Visions (09:05)
-05. Fisherman (14:40)
-06. Monogamy (09:41)
-07. Like The Thread Of A Spider (05:04)2009-2010Жанр: Avant-garde, Free Jazz, Post-Rock, ExperimentalПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139662   (659194) от 03.06.2017
-
-David Hicken - Portrait of a Pianist (2017) [MP3|320 Kbps] <Classical, Neoclassical, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Repercussions
-02. Magdalena
-03. Valhalla
-04. Delia(   Читать дальше...   )Жанр: Classical, Neoclassical, New AgeПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA13E5DF9B0AC2AE8217469433FD3E361B01735
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903194   (659214) от 30.05.2015
-
-Joe Hisaishi - И солнце снова взойдёт / The Sun Also Rises (2007) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ikuo Kakehashi - Singanushiga (3:32)
-02. Joe Hisaishi - Prologue - When Madness Sets In (4:22)
-03. Joe Hisaishi - Just Call Me Aloysha (1:09)
-04. Joe Hisaishi - Madman On A Tree (1:17)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:544E0A6223E1332AE5E1982EFE9EDACDD8B3D29C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514207   (659283) от 23.06.2012
-
-VA - Treme: Music From the Original HBO Series Season 2 (2012) [MP3|320 кб/с]<Jazz, Blues, Folk, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hot 8 Brass Band - New Orleans After The City (4:13)
- 2. Galactic, Juvenile, Dirty Dozen Brass Band - From The Corner To The Block (3:45)
- 3. The Subdudes - Carved In Stone (3:55)
- 4. John Boutté, Michiel Huisman, Lucia Micarelli, Paul Sanchez - Sisters (3:30)
- 5. David Torkanowsky, Lucia Micarelli - Spring Can Really Hang You Up The Most (4:02)
- 6. Tom McDermott, Evan Christopher, Lucia Micarelli - Heavy Henry (3:19)
- 7. Henry Butler - Mama Roux (3:58)
- 8. Kermit Ruffins & The Barbeque Swingers - What Is New Orleans (2:48)
- 9. Rebirth Brass Band - Take It To The Street (3:11)
- 10. DJ Davis & The Brassy Knoll - Road Home (2:42)(   Читать дальше...   )2012Жанр: Jazz, Blues, Folk, SoundtrackПродолжительность: 01:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:389D42F07123DC4B3FD930B911EA82CED62B8BCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 902762   (659611) от 29.05.2015
-
-Hotline Miami 2 - OST (2015) LP & EP [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quixotic (Scattle Remix) [03:52]
-02. Dust (Carpenter Brut Remix) [04:59]
-03. Bloodline (M|O|O|N's Extra Cheese Mix) [06:53]
-04. Roller Mobster (Scattle Remix) [03:59](   Читать дальше...   )Жанр: OSTПродолжительность: 03:47:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4398509BD462B3276C4A74461882B4064D6278E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1471098   (1015299) от 19.05.2021
+
+VA - Music News vol.101 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1015299.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cher - Walls (03:32)
+ 002. Aespa - Next Level (03:42)
+ 003. Amorphous & Kehlani - Back Together (04:09)
+ 004. Anton Lacosta - Back (02:05)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25F12ECBD9C129B75990C94E07BF177C8D9EA957
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1470906   (1015307) от 19.05.2021
 
 VA - Hardcore Dance: Music For Heavy Fitness (2021) [MP3|320 Kbps] <Hardcore, Hardstyle, Hard Dance>
@@ -668,33 +695,6 @@ VA - Вечный Аншлаг (2021) [MP3|320 Kbps] <Шансон>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:49DB6D7F8C543DF91AA62D7992195DBC99AFABC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468544   (1017031) от 08.05.2021
-
-Brian Johnson - Brian Johnson & Geordie & AC DC (2007) Compilation, Unofficial Release [MP3|320 Kbps] <Heavy Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Black Cat [00:04:11]
-02-Natural Born Loser [00:03:23]
-03-Ain't It Just Like A Woman [00:03:18]
-04-Strange Man [00:04:17](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E0D20A480B7AC84F66F40390D903D5651DB53B
 ```
 
 

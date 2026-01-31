@@ -1,3 +1,327 @@
+###  Публикация: 1499779   (846176) от 03.10.2021
+
+Beast In Black - Berserker (2017) [FLAC|Lossless|image + .cue] <Heavy Metal,  Melodic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beast in Black [4:29]
+ 02. Blind and Frozen [5:05]
+ 03. Blood of a Lion [5:04]
+ 04. Born Again [3:51](   Читать дальше...   )Жанр: Heavy Metal,  Melodic Power MetalПродолжительность: 00:51:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F07EEFD97F958009F4AC968FFEF0621DCC6C3CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499716   (846179) от 03.10.2021
+
+Roger Taylor - Outsider (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tides
+02. I Know, I Know, I Know
+03. More Kicks (Long Day’s Journey Into Night… Life)
+04. Absolutely Anything(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B8B2147679C62C34C373B4598DE6879DEA98B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499655   (846185) от 03.10.2021
+
+Ringo Starr And His Third All-Starr Band - Ringo Starr And His Third All-Starr Band Volume1 (1997) Reissue, 2021, Grey Scale [FLAC|Lossless|image + .cue] <Soft Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учитывая неутешительные продажи двух предыдущих концертных альбомов All-Starr Band, Ringo Starr решил не выпускать этот релиз на крупном, или даже на обычном звукозаписывающем лейбле. Третий альбом All-Starr Band вышел ограниченным тиражом 12.08.1997 и был доступен только в магазинах Blockbuster Music в течение короткого времени по крайне низкой цене в $5,99. И в (   Читать дальше...   )01. Don't go where the road don't go (4:51)
+02. I wanna be your man (3:25)
+03. It don't come easy (3:54)
+04. Locomotion (3:23)(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5274373EFA970237FCC78EB91AABDEDB9D7973B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499868   (846314) от 03.10.2021
+
+The Raven Age - Exile  (2021) [MP3|320 kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 No Man's Land 05:11
+02 Wait for Me 04:31
+03 Fireflies 07:43
+04 As the World Stood Still 05:11(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDAAC2CCBE7D6295C7CC230E44976A62AD6F3BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499772   (846318) от 03.10.2021
+
+Lancelot EC - Renacer (2021) [FLAC|Lossless|WEB-DL|tracks] <Sympho Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ex Umbra In Solem
+02. Cuando Llegue el Dia (Reissue 2021)
+03. El Elegido
+04. Los Dominios del Viento (Reissue 2021)(   Читать дальше...   )Жанр: Sympho Power MetalПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEA8F124CFC9A5DD4A977F18B2F6F1D21F361E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499767   (846319) от 03.10.2021
+
+Imago Imperii - A Tale Of Darkness And Hope (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories from Hell (Intro) (01:55)
+02. Look at the Stars (05:07)
+03. Forbidden Love (03:59)
+04. The Accusation (04:19)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1B6709C7B4A78A2BCD82D386E86D811A3C994D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499715   (846321) от 03.10.2021
+
+Room 7 - V.I.I (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rapture (04:30)
+02. Highwayman (04:43)
+03. Room 7 (03:55)
+04. Wasted (03:02)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D6FEF91B298A00EC3E10FAF63E684070FAF56E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499765   (846324) от 03.10.2021
+
+Offensive - Awenasa (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seer of Vision (feat. Roy Z)
+02. Song of Victory (feat. Matias Kupiainen, George Call)
+03. At the Gates (feat. Matias Kupiainen)
+04. Raise Your Head High (feat. Matias Kupiainen)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5837FAEBE1825096BA048C944586262937510AF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111704   (846488) от 06.03.2017
+
+Danny Vaughn - Traveller (2007) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вокалист Дэнни Вогэн впервые обратил на себя внимание в составе группы WAYSTED, образованной басистом UFO Питом Уэйем. Слушатели оценили его вокал на альбоме "Save You Prayers" (1986), а также сценическую работу в составе группы на разогреве самих IRON MAIDEN. В 1990-м он сформировал группу TYKETTO, ставшую сенсацией на мелодик-рок-сцене, а альбом группы (   Читать дальше...   )01. Miracle Days  (5:55)
+02. Badlands Rain  (3:41)
+03. Traveller  (4:43)
+04. Restless Blood  (4:15)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126B2C6C54AD78E1AB6C1CB8DAE2489C08E8E1C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378443   (846605) от 25.04.2020
+
+Paloma Faith ‎ - A Perfect Contradiction (2014) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Indie Rock, Blues, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Rely On You (03:15)
+02. Mouth To Mouth (04:24)
+03. Take Me (03:10)
+04. Only Love Can Hurt Like This (03:53)(   Читать дальше...   )Жанр: Indie Rock, Blues, AcousticПродолжительность: 00:53:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:151C2C568BEE749714E80285ECBFD755570640E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111717   (846643) от 06.03.2017
+
+Tyketto - 5 Albums (1991 - 2016) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846643.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Tyketto" является одной из лучших и в то же время одной из самых недооцененных групп, производивших мелодичный радиоформатный рок. Эта нью-йоркская команда так и не смогла добиться значительного успеха, хотя ее симпатичные AOR-песни с величественным вокалом заслуживали гораздо большего внимания. Проект был образован в конце 80-х годов вокалистом Дэнни (   Читать дальше...   )Список альбомов:
+1991 - Don't Come Easy (2007 Re-issue)
+1994 - Strength In Numbers
+1995 - Shine(   Читать дальше...   )Жанр: Hard Rock, Melodic Rock, AORПродолжительность: 04:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E46B0EFF88DDB9BD5E715082867AB6900104C46
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859040   (846652) от 06.03.2017
+
+Myra - 3 Альбома + 1 EP (2008-2016) [FLAC|Lossless|tracks+.cue]<Metalcore, Hardcore, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846652.jpg" />
+</div>
+
+
+###  Подробнее
+
+2008 - The Venom It Drips (European Label Group, ELG 008-1)
+2010 - Godspeed (European Label Group, ELG 011-1)
+2014 - Valley (Kick The Flame Publishing, 4250137212074)
+2016 - Collapse x Rise x Defeat x Repeat (EP, Kick The Flame Publishing, KTFR0194DD)Жанр: Metalcore, Hardcore, Thrash MetalПродолжительность: 02:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7E8B6691CE8195B56CC5A030C829FDF5BEC62D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111654   (846658) от 06.03.2017
 
 Heat Exchange - Reminiscence (1972) remastered, 2017 [FLAC|Lossless|WEB-DL|tracks + .cue] <Prog, Hard Rock, Psychedelic>
@@ -371,327 +695,6 @@ magnet:?xt=urn:btih:F323B9860291FFC0705C86B77A51D39A2FDEE08B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB3AF8F5BFADB177BDDBBA1C09ED04B1EDDDA1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378052   (847667) от 24.04.2020
-
-АукцЫон - Мечты (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Догоняя волны
-02. Сердце
-03. Мечты
-04. Очень белые глаза(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73781D6E2BC16DA71E98B01AD627B73B905BA10A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499587   (847672) от 02.10.2021
-
-Джанни Родари -  Он Вам Не Лимон (2020) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аврора
-02. Утекай
-03. Скорость
-04. Ксюша(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E5C090ED7257A05868D92171A8BBC1E595671A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499351   (847675) от 02.10.2021
-
-Asking Alexandria - Stand Up And Scream (2009) [FLAC|Lossless|image + .cue] <Post-HardCore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alerion
-02. Final Episode
-03. A Candlelit Dinner With Inamorta
-04. Nobody Don't Dance No More(   Читать дальше...   )Жанр: Post-HardCore, ElectronicПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:678AEC4F30FE0E471EC1088D9E597797006C151D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499505   (847677) от 02.10.2021
-
-Asking Alexandria - See What’s On The Inside (2021) [MP3|320 Kbps] <Post Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847677.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Alone Again
-3. Faded Out
-4. Never Gonna Learn(   Читать дальше...   )Жанр: Post Hardcore, MetalcoreПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86555BB07BC17CDB7807B13A6B72113DF12D2913
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499530   (847685) от 02.10.2021
-
-Tequilajazzz - Камни (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В тёмную воду. Intro
-2. Никого не останется
-3. Вьюгина ты дочь
-4. Сам с собой(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94A82DC739CA4B9B1566D5207D8B8875CC54C123
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499575   (847688) от 02.10.2021
-
-Джанни Родари -  Смотри! (2020) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смотри!
-02. Ток-Шоу
-03. Русское-Радио
-04. Свердловск-99(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5426D783024F2DE260AAB0B95C6DF4573C370461
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 649663   (847736) от 28.04.2013
-
-The Ocean - Pelagial (2013) Limited Edition [MP3|320 кб/с]<Progressive Metal /Atmospheric Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epipelagic (Instrumental)
-02. Mesopelagic: Into The Uncanny (Instrumental)
-03. Bathyalpelagic I: Impasses (Instrumental)
-04. Bathyalpelagic II: The Wish In Dreams (Instrumental)(   Читать дальше...   )Жанр: Atmospheric Progressive Metal |Продолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F4F40E6274FABE9ABA3F0580D754E06D716354A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499504   (847835) от 02.10.2021
-
-Tequilajazzz - Камни (2021) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847835.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В тёмную воду. Intro
-2. Никого не останется
-3. Вьюгина ты дочь
-4. Сам с собой(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410CFBF3D0913FBEE02FC121115017C784015052
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499554   (847836) от 02.10.2021
-
-Мара - Панк-Рок (2021) Single [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Панк-рок (03:08)Жанр: RockПродолжительность: 00:03:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42DB97287B8787C00CEA329C485780E59F7FC8C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111382   (847939) от 05.03.2017
-
-Чайф - Теория струн (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой блюз
-02. Время не ждет
-03. Четверо парней
-04. Ковбои(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F7EBEF824D19575C6DEB68A29720D59FFD1CE37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499522   (847959) от 02.10.2021
-
-Mystery - Live Life Loud (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Revolution
-02. To My Knees
-03. Lust Control
-04. All We Need Tonight(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF858FA1D6CD64A9398EAB31B64A3F00D0071A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499510   (847968) от 02.10.2021
-
-4 Апреля - Бездна (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847968.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Это игра
-2. Выбора нет
-3. Летала душа
-4. Что будет с нами?(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5EF1806124A3ED864ED3624B8AD1024FA618B9
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1242808   (513057) от 24.08.2018
+
+VA - SunState Trance Nation (2018) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_513057.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Protoculture - Superhuman (Original Mix)
+002. ARTY - Tim
+003. Elevven - Heartbeat Tonight
+004. Heatbeat - Supersaw(   Читать дальше...   )Жанр: TranceПродолжительность: 10:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5467543549FF7668F78A49455696B636626639
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931318   (513079) от 25.08.2015
 
 VA - Chill Island (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -688,33 +715,6 @@ VA - Зайцев.нет Лучшие новинки Июля (2019) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FC1B34D16A7C871E09A44ADE2D598F96A3E4367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315127   (515020) от 18.07.2019
-
-VA - Planet Rap: Enhanced Radio Mix (2019) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_515020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. J.J. Pérez - Tantos Diferentes
-002. Skinny Bonez - Ron's Basement
-003. Rockstah - Der Pinguin
-004. Cozy - Get Used To Me(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 08:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E24D7FE814373B12C9CCE277534AF74B9CC56B
 ```
 
 

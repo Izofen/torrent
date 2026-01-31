@@ -1,3 +1,30 @@
+###  Публикация: 989582   (915673) от 23.02.2016
+
+VA - Зажигательный улетный музон - 2016 (2016) [MP3|256 кб/с] <Pop, Dance, Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оля Полякова - Любовь-Морковь
+02. Юлия Хусаинова - Легко
+03. Submotion Orchestra - Red Dress
+04. Ph Electro - Back Home(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 06:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73366A06CF2EA37B2F42098114D53AB1CF805C70
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989615   (915689) от 23.02.2016
 
 VA - TOP Non-Stop 2010-2015 - Lounge & Chillout [vol.4] (2010-2015) [MP3|320 кб/с] <Ambient, Lounge, House>
@@ -668,33 +695,6 @@ VA - The Lunar Disco (2021) [MP3|320 Kbps] <Disco Remix, Dance, Funky House, Nu 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A90EE1D629F892E9F0708C0DF6377EC383B3159C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988977   (917136) от 22.02.2016
-
-VA - Workout Chillout (2016) [MP3|320 kbps] <Lounge, Chill House, Soulful>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project feat. Solanos - Festa Do Sol (Funk edit)
-02. Enrico Donner feat. Theresa Thomason - Something New
-03. Zero Feedback - Rien Ne Va Plus (Don Gorda Project remix)
-04. Lazypojke - Why Always Me?(   Читать дальше...   )Жанр: Lounge, Chill House, SoulfulПродолжительность: 01:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC64552316FA4696C9B008CB873E47100E763839
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1293768   (633628) от 05.04.2019
+
+Prins Thomas - Ambitions (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Funk, Nu-Disco>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreplay (03:27)
+02. XSB (05:31)
+03. Feel The Love (04:25)
+04. Ambitions (12:08)(   Читать дальше...   )Жанр: Techno, Funk, Nu-DiscoПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB6C6C6549EED4BC633301096B9261D686AABE7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293697   (633738) от 05.04.2019
 
 VHS Dreams - The Bundle - Volume 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
@@ -669,39 +696,6 @@ VA - Cala Ibizarre: Sunset Lounge Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C8C62D922461A4451398E5D367C3A62F1720E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519115   (635626) от 07.07.2012
-
-VA - 5 Years Of Claremont 56 Compiled Edited & Mixed By The Idjut Boys (2012) [MP3|320 кб/с]<House, Disco, Nu Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635626.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1: 01:09:42
-01. Bison - Way To La (Day)
-02. Fist Of Facts - Fugitive Vesco (Idjut Work Out)
-03. Mudd & Pollard - Vincent
-04. Mudd & Ahmed Fakroun - Drago (Idjut Edit)
-05. Smith & Mudd - Le Suivant
-06. Smith & Mudd - Hvala (Version Idjut)
-07. Mudd & Pollard - Scaffold
-08. Smith & Mudd - Shulme
-09. The Popes - Bastards (Idjut Edit)(   Читать дальше...   )Жанр: House, Disco, Nu DiscoПродолжительность: 03:26:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45D82941522116EB2ED1689DFE6FD454B4B7C67F
 ```
 
 

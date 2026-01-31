@@ -1,3 +1,30 @@
+###  Публикация: 1440907   (1038055) от 20.01.2021
+
+VA - Beatport Uplifting Trance: Sound Pack #182-1 (2021) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случается так, что слушаешь трек за треком и буквально не в силах остановиться. Вот это и есть по-настоящему отличная музыка, что можно слушать нескончаемо. Именно такая музыка и собрана в 182-м релизе от Beatport, который объединил в свой состав такие направления электронной музыки как Vocal и Uplifting Trance.001. Pink Bomb - Indica
+002. Slusnik Luna - Valssi
+003. Craig Connelly - California
+004. Manuel Rocca - Invierno(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD03D642A5D05C0BAC2FE816A9D5BA022799061
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440910   (1038060) от 20.01.2021
 
 VA - Beatport Trance: Electro Sound Pack #180-1 (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
@@ -668,33 +695,6 @@ VA - Trance 2023 | Trance Music | Trance Top 100 [MP3|320 Kbps] <Trance, Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAD2F85276B0F5E7B2F155AAE9D71FCB63C100D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439685   (1039515) от 14.01.2021
-
-VA - Best Pop Плейлист (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sia - Courage to Change (4:52)
-02. Bon Iver, Taylor Swift - exile (4:45)
-03. Hurts - Redemption (4:18)
-04. Taylor Swift - cardigan (3:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CBA514238831777733DA462C8529B44D5A40165
 ```
 
 

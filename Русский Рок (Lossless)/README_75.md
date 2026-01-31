@@ -1,3 +1,30 @@
+###  Публикация: 158320   (1013912) от 27.05.2021
+
+VA - Машина Времени (Трибьют) - Машинопись 2CD (2009) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алиса - Черно-белый цвет
+02. Ундервуд - Старый корабль
+03. Александр Градский - Посвящение Машине Времени
+04. Аквариум - Вверх(   Читать дальше...   )Жанр: RockПродолжительность: 02:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7B1A5A8831A0174C0C8ECC94F92FCED2A109D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472034   (1014543) от 24.05.2021
 
 Обе-Рек - 13 Albums (2007-2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:B26EDB52ABA29EF4E41D13E3FD1115C92F604A25
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD198816F71E4B76FACC4D9A70971438EBAE9B00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455632   (1025488) от 20.03.2021
-
-Gothic Sky - In Search of a Lost Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven [00:05:34]
-02. Phantom Wanderer (feat. Arthur Berkut) [00:07:31]
-03. Dark flame (feat. Arthur Berkut) [00:06:47]
-04. Lord of nothingness [00:07:26](   Читать дальше...   )Жанр: Gothic, Black, Death MetalПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7631D90EFE9EC3DC1629B72683509658EA3E75C
 ```
 
 

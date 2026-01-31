@@ -1,3 +1,30 @@
+###  Публикация: 1305526   (556450) от 31.05.2019
+
+VA - House Of Ibiza (2019) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hector Moralez & Tommy Vercetti  -  Countdown (Original Mix)
+02.  Kruse & Nuernberg  -  Summer Sanctuary (Original Mix)
+03.  Mood Ll Swing  -  Sunlight In My Eyes (Satoshi Fumi Re-Edit)
+04.  Roter & Lewis  -  Get Out Of My Life (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 04:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83EA3D0D4C807419991381BF3B74DAF64477947
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1556781   (556503) от 12.06.2022
 
 Centhron - Dystopia (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Industrial>
@@ -668,33 +695,6 @@ Luther Vandross - Greatest Hits 1981-1995 (1995) Compilation [FLAC|Lossless|imag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F48BD7F4829128750056AD85FEC1B4265ED6FE70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153602   (558081) от 27.07.2017
-
-Luca D'Alberto - Endless (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Modern Classical>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_558081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wait For Me (4:07)
- 02. Blessed Messenger (2:51)
- 03. Yellow Moon (5:43)
- 04. Endless (26th May 2016) (4:28)(   Читать дальше...   )Жанр: Electronic, Balearic, Modern ClassicalПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2459D9E9D912FC4B370ABAE529201C462A76661A
 ```
 
 

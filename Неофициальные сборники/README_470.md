@@ -1,3 +1,30 @@
+###  Публикация: 1283363   (739788) от 17.02.2019
+
+VA - German Top 50 Official Dance Charts 15.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_739788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz - Speechless (feat. Erika Sirola)
+02. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
+03. Calvin Harris - Giant
+04. Hugel - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42C0EC5D879A8CF891452A554D425CB0C7330269
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282963   (740014) от 16.02.2019
 
 Joy - Touch By Touch (2019) Remix [MP3|320 Kbps] <Club, Dance>
@@ -669,33 +696,6 @@ VA - German Top 100 Single Charts 17.07.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:568FB144F98B49B3CDB987FB4BA532D2DC5CE155
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217418   (741611) от 05.04.2018
-
-VA - Дискотека 2018 Dance Club Vol. 177 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1
-Продолжительность: 10:39:26
-
-001. Ana Mena, Becky G. & De La Ghetto - Ya Es Hora(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 15:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FCE512E566E8B2EEB78E2F5D5C7A830D44E50E
 ```
 
 

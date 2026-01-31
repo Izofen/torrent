@@ -1,3 +1,336 @@
+###  Публикация: 359432   (582916) от 05.07.2011
+
+Status Quo - Quid Pro Quo (2011) [FLAC|Lossless]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Way Traffic (03:59)
+02. Rock 'n' Roll 'n' You (03:27)
+03. Dust to Gold (04:51)
+04. Let´s Rock (04:28)
+05. Can't See for Looking (03:54)
+06. Better Than That (03:17)
+07. Movin' On (04:06)
+08. Leave a Little Light On (04:04)
+09. Any Way You Like It (03:17)
+10. Frozen Hero (04:20)(   Читать дальше...)Жанр: Classic RockПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918833   (582930) от 19.07.2015
+
+5 Углов - Heavymetalhardcore (2015) [MP3|320 кб/с]<Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582930.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Змея
+3. Борьба
+4. След(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6524BF95D8DBE38E546DCE715A3CC38011B5A811
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919517   (582932) от 19.07.2015
+
+Status Quo - Les Genies du Rock - Pictures of Matchstick Men (1995) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice In The Sun [02:12]
+02. Lakky Lady [03:07]
+03. Is It Really Me [02:42]
+04. Gerundula [03:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A094F7AA68A2946C4429F6106E0D354CDD6704
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919361   (582934) от 19.07.2015
+
+The Sweet - Les Genies du Rock - Fox on the Run (1995) [MP3|320 кб/с]<Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Action [03:29]
+02. 4Th of July [03:50]
+03. Cockroach [04:53]
+04. Fox on the Run [01:41](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B8ED497F2A25F8C69F6A4A30BEF280F0DF8261
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919587   (582940) от 19.07.2015
+
+Fletwood Mac - Les Genies du Rock - Black Magic Woman (1995) [MP3|320 кб/с]<Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man of the world [02:52]
+02. Someone's gonna get their headkick in tonite[02:47]
+03. Oh well [03:34]
+04. Lilke it this way [04:17](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD2E296D3E48A5C3B56501D22879189DFBD8909
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919365   (582945) от 19.07.2015
+
+Van Morrison - Les Genies du Rock - Brown Eyed Girl (1995) [MP3|320 кб/с]<Blues, Folk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye baby (baby goodbye) [03:00]
+02. Madame George [05:16]
+03. Midnight special [02:40]
+04. It's aleight [04:59](   Читать дальше...   )Жанр: Blues, Folk, RockПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3404A27E44544D947AAEE2A0C2ABE42DCEE47BFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553369   (582959) от 25.05.2022
+
+Starlight Brigade - 4 Albums (2013-2022) [MP3|320 Kbps] <Crossover Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Horizone [00:05:46]
+02. Let It Rain (Let it all come down) [00:04:28]
+03. Light Years Away [00:04:50]
+04. Red Moon Is Calling [00:04:06](   Читать дальше...   )Жанр: Crossover Progressive RockПродолжительность: 4 CD, 03:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6088E8BB9B02057F90EEEFB1B6BEF1A74C4FD1BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553334   (582962) от 25.05.2022
+
+Wage War - 8 Relises (2015-2021) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grave (Stripped) [00:03:16]Жанр: Metalcore, Post-HardcoreПродолжительность: 03:29:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1295C325E001567EC63A28D57E40EE1337457AEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553177   (582963) от 25.05.2022
+
+Audra - Going to the Theatre (2002) 2CD, 20th Anniversary Edition, 2022, Remaster [MP3|320 Kbps] <Alternative, Post-Punk, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Moon Swing (Acoustic) [00:02:26]
+02. There Are No Snakes in Heaven (Acoustic) [00:02:51]
+03. Going to the Theatre (Acoustic) [00:05:16]
+04. All Ghosts Spend Their Time Alone (Acoustic) [00:04:23](   Читать дальше...   )Жанр: Alternative, Post-Punk, Gothic RockПродолжительность: 2 CD, 01:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56B4FD78557DEB91B712D943CCB053432BA192A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553370   (582965) от 25.05.2022
+
+Jon Anderson - The More You Know (1998) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Love (03:48)
+02. Maybe (04:06)
+03. Say (03:51)
+04. The More You Know (03:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69D6EFE5FFFBDB70F0C5814A6C61D9122BD307B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359049   (582992) от 05.07.2011
+
+Chris de Burgh - Golden Ballads (1995) [APE|Lossless]<Pop/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady In Red [4:22]
+02. Sailing [5:04]
+03. Borderline [4:42]
+04. Moonlight And Vodka [3:42]
+05. This is Love [3:47]
+06. Separate Table [3:43]
+07. A Spaceman Came Travelling [5:10]
+08. I Had The Love In My Eyes [3:36]
+09. The Simple Truth (A Child Is Born) [4:30]
+10. Diamonds In The Dark [3:39](   Читать дальше...)Жанр: Pop/RockПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919258   (583017) от 19.07.2015
+
+New York Dolls - Les Genies du Rock - Vietnamese Baby (1994) [MP3|320 кб/с]<Punk, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Day Weekend [03:28]
+02. Frankenstein [05:46]
+03. Mystery Girls [03:01]
+04. Showdown [01:40](   Читать дальше...   )Жанр: Punk, Glam RockПродолжительность: 01:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59EF10024811DC83B8381B0F6D3336173C504584
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919515   (583019) от 19.07.2015
 
 Set In Stone - Where Secrets Hide (2015) [MP3|320 кб/с]<Metalcore / Post-Hardcore / Electronic>
@@ -368,334 +701,6 @@ VA - The Crown Jewels. A Tribute to Queen (2006) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50E0CC589A1469B8F7AA2D46824D10AFE6447218
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810451   (583437) от 05.08.2014
-
-Eric Clapton & Friends - The Breeze: An Appreciation Of JJ Cale (2014) [FLAC|Lossless]<Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Me The Breeze
-02. Rock And Roll Records (feat. Tom Petty)
-03. Someday (feat. Mark Knopfler)
-04. Lies (feat. John Mayer)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:51:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC3C5F53D16A3AD1C79A2A14BC00DD0A390DD283
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041349   (583450) от 08.08.2016
-
-Luther Wright & The Wrongs - Rebuild The Wall (2001) [MP3|320 Kbps] <Rock, Folk, Country>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Flesh?
-02. The Thin Ice
-03. Another Brick in the Wall (part 1)
-04. The Happiest Days Of Our Lives(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 01:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D5EA28FEF014E9A32E656C585EE45C6A167B36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041280   (583456) от 08.08.2016
-
-The Wilde Flowers - Tales of Canterbury: The Wilde Flowers Story (1994) Compilation [WavPack|Lossless|image + .cue] <Canterbury Scene>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583456.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Wilde Flowers - британская группа, названная в честь Оскара Уайлда, существовавшая в округе Кентербери, Англия, в 1964-1967 годы. За время своего существования группа не выпустила ни одной записи, но побочным продуктом её деятельности стали две другие группы, ставшие знаменитыми и влиятельными - Soft Machine и Caravan.  Участниками группы в разные периоды были: (   Читать дальше...   )01. Impotence (2:10)
-02. Those Words They Say (2:40)
-03. Memories (1:35)
-04. Don't Try To Change Me (2:26)(   Читать дальше...   )Жанр: Canterbury SceneПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562EF3F01F742575733A16990686AFF4BD21FBEC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041011   (583459) от 08.08.2016
-
-Blue Coupe - Million Miles More (2013) [FLAC|Lossless|tracks + .cue] <Rock, Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophets, Dukes, and Nomads    03:32
-02. Hellfire Hurry (feat. Buck Dharma)    03:47
-03. Hallow's Grave (feat. Alice Cooper)    03:33
-04. Everybody Goes Insane    04:04(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard RockПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AED2F1E4D13556238CE79E2F0BCFE4F0FB72EFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040993   (583465) от 08.08.2016
-
-Polite Force - Canterbury Knights (1996) [WavPack|Lossless|image + .cue] <Canterbury Scene, Prog Rock, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birdworld (2:03)
-02. Childsplay (6:00)
-03. Mr. Sax Speaks Solitude (4:18)
-04. Solitude (6:17)(   Читать дальше...   )Жанр: Canterbury Scene, Prog Rock, Jazz RockПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A92556CFCEB5B86B476131D79E3AF185DBFB2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553202   (583706) от 24.05.2022
-
-Visions Of Atlantis - Pirates (2022) [FLAC|Lossless|image + .cue] <Melodic, Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pirates Will Return
-02. Melancholy Angel
-03. Master the Hurricane
-04. Clocks(   Читать дальше...   )Жанр: Melodic, Symphonic Power MetalПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BF43964D41784E0C978C03A7706D0AFE3B7969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553152   (583759) от 24.05.2022
-
-Life By Night - Glass Walls (2021) [FLAC|Lossless|image + .cue] <Soft Rock, Synthpop, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anything Can Happen (4:30)
-02. Give Me One More Night (4:02)
-03. Catch You In My Dreams (4:42)
-04. Fade To Blue (4:00)(   Читать дальше...   )Жанр: Soft Rock, Synthpop, AORПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D884CEAB00A39CFD9BB4457DFBF1D8465CB3A13F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553180   (583760) от 24.05.2022
-
-Black Seal - We Must Make Them Fall (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Never (00:04:46)
-02 - We Must Make Them Fall (00:05:21)
-03 - Free of Chains (00:05:06)
-04 - Perpetual (00:04:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A21CB08D0142E248D82289ED2C9CE2FDFDD76E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553072   (583762) от 24.05.2022
-
-Life Awaits - Call Me Insane (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583762.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In Gloom
-2. New World Sanity
-3. Only Paranoid
-4. Renegades(   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, ElectronicПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F036C3DC6BD1D3453023BC3AF758036FDE81DD5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553198   (583767) от 24.05.2022
-
-Alter Within - Alter Within (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ashes Of Grace (00:04:29)
-02 - Apathy Beware (00:04:07)
-03 - Die In Vain (00:05:29)
-04 - Requiem (00:05:25)(   Читать дальше...   )Жанр: Heavy Groove MetalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8D599C5EB9E34E990856C0779D31F62A4ECCC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553060   (583810) от 24.05.2022
-
-Crucify The Faith - As The World Ends (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583810.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fading Lines
-2. Act of Silence
-3. End the Game
-4. The Great Catastrophe(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4C063EB635192DD0597D1D1825BC3D07FD2E41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357609   (583934) от 04.07.2011
-
-Be'Lakor - 2 альбома (2007/2009) [APE/FLAC|Lossless]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venator
-02. From Scythe to Sceptre
-03. Outlive the Hand
-04. Sun's Delusion
-05. Held in Hollows
-06. Husks
-07. Aspect
-08. Countless SkiesЖанр: Dark Metal, Melodic DeathПродолжительность: 0059:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 

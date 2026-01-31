@@ -1,3 +1,57 @@
+###  Публикация: 1248530   (442670) от 20.09.2018
+
+Manticora - Safe (2010) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Abyss Of Desperation (5:32)
+02. Silence The Freedom (7:05)
+03. Complete (5:30)
+04. From The Pain Of Loss (I Learned About The Truth) (4:37)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8FDFE390A2DE7E219608E9ECF8AD69444C438D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248532   (442671) от 20.09.2018
+
+Manticora - The Black Circus Part 1 - Letters (2006) [APE|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_442671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enter The Carnival (2:07)
+02. The Black Circus (5:27)
+03. Intunerie I (0:32)
+04. Enchanted Mind (5:30)(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704348F165CA4F488110389DEF3ED0088B4A58A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248534   (442676) от 20.09.2018
 
 Manticora - The Black Circus Part 2 - Disclosure (2007) [APE|Lossless|image + .cue] <Progressive Power Metal>
@@ -642,59 +696,6 @@ magnet:?xt=urn:btih:E88524CFD505A4FBFEAF5AD8FFC7B5D5D38A291A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6299FB5302FDBC86DB84627522F5EA180D85066D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061856   (444070) от 12.10.2016
-
-Богатырские Колбасы - Борода (2015) [MP3|320 Kbps] <Comedy Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444070.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Борода
- 2. Как хорошо
- 3. Вера Бубенцова
- 4. Получил(   Читать дальше...   )Жанр: Comedy PunkПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C447C02581317CCA9C41EF384902AC33CFDD91A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062206   (444082) от 12.10.2016
-
-Черный Обелиск - Осень (2016) Single [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Осень (Radio Version)
-02. Осень
-03. Не имеет значения (Памяти Ильи Кормильцева)Жанр: Heavy MetalПродолжительность: 00:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:576D40D26F50A5E1032D96E428DAC8C80E12CD44
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1406282   (474637) от 03.09.2020
+
+VA - Native American Lounge Bar (2020) 5CD [MP3|320 Kbps] <Native American, Enigmatic, World music>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sacred Spirit - O-Loa-Ki-Lee
+02. Joanne Shenandoah - Tadodaho - Snakes in His Hair
+03. Oliver Shanti & Friends - White Mother Of The Universe
+04. Karunesh - Earthsong(   Читать дальше...   )Жанр: Native American, Enigmatic, World musicПродолжительность: 18:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44E73B6D81E9B841111758BF57EA6A84DE635E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320127   (475194) от 16.08.2019
 
 VA - Trance Hits: Next Generation (2019) [MP3|320 Kbps] <Trance>
@@ -698,33 +725,6 @@ VA - Night Flight (2012) [MP3|320 кб/с]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66E63DAF0A4D314D80D0F4F32D904CADC7919E40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406188   (476829) от 02.09.2020
-
-VA - Лучшие из лучших Top 100 хитов радиостанций за Август (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_476829.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ЛАПКА - Грустный смайл (2:29)
-002. JOVI - Твой рай (3:35)
-003. Anji - Beautiful Eyes (3:09)
-004. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:21:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F2CF986AC1019E356C9E62C64373A4D952E9886
 ```
 
 

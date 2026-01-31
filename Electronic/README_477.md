@@ -1,3 +1,30 @@
+###  Публикация: 1093368   (933851) от 15.01.2017
+
+VA - Buddah's Chill  Vol.8 (Buddha Asian Bar Lounge) (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Phoungh Ann - Rufiyaa  4:51
+02.  Yantra Mantra - Pink City (Ayurveda Mix)  3:56
+03.  Shadi Fares - Champagne Beach  5:29
+04.  Latif Rayhan - Aleppo  2:26(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E79A029D0BBA85B277527272FA3850551036B6B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364888   (933884) от 05.03.2020
 
 Meemo Comma - Sleepmoss (2019) Planet Mu [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
@@ -660,33 +687,6 @@ VA - Colours II. Ice (selected by AstroPilot) (2016) [MP3|320 Kbps] <Ambient, Ps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AB20D1DE05A229FE4900679357554F2B0E312ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092890   (937411) от 13.01.2017
-
-VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alkalino - Distant Future [6:42]
-02. Ritmo Du Vela - It's Good [6:00]
-03. Dany Cohiba - Just Be Real [6:24]
-04. Twism & B3rao - Don't Hold Back [6:46](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D51D6B0D2CF5D4DB3BFE0B11022352F767B0F2
 ```
 
 

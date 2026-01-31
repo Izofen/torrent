@@ -1,3 +1,36 @@
+###  Публикация: 551989   (451268) от 25.09.2012
+
+VA - Автозвук Осень Зарубежный (2012) [MP3|160-256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 DJane Housekat feat. Rameez - My party (Groove Coverage remix)
+02 Tom Boxer - Deep in love (DJ Nejtrino & DJ Baur radio mix)
+03 Will.I.Am feat. Jennifer Lopez - T.H.E. (DJ Rich-Art & DJ Kirillich remix)
+04 Jeffree Star - Blow me
+05 Mandinga - Zaleilah (Hanter Remix 2k12 edit)
+06 Sheikh & Nicco - Hold tight (Radio mix)
+07 Connect-R - Take it slow (DJ Bonne remix)
+08 Far East Movement feat. Kay - Flossy
+09 Marlon Roudette - Anti hero
+10 K'naan feat. Nelly Furtado - Is anybody out there(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94632BF2121EC1578D66B1903AEDFE7C4B5259AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061124   (451279) от 09.10.2016
 
 VA - Lullaby For The Sun (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Baleric>
@@ -698,33 +731,6 @@ VA - Rhythm Of My Song (2019) [MP3|320 Kbps] <Pop, RnB>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3CF4E483AA0165E20C6388ADE1DB12E78832466
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322109   (452486) от 27.08.2019
-
-VA - не Громкие новинки недели 32 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_452486.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Al Fakher - Хулиганка (2:16)
-2.AMPATI - Замолчи (3:22)
-3.Andro - 7:00 (3:01)
-4.Andro - Болен Твоей Улыбкой (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:45:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DF813E6EC20EE66645FE85F853516E25595FB4
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1363613   (942319) от 28.02.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 28.02.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_942319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Billie Eilish - Everything I Wanted 4:05
+02. The Weeknd - Blinding Lights 3:22
+03. Trevor Daniel - Falling 2:39
+04. Carla Morrison - Disfruto (Audioiko Remix) 3:16(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0EE973B4CFC58F8554BEA87B3DC6853BF5AD75
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363541   (942524) от 28.02.2020
 
 VA - Beatport Techno: Electro Sound Pack #16 (2020) [MP3|320 Kbps] <Techno, Electronic>
@@ -674,33 +701,6 @@ VA - Blues Forever vol.25 - vol.28 (2015) [MP3|320 кб/с] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CDCFF1E1A9614BDEE14D1FDF8E24965158E5AE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983506   (943608) от 06.02.2016
-
-VA - Инструментальное и оркестровое исполнение песен Dieter Bohlen (2016) [MP3|128-320 кб/с] <Instrumental, Pop, Disco>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943608.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Saxaphone New Wave - Jump In My Car (03:44)
-002. Cliff Carpenter Orchestra - Angel Blue Eyes (03:43)
-003. Caroline Eriksson - Atlantis Is Calling (S.O.S. For Love) (01:43)
-004. Acoustic Guitar - You're My Heart, You're My Soul (03:40)(   Читать дальше...   )Жанр: Instrumental, Pop, DiscoПродолжительность: 06:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2ADD8BA051975951D7E0A19CCCDE4E6A2713948
 ```
 
 

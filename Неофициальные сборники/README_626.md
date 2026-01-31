@@ -1,3 +1,30 @@
+###  Публикация: 1091024   (944871) от 08.01.2017
+
+VA - Отрывайся с лучшими хитами. Выпуск № 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_944871.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Krugers - Bambino 3:11
+002. Chase & Status Feat. Slaves - Control 4:11
+003. Nero - Circles 4:32
+004. Dada & Paul Harris & Dragonette - Red Heart Black 3:47(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911F24AC7850A989E302505E1DCC476043CE31FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363095   (944931) от 26.02.2020
 
 VA - Winter Bash: Mega Dance Hands Up Party (2020) [MP3|320 Kbps] <Dance House, Tech House>
@@ -677,33 +704,6 @@ VA - Зимние блатные песни от радио Шансон Час�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4344A5E687B2AE15DAE330A0C77D622D29A630EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090582   (946097) от 07.01.2017
-
-VA - Similar Sound: Winter Drum And Bass (2017) [MP3|320 Kbps] <Drum And Bass, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_946097.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Black Sun Empire - Until The World Ends (Mind Vortex remix - feat. PNC) 4:37
-002. Dub Defense - Early Morning Sun (Original Mix) 6:34
-003. The Prodigy - The Day Is My Enemy (Bad Company UK Remix) 4:03
-004. Monrroe - Fleeting Love 5:31(   Читать дальше...   )Жанр: Drum And Bass, ElectronicПродолжительность: 08:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B48046F3618CB16F2A0DA760DE1FBF04B57EA6
 ```
 
 

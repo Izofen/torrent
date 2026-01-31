@@ -1,3 +1,30 @@
+###  Публикация: 1522727   (756498) от 08.01.2022
+
+Leonard Cohen - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_756498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie Street
+02. The Letters
+03. Darkness
+04. The Law(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F9963B9C403689AD0E14C44C8B8A34DEA51576
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522728   (756642) от 08.01.2022
 
 Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
@@ -674,33 +701,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D74C7FE2EDF3269F2D0D32329F98F124B88EAA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280754   (758721) от 04.02.2019
-
-VA - Heavy Metal Collections Vol. 8 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_758721.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-
-01. Grave Digger - The Commandments Of Metal (2017) (3:28)
-02. Visions of Atlantis - Winternight (2016) (5:37)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3B06992971D17C9B9BC942CFE1CC3E9F34F175
 ```
 
 

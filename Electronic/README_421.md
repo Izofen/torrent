@@ -1,3 +1,30 @@
+###  Публикация: 1273865   (798780) от 04.01.2019
+
+VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Adams, Sabrina Joy-Yourself (Sean McCabe Main Vocal Mix)
+02. Zepherin Saint, Miranda Nicole-Butterflies (Live Mix)
+03. Vanco, Zano-Ms Jailer (feat. Zano)
+04. Gino Brown, Nonny D - Time No Dey (feat. Nonny D)(   Читать дальше...   )Жанр: Soulful HouseПродолжительность: 01:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2B9584C8DC3C5B59083442A1A40355CC3A2EF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122234   (798796) от 05.04.2017
 
 Pet Shop Boys - Undertow (2017) Single [FLAC|Lossless|tracks + .cue] <House, Tech House>
@@ -664,33 +691,6 @@ VA - Chillout April 2017  (Top 10 Spring Relaxing Chill Out and Lounge Music) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1057E982EF52F42FA43249354A2F083C2F95A6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121961   (799245) от 04.04.2017
-
-VA - Chill Pilates Music: 15 Cool Chill Out Tracks for Pilates and Yoga (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethereal Moments - Salutations to the Sun
-02. Peter Orbit - Les Nuits
-03. Bella Element - In This World
-04. Jonathan Sarlat - Moments in Love(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B320E197F34A5CF8B6AE7EB3CE0125EF0571449
 ```
 
 

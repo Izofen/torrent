@@ -1,662 +1,681 @@
-###  Публикация: 1395471   (745451) от 16.07.2020
+###  Публикация: 1217887   (741039) от 06.04.2018
 
-Александр Сергеевич Пушкин | Повести Белкина (1937) [PDF]
-
->>Художественная литература
->>Классическая поэзия и проза
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745451.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1831 году в печати появляются пять повестей, объединенных одним названием — «Повести покойного Ивана Петровича Белкина, изданные А.П.». Пушкин опубликовал это произведение анонимно, приписав авторство выдуманному лицу — некоему Белкину.
-
-Персонажи в большинстве своём не обладают яркими индивидуальными чертами, как другие герои Пушкина. Эти люди не возвышаются над (   Читать дальше...   )Жанр: Классическая прозаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A230D21E489A3F909A29BA76CAB090A1BEBBB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282472   (745452) от 12.02.2019
-
-Brian Gallagher - The Most Beautiful Girl In The World (1994) Single [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Most Beautiful Girl In The World (Saxophone Version) (04:32)
-02. The Most Beautiful Girl In The World (Vocal Version) (04:32)Жанр: Smooth JazzПродолжительность: 09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6AEA78F0D55697080BE6335122B973FE82BB34C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282487   (745453) от 12.02.2019
-
-Pat Flowers - 1941 - 1945 (1999) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After The Sun Goes Down [2:54]
-02. Beg, Borrow And Steal [2:55]
-03. You're Some Pretty Doll [2:19]
-04. Abdullah [1:51](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962A50F69B35E8039531F6632F7D3CB1CE7A083C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020597   (745454) от 26.05.2016
-
-Automat - Automat (1978) [MP3|320 кб/с] <Electronic, Disco, Ambient>
+Marsius - ..... Save The Tiger (1977) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 
 >>Pop
 >>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745454.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Automat: a) (The) Rise   (6:09)
-02. Automat: b) (The) Advance   (4:06)
-03. Automat: c) (The) Genus   (6:40)
-04. Droid   (5:25)(   Читать дальше...   )Жанр: Electronic, Disco, AmbientПродолжительность: 00:33:32
+01. Save The Tiger (5:17)
+02. Suite For Lovers (10:54)
+03. Chiricahua (4:55)
+04. Look At Me Babe (4:19)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:30:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB5630BA192E76DF80DD1E864E64E50E23975A3D
+magnet:?xt=urn:btih:D3D23B3144F24BEE87D7234DABB9CD4C01CD0AAA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020442   (745455) от 26.05.2016
+###  Публикация: 1217775   (741040) от 06.04.2018
 
-Кен Кизи | Порою нестерпимо хочется (2016) [MP3]
+VA - Ori Uplift & NaHiM - Uplifting Only 269 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745455.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741040.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эту книгу трудно оценить по достоинству. Так или иначе, требуется настоящее мужество, чтобы отказаться от приманки, которая сверкает внутри этого романа-ловушки.
-В орегонских лесах, на берегу великой реки Ваконды-Ауги, в городке Ваконда жизнь подобна древнегреческой трагедии без права на ошибку. Посреди слякоти и осени, отчаянной гонки лесоповала и обреченной забастовки (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 15:23:56
+01. Nolans Stenemberg feat. Jennifer Lauren - The Winter
+02. RAM ft. Stine Grove - RAMore (Daniel Skyver Remix)
+03. PRE-RELEASE PICK: Daniel van Sand feat. Nina Sung - Slipping Within (Turn Extended Mix)
+04. Alternate High - Path Of Life (Braulio Stefield Remix) (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting Trance,Vocal TranceПродолжительность: 01:59:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4011DA5E19D205138143C59E3AB9B2A44B19FEF8
+magnet:?xt=urn:btih:A6286FEC294731E9A2AC6FC1A3407496DAA718FD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020544   (745456) от 26.05.2016
+###  Публикация: 1217507   (741041) от 06.04.2018
 
-Журнал | Сабрина №6 (июнь 2016) [PDF]
+Духовное преображение (изд.) | «Человек ли ты?..»: Духовная азбука по творениям святителя Иоанна Златоуста (2015) [PDF, DJVU]
 
->>Журналы
->>Хобби (журналы)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745456.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741041.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самый популярный в Европе журнал по вязанию. На русском языке выходит с 1993 года.
-Все модели — как женские, так и мужские — всегда на пике моды, подходят для людей любого возраста и на все случаи жизни. В каждом номере более 30 моделей с инструкциями, схемами и выкройками. Широко представлена молодежная тема, отдельная тема журнала — экстравагантные модели для тех, (   Читать дальше...   )Жанр: ВязаниеФормат: PDF
+«Итак, скажи мне, по чему могу узнать, что ты верный, когда всё исчисленное мною уверяет в противном? И что говорю — верный? Даже человек ли ты, и того не могу узнать доподлинно. Когда лягаешься, как осёл; скачешь, как вол; ржёшь на женщин, как конь; объедаешься, как медведь; утучняешь плоть, как лошак; злопамятен, как верблюд; хищен, как волк; сердит, как змея; (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E4A6AB129BF938CF39948A70A634ED9FE404214
+magnet:?xt=urn:btih:24625B6BCFD61C860711E1CCB8C4841664EFC6CA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020504   (745458) от 26.05.2016
+###  Публикация: 1217696   (741042) от 06.04.2018
 
-VA - Metal For The Masses VIII (2 CD) (2016) [FLAC|Lossless|image + .cue] <Hardcore, Black Metal, Death Metal>
+Slammer - The Work of Idle Hands... (1989) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745458.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741042.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 01:
-
-01. Suicide Silence - Disengage (4:04)
-02. Winds Of Plague - Approach The Podium (3:39)(   Читать дальше...   )Жанр: Hardcore, Black Metal, Death MetalПродолжительность: 02:17:49
+01. Tenement Zone 04:26
+02. If Thine Eye 04:57
+03. Johnny's Home 04:25
+04. Razor's Edge 05:00(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11A373F2AD0E2933C1CAEFBA8F29DDF9EDE40A74
+magnet:?xt=urn:btih:3CF6B75029C419CFC259E9EC9AF433555AD41B37
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020646   (745459) от 26.05.2016
+###  Публикация: 1217692   (741043) от 06.04.2018
 
-Interactive Noise - The Nine Stories (2016) [MP3|320 кб/с] <Progressive Psy-Trance>
+Watain - Trident Wolf Eclipse (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745459.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741043.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Interactive Noise - Survivor (06:41)
-02. Interactive Noise - Join The Raveolution (08:01)
-03. Interactive Noise - The Cowboy (07:04)
-04. Interactive Noise - Spartan Force (06:28)(   Читать дальше...   )Жанр: Progressive Psy-TranceПродолжительность: 01:00:55
+01. Nuclear Alchemy
+02. Sacred Damnation
+03. Teufelsreich
+04. Furor Diabolicus(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2F012B65DFDC28709E3B34094F6D06BBF6C7997
+magnet:?xt=urn:btih:4A3011CEBC88C12F836313692353AF2326398558
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020403   (745460) от 26.05.2016
+###  Публикация: 1217790   (741044) от 06.04.2018
 
-Журнал | Вооруженные силы стран мира №137 (2016) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная коллекция журналов расскажет о военных соединениях разных стран мира, познакомит читателя с видами войск и военной техники, историей военных кампаний 20-21 вв., ключевыми военными фигурами. Материалы распределены по 6-ти рубрикам: военная техника, личности, армии стран мира, стратегия и тактика, битвы и компании.Жанр: Военный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D648258AC5E719CB0D939E04023BA1C8F03C60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020343   (745461) от 26.05.2016
-
-Журнал | Садовод и огородник №10 (333) (май 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для садоводов и дачников, владельцев загородных участков, который предлагает множество практических советов по садоводству и огородничеству, содержанию животных, ландшафтному дизайну. Издание расскажет как обустроить свой садовый участок, поделится секретами выращивания яблонь, груш, винограда, других плодовых деревьев и ягодных кустарников.Жанр: Сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E30818116A343DACE7F3131048E4FECD0930272C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020524   (745462) от 26.05.2016
-
-Журнал | Дом в саду №5 (Май 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FE850D2C9205E40D96366B0435B35F4461DBB9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020655   (745463) от 26.05.2016
-
-VA - Techno Club Vol. 50 (Mixed by Talla 2XLC & Kai Tracid) (2016) [MP3|320 кб/с] <Trance>
+VA - Submission Recordings Presents Miami (Mixed by Atragun) (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745463.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741044.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kai Tracid - Tracid Theme (Album Version) (1:11)
-02. Kai Tracid - Your Own Reality (Energy Mix) (6:43)
-03. Tiësto - Adagio For Strings (7:33)
-04. Kai Tracid - Tiefenrausch (The Deep Blue) (NRG Mix) (6:15)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:07
+01. Alpha Modul & Karina Skye - Senses (Intro mix)
+02. Ross Cairns - Here&Back (SHADOWS remix)
+03. Xpectra - Memories (Deepshader remix)
+04. Atragun & Tom Bro - Lost In Dreams (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:11:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71CA990AC8B6C657EE27E6F0D2B4FD7CE4FF384A
+magnet:?xt=urn:btih:BB237BA9ACB13177D21C0872D5D82B147C73DCFD
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020516   (745464) от 26.05.2016
+###  Публикация: 1217841   (741045) от 06.04.2018
 
-Журнал | Садовод и огородник №9 (332) (Май 2016) [PDF]
+Majed Salih - Medievil-Music Trance Emperor Vol. 2 (2018) [MP3|320 Kbps] <Trance>
 
->>Журналы
->>Домоводство (журналы)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745464.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для садоводов и дачников, владельцев загородных участков, который предлагает множество практических советов по садоводству и огородничеству, содержанию животных, ландшафтному дизайну. Издание расскажет как обустроить свой садовый участок, поделится секретами выращивания яблонь, груш, винограда, других плодовых деревьев и ягодных кустарников.Жанр: Сад, огородФормат: PDF
+01.The Trance Symphony (Original Mix)
+02.Orange Idea (Original Mix)
+03.Psychlortron (Original Mix)
+04.Dolphin (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61E2ED11C7C2166E4C96BC5BEE42A4BB8006D130
+magnet:?xt=urn:btih:80613E461129FD222AF9964C08F3FA861FD6116A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020560   (745465) от 26.05.2016
+###  Публикация: 1283053   (741046) от 15.02.2019
 
-JumpShare 2.0.4.0 [En]
+Robbie Williams - Under The Radar Volume 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Impossible (04:35)
+02. Gold (03:57)
+03. Dirty Rotten (03:36)
+04. Good People (04:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA1FFBD3EB7E037DE163A28A9F80329CF060FBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283125   (741047) от 15.02.2019
+
+WinUtilities Professional Edition 15.47 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745465.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Jumpshare предлагает удобный и быстрый способ обмена файлами и возможность их просматривать, в объеме 2GB.Язык интерфейса: Английский
+WinUtilities - системный набор для настройки вашей системы, содержащий более 20 инструментов для увеличения и настройки производительности вашего компьютера. Программа предлагает привлекательный и легкий в использовании интерфейс, который организует все задачи по категориям и предоставляет графическую статистику там, где это возможно. В программу входят различные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46DB5CFC6677B3EB0CC424BF0D60EE3D58A576CE
+magnet:?xt=urn:btih:0F9D9FE970CDD9EE9D39ADF5FC5632FA4AC5ED01
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020515   (745466) от 26.05.2016
+###  Публикация: 1282201   (741048) от 15.02.2019
 
-Death Angel - The Evil Divide (2016) [MP3|320 кб/с] <Thrash Metal>
+Синяя армада (2017) WEB-DLRip [H.264] [MP4|1280x720]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Мультимедиа и прочее
+>>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745466.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Moth
-02. Cause for Alarm
-03. Lost
-04. Father of Lies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:20
+Фильм о создании, становлении и развитии команды КАМАЗ-мастер приуроченный к 30-летию коллектива.Телекомпания: Red Bull TVЖанр: ДокументальныйПродолжительность: 00:30:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF1677218968FEEF6D1D0579633336925C3ABA36
+magnet:?xt=urn:btih:253D984F67B6FD5582C76D86D8495E16F4EB1CA1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020521   (745467) от 26.05.2016
+###  Публикация: 1283014   (741049) от 15.02.2019
 
-Suicidal Angels - Division of Blood (2016) [MP3|320 кб/с] <Thrash Metal>
+VA - Sanremo 2019 (2019) [MP3|320 Kbps] <Pop>
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745467.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Capital of War
-02. Division of Blood
-03. Eternally to Suffer
-04. Image of the Serpent(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:43:33
+CD 01:
+01. Loredana Berte' - Cosa ti aspetti da me
+02. Ultimo - I tuoi particolari
+03. Patty Pravo & Briga - Un po' come nella vita(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E9253FDFE0C93DCFBEDB2EB6E9A12E960BFB351
+magnet:?xt=urn:btih:4D05EEC26846030AAC8300C49ED013ADD886004F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020073   (745468) от 26.05.2016
+###  Публикация: 1283097   (741050) от 15.02.2019
 
-Начато создание детектора, способного улавливать и измерять эмоции человека
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_745468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нашим читателям наверняка хорошо известен художественный фильм 1982 года под названием "Бегущий по лезвию /Blade Runner", который без любых сомнений можно отнести к шедеврам мирового кинематографа в области научной фантастики. Главный герой этого фильма, роль которого исполнял известный актер Харрисон Форд, использовал специализированную машину Войта-Кампфа (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020260   (745469) от 26.05.2016
-
-BusinessTasks - Tasks, Notes & Todos Manager 1.0.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745469.jpg" />
-</div>
-
-
-###  Подробнее
-
-BusinessTasks - приложение для легкого управления задачами.
-BusinessTasks предоставляет вам интуитивно понятный интерфейс, из которого пользователи могут добавлять задачи или Todos по одному для любого деня. Будьте в курсе, что вы должны выполнить в течение дня.
-
-Задачи и Todos могут быть сохранены в различные категории и подкатегории. Создайте свои предпочтительные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 10 мая 2016Разработчик: iLifeTouchПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0533473AEDE6E024FAF39C69A3600F6770C094C3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020437   (745470) от 26.05.2016
-
-VA - Treasure Driving Melodic Uplifting (2016) [MP3|320 кб/с] <Uplifting Trance, Vocal Trance, Energy>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diher & R3dub - Sense (Original Mix) 06:32
-02. Michael Flint & Stephanie Kay - Hide (Original Mix) 06:03
-03. Baseman - Planet (Original Mix) 06:46
-04. Dark Entity - Reflection 05:58(   Читать дальше...   )Жанр: Uplifting Trance, Vocal Trance, EnergyПродолжительность: 08:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0884CCCD834AC8138CB77327C4E7EC51B81F1C77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020433   (745471) от 26.05.2016
-
-VA - Professional Dj Proud Radio (2016) [MP3|247-320 кб/с] <Club, Hands Up, DanceCore, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Cap Feat. Marybran - One More Chance (Radio Edit) 03:23
-02. D-Vibes - Out Of Control (Radio Edit) 03:03
-03. Dj Hyo - Ring Ding Dong (Radio Edit) 03:05
-04. Dj Happy Vibes Feat. Jazzmin - Point Of No Return (Dance Radio Version) 03:34(   Читать дальше...   )Жанр: Club, Hands Up, DanceCore, FunkyПродолжительность: 04:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4420FC4E7CC27701DA89BBFC98CE46FB7110A1DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020611   (745472) от 26.05.2016
-
-Семь нот для Безымянной высоты. Правда о подвиге (2011) SATRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитая песня "На безымянной высоте" была написана композитором Вениамином Баснером и поэтом Михаилом Матусовским уже после войны к кинофильму "Тишина". Авторы создали ее накануне двадцатилетия победы. Это песня о скорби по погибшим товарищам и о троих оставшихся в живых фронтовых друзьях. Многие фронтовики в этой песне узнавали и узнают себя. (   Читать дальше...   )Телекомпания: Россия 1Жанр: ДокументальныйРежиссер: Ирина Бессарабова, Александр СудиловскийПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A924C3EE90A661CD1C2E342AA7A9A5BE3AD43B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020459   (745473) от 26.05.2016
-
-Deckset: Turn your notes into beautiful presentations 1.6.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deckset это новый, простой способ для создания презентаций. Откройте ваш любимый текстовый редактор, запишите свои мысли и Deckset будет превращать их в красивые презентации. Сосредоточиться на ваших идеях, не на проектировании слайдов.
-
-Deckset поставляется с девятью удивительно выглядящими темами, которые предназначены для работы для любой аудитории, будь то деловой (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04.05.2016Разработчик: Unsigned Integer UGПоддерживаемая ОС: OS X 10.9 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25B6D693DD55DA7946C29FC58C4AFC2729FE5FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783128   (745478) от 04.05.2014
-
-Wallpapers - New Mixed HD Wallpapers Pack (03.05.14) [JPEG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Окунись с головой в майское поветрие жаркого и сочного лета. Ласковое солнце подарит загар, а лихие картинки порадуют даже искушенный глаз любого ценителя. Замечательные фото дикой природы, редкие кадры забавных животных, дорогие автомобили, креативные работы малоизвестных художников и многое другое ожидает вас в свежей порции обоев для ваших рабочих столов.Разрешение файлов: 1680x1050 - 2560x1600Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FA18F110225E93D729F15FEFAFD1A191B61B3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396761   (745494) от 16.07.2020
-
-Свобода за рулём в Саудовской Аравии / Saudi Women's Driving Schools (2019) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для большинства женщин в современном мире получение водительских прав — обычное дело. Но для женщин в Саудовской Аравии до июня 2018 года садиться за руль было запрещено законом. Для съемок этого документального фильма был получен беспрецедентный доступ к саудовской женской школе вождения в столице Эр-Рияде — крупнейшему в мире комплексу подобного типа. Из частных (   Читать дальше...   )Производство: США, HBO Documentary FilmsЖанр: ДокументальныйРежиссер: Эрика ГорноллПеревод: Многоголосый закадровый, профессиональный (SDI Media)Субтитры: Английские (hardsub - на арабскую речь)Продолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6E04D64BB7EA8F1373E55D93D5A59F4241C748
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396772   (745495) от 16.07.2020
-
-VA - The Chill Stompers, II (2020) AstroPilot Music [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psybient, Progressive Trance, Downtempo, Ambient>
+Monoplay - Octopus (2019) Nopassport Records [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 
 >>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745495.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Minddigger - Infinite Motion (08:32)
- 02. RAAS - Floating Forward (Invisible Ralf Remix) (06:36)
- 03. Richard Stonefield - Ashtan (Revisited) (07:46)
- 04. Dynamic Illusion - Back To Life (Revisited) (06:24)(   Читать дальше...   )Жанр: Psybient, Progressive Trance, Downtempo, AmbientПродолжительность: 00:54:58
+01. Long Journey (Original Mix) (6:21)
+ 02. See You (Original Mix) (7:03)
+ 03. So Far (Honestly) (Original Mix) (5:32)
+ 04. Octopus (Original Mix) (3:46)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 00:46:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B62E2445194BC4B8ABD3E4BD4C648C72704C1490
+magnet:?xt=urn:btih:5C0AB59CE6042B4CC65583F808D382CF0CEBF985
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396159   (745496) от 16.07.2020
+###  Публикация: 1283055   (741051) от 15.02.2019
 
-Журнал | Design Buy Build №45 (2020) [PDF] [En]
+ST1M - Калейдоскоп (2019) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 
->>Журналы
->>Домоводство (журналы)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745496.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Design Buy Build содержит последние новости о продуктах и ​​показывает широкий спектр продуктов в действии. При поддержке более 50 наиболее уважаемых строительных и дизайнерских ассоциаций; Для всех профессионалов строительной отрасли имеется множество актуальной информации и новостей.Жанр: АрхитектураФормат: PDF
+1. Калейдоскоп
+2. Jetpack
+3. Не дождётесь
+4. Выживи(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:16:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D493E4BF653A58F1BA65D2F1B62094B2AF30C3D1
+magnet:?xt=urn:btih:D5598FEE670F2645B6E4C73787E2BDA7F75EFA12
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283166   (741052) от 15.02.2019
+
+Футбол. Лига Европы УЕФА 2018-2019. 1/16 Финала. 1-й матч. Краснодар (Россия) — Байер (Германия) (14.02.2019) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741052.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 февраля 2019, четверг. 20:55 МСК
+Лига Европы УЕФА 2017 - 2018. Плей-офф.
+1/16 Финала. 1-й матч.
+Краснодар (Краснодар, Россия) — Байер (Леверкузен, Германия)(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:22:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6E229C1982A2163A02F5F6B5DBC98DFA8F8E091
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283092   (741053) от 15.02.2019
+
+Vivaldi 2.3.1440.48 Stable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A099604F153D08A79DFCB7333680298F92ACB4B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283057   (741054) от 15.02.2019
+
+Foreigner - Live in Concert (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741054.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Head Games (Live)
+2. Feels Like the First Time (Live)
+3. Cold as Ice (Live)
+4. Hot Blooded (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FCCE64A9F745C9953A2968D4B927DD5745985D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282636   (741055) от 15.02.2019
+
+Rotting Christ - The Heretics (2019) [MP3|320 Kbps] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 In the Name of God
+02 Vetry ZlyeЖанр: Black MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA6F932561D9D8B685FF2520C2DCAD947177FE02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282901   (741056) от 15.02.2019
+
+Winger - Live (2007) от ALEXnROCK WEBRip
+
+>>Остальное
+>>hand made * video
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мощный концерт, исполнено здоровски! Любителям крутого хард рока рекомендую. Рип делал с фирменного двд, ничего не вырезал. Звук поставил с CD. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK01 Blind Revolution Mad
+02 Loosen Up
+03 Easy Come Easy Go
+04 Your Great Escape(   Читать дальше...   )Жанр: RockПродолжительность: 01:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC4FC0416A27118FFBED6306736BC470DC91C02
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283084   (741057) от 15.02.2019
+
+Privacy Eraser Free 4.47.2 Build 2778 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F6FF3ABF391CB79FFAF31AEBD4BDDAEF53D3AF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283017   (741058) от 15.02.2019
+
+Robbie Williams - Under the Radar, Vol. 3 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Impossible
+2. Gold
+3. Dirty Rotten
+4. Good People(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2742B9C5AA595456AA4E094D7E2498C83883CC7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283073   (741059) от 15.02.2019
+
+Мадлен Л`Энгл | Острова во времени (2019) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Решив пожить у дедушки с бабушкой, мистера и миссис Мёрри, Полли О’Киф собиралась провести это время с пользой и удовольствием. Познавательные беседы, встречи с приятными соседями, старый знакомый, чьи визиты носят приятный романтический характер… Казалось бы, ничто не предвещает тревог. Однако дом Мёрри – своего рода остров во времени, омываемый потоками прошлого (   Читать дальше...   )Жанр: Детская фантастика, Зарубежная фантастика, Книги для подростковПеревод: Анна ХромоваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414DDB9610894D3978DBE2691D52343411E130C4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283144   (741060) от 15.02.2019
+
+VA - Italo Disco Evolution (2018) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cy-Ro - It's All up to You (Extended Mix) 05:56
+02. Michelle Rose - Hard to Say I'm Sorry (Extended Mix) 06:11
+03. Ciao Ciao - The Magic of Sunshine (Extended Mix) 06:07
+04. Francis Cooper - Pretty Woman (Extended Mix) 05:50(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D36BED608878E4D3C2FE7F4BE342C55FF3F66F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282912   (741061) от 15.02.2019
+
+Fakear - All Glows (2018) [FLAC|Lossless|tracks + .cue] <Experimental, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (01:42)
+02. Something Wonderful (feat. Ana Zimmer) (03:39)
+03. Lost in Time (feat. Polo & Pan, Noraa & Clement Bazin) (02:54)
+04. Lost Colours (03:40)(   Читать дальше...   )Жанр: Experimental, DowntempoПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F8B1AB7116E3B01281667A5227A4BBE16C34DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283062   (741062) от 15.02.2019
+
+Del Faro - 2 Albums (1988, 2015) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Piazza (3:51)
+02. Sara (4:27)
+03. A Chi (3:20)
+04. Volare (3:37)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EuropopПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87FCAF208953FB5A2B87EC3804F6D83CEB07AB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282857   (741063) от 15.02.2019
+
+Thylacine - Roads, Vol.1 (2019) [FLAC|Lossless|tracks + .cue] <IDM, Ambient, Deep House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thylacine – Murga (04:11)
+02. Thylacine – Purmamarca (05:55)
+03. Thylacine & Weste – El Alba (03:51)
+04. Thylacine – The Road (05:56)(   Читать дальше...   )Жанр: IDM, Ambient, Deep HouseПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28C8F7A0547C6D29871B68F1575BBDAC85F06C49
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283172   (741064) от 15.02.2019
+
+VA - Workout 2019 Aerobic Hits. Music For Fitness & Workout 128 BPM/32 Count [MP3|320 Kbps] <Funky, Club House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Maximum - La Fuerza (Extended Mix) 3:39
+02. Luka J Master & Carlo M feat. Regina Saraiva - Vem (Sanny J Mix) 4:24
+03. Condor feat. Adina - Feel U (Extended Mix) 4:45
+04. Joe Berte' & Dago Hernandez - Dance In The Stars (Daniel Tek Remix) 4:53(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4920A350032F612826BBAB6A6FB13463D6C9F5D7
 ```
 
 

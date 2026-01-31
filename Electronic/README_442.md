@@ -1,3 +1,30 @@
+###  Публикация: 1378532   (846273) от 25.04.2020
+
+Russian Village Boys - Kiss My Peace (2020) [MP3|320 Kbps] <Hardstyle, Hardcore, Nu-Rave>
+
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Drunk (feat. Skurt) [03:15]
+02. Romantic & Jackass [03:45]
+03. Ciao [02:24]
+04. Second Home (prod. by Skurt) [02:50](   Читать дальше...   )Жанр: Hardstyle, Hardcore, Nu-RaveПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975BC59DE82DCE37BFE22DAA6D40E552AE1629FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499571   (846313) от 03.10.2021
 
 Jerro - Coming Home (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House>
@@ -662,33 +689,6 @@ Phisonsoid - Discography 18 Releases (2009-2015) [FLAC|Lossless|WEB-DL]<Downtemp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B87142BDB145B0E92738D1C6AEBE830C54C27B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377872   (849815) от 23.04.2020
-
-Pet Shop Boys - My Beautiful Laundrette (2020) EP [FLAC|Lossless|tracks + .cue] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_849815.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Omar's Theme (03:09)
-2. Angelic Thug (02:27)
-3. Johnny's Dark Side (02:46)
-4. Night Sings (Popa's Theme) (02:23)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:21:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F1D0035A26C2E4FCC52740236DC7F370CB79C35
 ```
 
 

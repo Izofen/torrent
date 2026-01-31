@@ -1,3 +1,30 @@
+###  Публикация: 1011007   (797660) от 26.04.2016
+
+VA - Top Sexy House Electro (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Termite & Mikky Clap -  Insomnia (Alex Fresh Remix)  5:51
+02. Soulstatic -  Bang, Bang, Bang! (feat. Wendy Lewis) (Lypocodium & Helen Brown Remix)  7:36
+03. Pot4ss -  Get The Fuck (Original mix)  5:19
+04. Twosid3s -  Out Of The Ground (Original mix)  6:08(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB11C879F0AA78A7370F2A1F85C9039502ECD9CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011084   (797665) от 26.04.2016
 
 VA - Global DJ Broadcast Top 20 April (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
@@ -667,33 +694,6 @@ Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:274FD0335A5CF9986690552CBA074D3A910608D2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273865   (798780) от 04.01.2019
-
-VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nathan Adams, Sabrina Joy-Yourself (Sean McCabe Main Vocal Mix)
-02. Zepherin Saint, Miranda Nicole-Butterflies (Live Mix)
-03. Vanco, Zano-Ms Jailer (feat. Zano)
-04. Gino Brown, Nonny D - Time No Dey (feat. Nonny D)(   Читать дальше...   )Жанр: Soulful HouseПродолжительность: 01:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2B9584C8DC3C5B59083442A1A40355CC3A2EF2
 ```
 
 

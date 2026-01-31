@@ -52,6 +52,33 @@ magnet:?xt=urn:btih:FEB243BF940CC36E078143E9E5D632762D6DF42B
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390781   (447051) от 22.09.2011
+
+Sigue Sigue Sputnik - Flaunt It (1986) [FLAC|Lossless]<Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_447051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sigue Sigue Sputnik - английская группа, музыкальный стиль которой можно охарактеризовать как электронный пост-панк. Образована в 1984-м году Тони Джеймсом (Tony James), Мартином Дигвиллом (Martin Degville), Нилом Экс (Neal X), Рэйем Мэйхью (Ray Mayhew) и Крисом Кавана01. Love Missile F1-11
+02. Atari Baby
+03. Sex-Bomb-Boogie
+04. Rockit Miss U-S-A(   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570048   (447298) от 15.08.2022
 
 Space Of Variations - Imago (2022) Scene [FLAC|Lossless|tracks] <Metalcore, Post-Hardcore>
@@ -669,33 +696,6 @@ Boysetsfire - Boysetsfire (2015) [FLAC|Lossless|WEB-DL]<Alt.Rock | Post-Hardcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53C270C1C2FC1584BDECAE08392D62A5C78B6C1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321313   (461214) от 23.08.2019
-
-The Fray - Through the Years: The Best of The Fray (2016) Epic Records [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over My Head (Cable Car) (3:58)
- 02. How To Save A Life (4:24)
- 03. Look After You (4:28)
- 04. All At Once (3:49)(   Читать дальше...   )Жанр: Indie Rock, Pop RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3DF5F958E7347ABDCAB28CB2F66064D27B820B
 ```
 
 

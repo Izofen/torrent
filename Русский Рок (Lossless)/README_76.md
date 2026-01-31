@@ -1,3 +1,30 @@
+###  Публикация: 1455632   (1025488) от 20.03.2021
+
+Gothic Sky - In Search of a Lost Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1025488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven [00:05:34]
+02. Phantom Wanderer (feat. Arthur Berkut) [00:07:31]
+03. Dark flame (feat. Arthur Berkut) [00:06:47]
+04. Lord of nothingness [00:07:26](   Читать дальше...   )Жанр: Gothic, Black, Death MetalПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7631D90EFE9EC3DC1629B72683509658EA3E75C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455831   (1025495) от 20.03.2021
 
 Sanctorium - Ornaments (2020) 2xCD [FLAC|Lossless|image + .cue] <Symphonic Gothic Metal>
@@ -668,33 +695,6 @@ Rадиомосты - Перезагрузка (2023) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:588769A8B25C46C4A3A44268239E7F393D24300F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621457   (1030994) от 25.03.2023
-
-Shakti Loka - Кукушкины слёзки (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тургенев [00:02:36]
-02. Радуешься [00:02:51]
-03. Девочка из Косово [00:03:21]
-04. Золотом [00:03:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:15:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0301043F4000C5AB7B9641D35A1651511142D5C
 ```
 
 

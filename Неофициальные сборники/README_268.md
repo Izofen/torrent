@@ -1,3 +1,30 @@
+###  Публикация: 943149   (449429) от 03.10.2015
+
+Medwyn Goodall - Beautiful World (2015) [MP3|320 кб/с]<New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbroken [00:06:02]
+02. Threshold [00:06:31]
+03. Beautiful World [00:05:43]
+04. Blue Skies [00:05:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267F5EF40686FD9D79BDD86F8570F78B539A89A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943232   (449435) от 03.10.2015
 
 Mireille Mathieu - Good Songs (2015) [MP3|128 кб/с]<Pop, Female vocalists>
@@ -698,39 +725,6 @@ Modern Talking - Good Songs (2015) [MP3|160 кб/с]<Pop, Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5C3308E41D747D073FCEE06C6509121F63818B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551989   (451268) от 25.09.2012
-
-VA - Автозвук Осень Зарубежный (2012) [MP3|160-256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJane Housekat feat. Rameez - My party (Groove Coverage remix)
-02 Tom Boxer - Deep in love (DJ Nejtrino & DJ Baur radio mix)
-03 Will.I.Am feat. Jennifer Lopez - T.H.E. (DJ Rich-Art & DJ Kirillich remix)
-04 Jeffree Star - Blow me
-05 Mandinga - Zaleilah (Hanter Remix 2k12 edit)
-06 Sheikh & Nicco - Hold tight (Radio mix)
-07 Connect-R - Take it slow (DJ Bonne remix)
-08 Far East Movement feat. Kay - Flossy
-09 Marlon Roudette - Anti hero
-10 K'naan feat. Nelly Furtado - Is anybody out there(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94632BF2121EC1578D66B1903AEDFE7C4B5259AD
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1232533   (596012) от 26.06.2018
+
+VA - Deep House Collection Vol.176 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596012.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 7even (GR) - Just a Fool (Original Mix)
+002. Ahmet Kilic & Stoto & Adeba - Stumblin' In (feat. Adeba) (Original Mix)
+003. Ahmet Kilic, DJ Tarkan - We Still Alive  (DJ Tarkan Remix)
+004. Aimo & Chaos feat. Pearl - Just Like Music  (Tswex Malabola Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:59:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C189966DFA2254B892D9ABFAA1F6E604D16028
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548808   (596045) от 04.05.2022
 
 VA - 80's Love Songs (2022) [MP3|320 Kbps] <Pop, Rock, Other>
@@ -671,33 +698,6 @@ VA - Beatport Drum And Bass: Sound Pack #518 (2022) [MP3|320 Kbps] <DnB, Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3884FB1F24A7925A3D1708204ABD4FEA0FA59897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548303   (597593) от 03.05.2022
-
-VA - Bass Drive Madness (2022) [MP3|320 Kbps] <Bassline, DnB, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_597593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bass Drive Madness - это новый всплеск саунда высокого давления, предназначенный для того, чтобы изменить ваш взгляд в целом на музыку Bassline в лучшую сторону!001. Kill Feed - Forsaken
-002. Tr Tactics - Poisoned
-003. Ntropy - Unforgiving World
-004. Xav - Gyal Dem(   Читать дальше...   )Жанр: Bassline, DnB, Electro BassПродолжительность: 11:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CF402FAAFC566E2DA97BA41A220DCAE8D4CBC00
 ```
 
 

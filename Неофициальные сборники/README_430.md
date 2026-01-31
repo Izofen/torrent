@@ -1,3 +1,30 @@
+###  Публикация: 1535129   (686432) от 06.03.2022
+
+VA - Electro Bass Exotic Style (2022) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep, Electro Bass, Jungle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкальный арсенал под названием "Electro Bass Exotic Style", который поможет создать настоящее безумие на танцполе. Лонгплей содержит целых 150 потрясающих треков, предлагая все необходимое для создания плей-стрима в стиле Drumsound . Вы найдете здесь грохочущие бас-линии, пробивные ритм биты, ошеломляющие Jungle пресеты и многое другое.001. Feint - Silent Light
+002. Nick The Lot - After Party
+003. Audio - Sanctuary
+004. Change Of Pace - Methuselah(   Читать дальше...   )Жанр: Drum & Bass, Bassline, Dubstep, Electro Bass, JungleПродолжительность: 11:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94192E38CEB7909440E673E1E685593123B2436
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289346   (686464) от 16.03.2019
 
 VA - ЕвроХит Топ 40 Europa Plus 15.03.2019 [MP3|320 Kbps] <Pop, Dance>
@@ -666,33 +693,6 @@ VA - Under The Influence New Trance Music (2017) [MP3|320 Kbps] <Vocal, Upliftin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:455457A0F678282C0A857BC260B651676E3CA90D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222175   (687491) от 28.04.2018
-
-VA - Ibiza Kickoff (2018) [MP3|320 Kbps] <House, Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Jay - Your Own Way (feat. Sarah Brickel)
-02. Danceheat - I'll Be by Your Side (Extended Mix)
-03. Loungeside - No Longer Used (Alternative Mix)
-04. Tiziara - Save Me (Extended Mix)(   Читать дальше...   )Жанр: House, Funky, Club HouseПродолжительность: 04:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF281FE7A15E0C206460A325CD8BA419A70637B
 ```
 
 

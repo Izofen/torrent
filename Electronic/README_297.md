@@ -1,3 +1,30 @@
+###  Публикация: 1041417   (583423) от 08.08.2016
+
+VA - 100% Hotel Deluxe Music Vol.7 - The Best in Lounge and Chill out Essential Luxury Hits (2016) [MP3|320 Kbps] <Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Project Blue Sun - Color del Amor
+02. Simon Le Grec - I Need Somebody
+03. Charlie North - Big Blue Sky
+04. Mo'jardo - Say Hello(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D47748BDBDB00FD2249CCB13C099B078B8A85D5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 358740   (583768) от 04.07.2011
 
 Lab's Cloud - Organic Mathematics (2011) [FLAC|image+.cue, Lossless]<Psybient, Downtempo, Ambient>
@@ -688,33 +715,6 @@ VA - Ibiza Chillhouse Party (2015) [MP3|320 кб/с]<Deep House, Chill House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70AA0D023ADC5627BC9FC7AE31249361F0AF9122
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301178   (586268) от 10.05.2019
-
-VA - Flowers Of May (2019) [MP3|320 Kbps] <Ambient, Downtempo>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Seeds — Eternity (Alan Watts) 06:32
-02. Audiomath — On My Way Home 06:07
-03. Ancient Core & Ajna Vitamin — Ancient Vitamin 09:15
-04. Reasonandu — Daisies (Edit Version) 05:24(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F9671C5CEC7AD70FC705E27CCFA2E935D2FF4A
 ```
 
 

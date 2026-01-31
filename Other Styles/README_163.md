@@ -1,3 +1,225 @@
+###  Публикация: 636854   (899744) от 31.03.2013
+
+Мужской камерный хор п/у Вадима Байкова | Акафист Божественным Страстем Христовым (Пассия) (2007) [MP3|320 кб/с]<Церковное пение>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Тебе, одеющагося (7:07)
+02. Кондак и Икос 1 (3:57)
+03. Кондак и Икос 2 (2:09)
+04. Кондак и Икос 3 (2:18)
+05. Кондак и Икос 4 (2:13)
+06. Кондак и Икос 5 (2:08)
+07. Кондак и Икос 6 (2:00)
+08. Кондак и Икос 7 (1:57)
+09. Кондак и Икос 8 (2:13)
+10. Кондак и Икос 9 (2:07)(   Читать дальше...   )Жанр: Церковное пениеПродолжительность: 01:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C54EE7629B0598890B28E1500F767690A19072
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 293201   (899810) от 11.02.2011
+
+Dandelium - Дискография (2006-2008) [MP3|256 kbps]<Instrumental symphonic melodic metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental symphonic melodic metalПродолжительность: 03:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CD029545E338494370D7B58917034DAD5D8EAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636971   (899969) от 31.03.2013
+
+VA - Классика русского романса (2008) [MP3|320 кб/с]<Романс>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Бубна звон - Лариса Луста
+02. Судьба-рулетка - Сергей Савченко
+03. Моя гитара - Наталья Корнилова
+04. Дворянский вальс - Александр Богданов
+05. Отцвели хризантемы в саду - Елена Васильева
+06. Возвращение ангела - Дмитрий Юрич
+07. Заграница - Юлия Ласкина
+08. Эй, зима... - Владимир Мичурин
+09. Мадемуазель - Станислав Слуцкер
+10. Совсем чужие - Лариса Луста(   Читать дальше...   )Жанр: РомансПродолжительность: 03:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2330E34150416881F279E0BE953B4AD0B29B44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 760793   (899999) от 26.02.2014
+
+New Bums - Voices in a Rented Room (2014) [FLAC|Lossless]<Lo-Fi, Indie Pop, Acoustic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Black Bough (04:52)
+ 02. Pigeon Town (03:20)
+ 03. Your Girlfriend Might Be a Cop (02:46)
+ 04. Sometimes You Crash (02:18)
+ 05. The Killers and Me (02:50)
+ 06. Your Bullshit (03:50)
+ 07. It's the Way (03:51)
+ 08. Welcome to the Navy (01:57)
+ 09. Burned (03:43)
+ 10. Town on the Water (03:29)(   Читать дальше...   )Жанр: Lo-Fi, Indie Pop, AcousticПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB940D8AE523040387ADF4A56A5BD8795080112E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474245   (900142) от 31.03.2013
+
+Buedi Siebert - 3 albums (1995-2003) [MP3|320 кб/с]<New age, Relax, Meditative, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(5:56) 01. Awakening Chi
+(4:41) 02. Celebrating Silence
+(2:20) 03. Water Course Way
+(5:19) 04. Dancing with the Water
+(1:52) 05. A Breath of Joy
+(5:38) 06. Turning Turning
+(2:26) 07. Finding the Quiet
+(6:43) 08. The Light Dance
+(2:26) 09. Gentle Breeze
+(5:23) 10. Riding the Dragon(   Читать дальше...   )Жанр: New age, Relax, Meditative, MantrasПродолжительность: 00:59:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68D2066557F98C68CB361A06E3C478922EBE100
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636189   (900543) от 31.03.2013
+
+VA - В ритме страсти (3СD) (2012) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1Жанр: InstrumentalПродолжительность: 01:10:05
+
+1. Angel Robledo - Son de la loma (3:02)
+2. Ritmo de Cuba - Marinero (4:12)
+3. Elmer Ferreira - Ni chicha ni limona (4:02)
+4. Miguel-Angel Gamarra - La Camisa negra (3:40)
+5. Tlen Huicani - La Bamba (4:25)
+6. Tlen Huicani - El Jarabe loco (4:19)
+7. Mariachi Vargas de Tecalitlan - La Adelita (2:38)
+8. Voces - El Cumbanchero (1:54)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079C1C1666C6C6FE2F9C6DC9A6A6883AFD3121F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637335   (900675) от 31.03.2013
+
+Ara Dinkjian - Peace on Earth (2008) [MP3|112-320 кб/с]<Instrumental, Ethnic, World>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(03:57) 01. Urfa Divan
+(06:16) 02. Bir Gun Olacak
+(03:25) 03. Mandilatos
+(03:29) 04. Erangi
+(03:10) 05. Kamancha - Yis Kou Ghimetn Chim Giti
+(03:40) 06. Ferafeza Longa
+(07:06) 07. Mahur Saz Semai
+(10:34) 08. Bint El Balad
+(03:36) 09. Vart Kaghelen Goukas Yar - Al Ayloughus Gorav
+(12:01) 10. Beyati Saz Semai(   Читать дальше...   )Жанр: Instrumental, Ethnic, WorldПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6304F59BDA8A3F1A5C0D36F2152BCBBD08B54F80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637541   (900813) от 31.03.2013
 
 Nicole - Night Tree (2003) [MP3|256 кб/с]<New age, Instrumental, Native american, Flute>
@@ -519,206 +741,6 @@ Tatanka - Best Of Indian's Song (2005) [MP3|320 Kbps] <Native American, New age,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36DA4BA965D80B1CE66E3DEFAA77481F1CA36B62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369204   (903547) от 23.03.2020
-
-Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Downtempo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tales of a Broken Planet (4:32)
-02. Cayo Coco (6:18)
-03. The Choice (4:35)
-04. 1st Floor Lobby (4:08)(   Читать дальше...   )Жанр: Instrumental, Chillout, DowntempoПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D01A4BC0C7BB49CCF4C16ED322C991354A3F89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368871   (903649) от 23.03.2020
-
-Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soundtracks) (2014) [MP3|320 Kbps] <Native American, World, Film Scores>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Innocence (From "Man of the House")
-02. The Last of the Mohicans (From "The Last of the Mohicans")
-03. Hinayana Vision (From "Pocahontas")
-04. Dances with Wolves (From "Dances with Wolves")(   Читать дальше...   )Жанр: Native American, World, Film ScoresПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892B23A912194E5BCC41B404B41C062D161DD6AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369290   (903803) от 23.03.2020
-
-Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Atmospheric Folk, Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norðanátt (6:24)
-02. Eilífðina á Veturna (7:29)
-03. Jökulvíðerni (3:43)
-04. Maðr af Manni (7:10)(   Читать дальше...   )Жанр: Ambient, Atmospheric Folk, Dark Folk, Dark Ambient, NeofolkПродолжительность: 00:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA20F4613F5A2710A21C899E2F1B16E811709A05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 636161   (904199) от 29.03.2013
-
-D.J. Chill - Jazz Chill Music - Cool Instrumental Background Guitar Lounge Songs (2013) [MP3|320 кб/с]<Instrumental, Jazz, Lounge>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01.  My Funny Valentine (Funky Lounge Mix) (3:03)
-02.  In a Sentimental Mood (Cool Jazz) (4:43)
-03.  Stella by Starlight (Guitar Saxophone & Flute) (4:50)
-04.  Satin Doll (Brazilian Rhythm) (4:33)
-05.  Georgia on My Mind (Lounge Music) (5:22)
-06.  Summertime (Lounge Music) (3:04)
-07.  The Night Has a Thousand Eyes (Cool Mix) (5:23)
-08.  Autumn in New York (Ultra Lounge Music) (4:46)
-09.  Moon River (Lounge Guitar) (2:27)
-10.  Here's That Rainy Day (Lounge Jazz) (2:55)(   Читать дальше...   )Жанр: Instrumental, Jazz, LoungeПродолжительность: 01:22:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AD55596C2027C5FB82C0BCA8D1A193F31162D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991722   (904238) от 29.02.2016
-
-Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Music, Mantras, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By The Stream (10:55)
-02. PM Dance (8:30)
-03. Dream the Dark (10:02)
-04. The Beloved (11:05)(   Читать дальше...   )Жанр: World Music, Mantras, HealingПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B8939EA4EBE677FC8A2EB9DA7C5A308473031F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991907   (904357) от 29.02.2016
-
-Timothy Wenzel - Distant Horseman (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Bend in the River (feat. Josie Quick)
-02. Distant Horseman (feat. Josie Quick)
-03. Turn and Walk Away
-04. A Night so Cold (feat. Josie Quick)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63A0DE84BEFE8BB213BC2C250E539F26A3FF090
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497737   (904503) от 23.02.2014
-
-Казачья воля - 4 альбома (2002-2008) [MP3|320 кб/с]< Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-
-2002 - Славьтесь, славьтесь, казачки!
-
-2005 - Андалузская ночь
-
-2005 - Золото Тихого Дона
-
-2008 - Была веснаЖанр: Folk Казачья песняПродолжительность: 04:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CD0EBE4150ECD88EAB1BC72853FD0F02D3AE3A
 ```
 
 

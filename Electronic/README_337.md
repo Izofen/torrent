@@ -1,3 +1,30 @@
+###  Публикация: 1138404   (664483) от 29.05.2017
+
+VA - Lounge Traveller Vol.1: High Class Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  351 Lake Shore Drive - All Around Me 5:57
+02.  Marc Hartman - Out Of Control 4:04
+03.  Greg Walker - Tailwind to the Sun 3:30
+04.  Michael E - Jhenna 4:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D97A3D7F63492D4A007CC138E189F3FAD36B170
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138251   (664489) от 29.05.2017
 
 VA - Chill Luxury Del Mar - Beach Spa Resort Boutique Lounge Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Sunshine Dance 6 (2017) [MP3|320 Kbps] <Future House, Progressive, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4B8E8891C5E06D6DEB5F82A1A0C03A60C3142D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138100   (665715) от 28.05.2017
-
-VA - Chillout Acoustic Sessions (2017) [MP3|320 Kbps] <Downtempo, Chillout, Acoustic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_665715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Klubb-X - Green Light 3:17
-02.  Nite Watchmen - Something Just Like This 3:11
-03.  Party Rockerz - Stay 3:25
-04.  Monsta Kat - It Ain't Me 3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, AcousticПродолжительность: 01:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1653B90A601D935C0922919BE8C20E9A0C9299C0
 ```
 
 

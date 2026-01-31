@@ -1,3 +1,45 @@
+###  Публикация: 473438   (676223) от 11.06.2012
+
+Nine Inch Nails - 17 Альбомов (1989 - 2007)  [FLAC|Lossless]<Alternative Rock, Industrial, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_676223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 		Hyperpower!  	1:42
+02. 		The Beginning Of The End 	2:47
+03. 		Survivalism  4:23
+04. 		The Good Soldier 	3:23
+05. 		Vessel 	4:52
+06. 		Me, I'm Not  	4:51
+07. 		Capital G  	3:50
+08. 		My Violent Heart 	4:13
+09. 		The Warning 	3:38
+10. 		God Given 	3:50(   Читать дальше...   )DVD-Rom contains the entire album Year Zero in the following multi-track formats:
+-Garageband
+-Ableton Live
+-Generic wave files at 16 bit 44k
+
+Данный диск, больше подойдёт любителям соченять музыку......
+DVD-ROM включает в себя исходный материал всех композиций альбома «Year Zero» для ремикширования при помощи музыкального программного обеспечения  GarageBand  и Ableton Live . Также на диске представлены демоверсия Ableton Live и отдельные семплы в формате WAV (44100 Гц) для использования в других программах как Cakewalk Sonar  или  Pro Tools.
+
+Для любителей, это уникальный материал....
+(   Читать дальше...   )Жанр: Alternative Rock, Industrial, ExperimentalПродолжительность: 01:11:17 / DVD-Data 7,49гб
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290658   (676581) от 21.03.2019
 
 Professor Tip Top - Hybrid Hymns (2019) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Psychedelic, Space Rock>
@@ -659,33 +701,6 @@ The Killers - Imploding the Mirage (2020) [FLAC|Lossless|tracks] <Indie Rock, Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9942F4794721C79CB63D4DC411EC6483F2DC11EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403723   (688561) от 21.08.2020
-
-The All-American Rejects - Kids in the Street (2012) Japan Edition [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someday's Gone
-02. Beekeeper's Daughter
-03. Fast And Slow
-04. Heartbeat Slowing Down(   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D35195CC3FC94A92DC1E3E46212EE8E48C0A59E
 ```
 
 

@@ -1,3 +1,190 @@
+###  Публикация: 1025882   (707939) от 13.06.2016
+
+Blue Tribe - Deep Sentiment (2006-2011) (6 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way Of Sakayama (5:51)
+02. Free Tibet (6:38)
+03. Temple Lounge (4:52)
+04. Lhasabeats (6:00)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 04:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE566EB8E1827EF4B94C81E55BAD2E92DA64FB2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025753   (707940) от 13.06.2016
+
+Eloy Fritsch (ex.Apocalypse) - 8 альбомов (1997 - 2012)[FLAC|Lossless|image + .cue]<Modern Classical, Ambient, New Age, Experimental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaia
+02. Neutron Star
+03. Sunshine
+04. Exogenesis Part I(   Читать дальше...   )Жанр: Modern Classical, Ambient, New Age, ExperimentalПродолжительность: 08:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FAC25CB0FBA3C1B1E41166D80A4028B131BA74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026014   (707946) от 13.06.2016
+
+Llewellyn - Native American Gold (2016) [MP3|320 кб/с] <New age, Relax, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River Mermaid (32:33)
+02. The Old Woman of the Sea (16:07)Жанр: New age, Relax, Meditative |Продолжительность: 00:48:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58D7E760473D25C2AE0E56B8A18AEDE8DB3513B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219793   (707998) от 17.04.2018
+
+VA - Fitness Latino Party Vol. 2, 3CD (2018) [MP3|320 Kbps] <Reggaeton, Zumba, Merengue, Other>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Fonsi - Echame La Culpa 2:54
+02. Mc Fioti - Bum Bum Tam Tam 3:34
+03. Daddy Yankee - Dura 3:21
+04. Joey Montana - Suena El Dembow 3:16(   Читать дальше...   )Жанр: Reggaeton, Zumba, Merengue, OtherПродолжительность: 03:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721C3E354321A56B7C6E4EB4CA57D65364EB4B5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025690   (708018) от 13.06.2016
+
+Blue Tribe - Deep Spirit (2006-2012) 3CD [MP3|320 кб/с] <Native American, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Sun (5:14)
+02. The Medicine Wheel (5:16)
+03. Yellow Moon Woman (5:50)
+04. Spirit Wolf Calling (5:05)(   Читать дальше...   )Жанр: Native American, Enigmatic, WorldПродолжительность: 02:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2EC2F3782050A5F31C165482BA0C2232164A41B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025953   (708021) от 13.06.2016
+
+Spirit Nation - 2 альбома (1998-2006) [MP3|320 кб/с] <Native American, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celebration (4:45)
+02. Animal Clans (5:04)
+03. Earthwalk (5:29)
+04. Yaneeha Sweet Daughter-Moon (5:22)(   Читать дальше...   )Жанр: Native American, Enigmatic, WorldПродолжительность: 01:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B54CB00E4B6CB9E8B0E1AA1472D12F27DDF46F04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025592   (708113) от 13.06.2016
+
+Liquid Mind - XI: Deep Sleep (2016) [FLAC|Lossless|tracks] <New-age, Ambient, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night Whispers (9:08)
+02. Teach Me to Love (Pt. 1) (5:00)
+03. Teach Me to Love (Pt. 2) (7:02)
+04. Dreamland (8:01)(   Читать дальше...   )Жанр: New-age, Ambient, RelaxПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5858F5D834E4F7FC2A88886BF1F5784A1D285027
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025537   (708123) от 13.06.2016
 
 Robin Spielberg - Another Time, Another Place (2015) [FLAC|Lossless|tracks] <New-Age, Instrumental, Piano>
@@ -505,195 +692,6 @@ Glenn Morrison - How We Are (Motion Picture Soundtrack) (2017) [MP3|320 Kbps] <S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC905047673007078EB4C748E4B2AE256A878873
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401021   (713039) от 08.08.2020
-
-Native Spirit - Pow Wow Dance (2008) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ethnic, Folk, New AgeПродолжительность: 01:09:12Трэклист: 01. Coyote Dream
-02. The Wolf Dance
-03. Fire
-04. Rainbow Canyon(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83354461561B3DB9DB55BAABAAC4EB53A173A1FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401024   (713041) от 08.08.2020
-
-Ikaiki Taky - Inka Llacta (2009) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Qarwa Yaku
-02. Ruminahu
-03. Akuchimay
-04. Sumac Llacta(   Читать дальше...   )Жанр: Ethnic, Folk, New AgeПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EF7B6D8B27487DBC54C46680ED2094C28BDC42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219499   (713353) от 14.04.2018
-
-Danheim - Herja (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atgeir 3:04
-02. Berserkir 3:55
-03. Feigr 3:30
-04. Fimbulvetr 4:25(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BFC0BBF078B654067DEB5089B428FD73B921112
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025047   (713796) от 10.06.2016
-
-Nature Sounds & Yoga Tribe - The Natural Orchestra (2016) [MP3|320 кб/с] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stargazing
-02. Evening Music
-03. Unforeseen Adventure
-04. Call to Play(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:10:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D959E4A1B1609B7C8FBFE50E8EB78A496D3FB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024576   (713962) от 10.06.2016
-
-VA - Are Lonesome Tonight. 23 Romantic Instrumentals (UY) Unofficial Release [APE|Lossless|image + .cue] <Jaz, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Camels Pick-Nick
-02.  Linger A While
-03.  Concerto D'Aranjuez
-04.  Plaisir D'Amour(   Читать дальше...   )Жанр: Jaz, Easy ListeningПродолжительность: 01:12:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3C4862E1DA82FC36E73A9F7FE6805B8F4A032D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024907   (713994) от 10.06.2016
-
-Terry Oldfield & Soraya - Namaste (2016) [MP3|320 кб/с] <New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Namaste
-02. Always Perfect
-03. Celtic Blessing
-04. Into Your Hands(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48E05642D49AFD8356637C38F406939B3BA4F067
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024741   (714075) от 10.06.2016
-
-Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer & Lang Lang – Oogway's Legacy (02:00)
-02. Hans Zimmer - Hungry for Lunch (01:15)
-03. Hans Zimmer – The Power of Chi (04:12)
-04. Hans Zimmer – The Arrival of Kai (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:967182C7E7560018639B9076FC23D30BA6FD7527
 ```
 
 

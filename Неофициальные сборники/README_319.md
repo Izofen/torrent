@@ -1,3 +1,30 @@
+###  Публикация: 1239673   (536857) от 06.08.2018
+
+VA - Burning Man: Drum And Bass Compilation (2018) [MP3|320 Kbps] <Drum And Bass, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536857.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Binary - Cycles (Original Mix)
+002. Fred V & Grafix - Stay Here
+003. Gydra - Scourge
+004. High Level - Rub A Dub (Original Mix)(   Читать дальше...   )Жанр: Drum And Bass, ElectroПродолжительность: 09:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DBF8D4F3152AF5BFB0AFD0E3E02F704DCF0A4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 925968   (536947) от 08.08.2015
 
 Алла Пугачёва - Я смогу (2015) [MP3|320 кб/с]<Pop>
@@ -714,33 +741,6 @@ VA - Trance Desire Volume 52 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A38B38FBEBA03B23E4BD0C29D49179D1C795C84
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925603   (539300) от 07.08.2015
-
-VA - Summer on the Beach (Downtempo Lounge and Chilled House) (2015) [MP3|320 кб/с]<Downtempo, Future Jazz, Lounge, Nu Jazz, Broken beat, Bossa, Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lower Man (Remix) - Sonik Boom 04:00
-02. September Morn - Ely Bruna 03:58
-03. Ta Ta Ya Baby - Sarah Jane Morris 05:23
-04. Mama Blues - Jestofunk 05:15(   Читать дальше...   )Жанр: Downtempo, Future Jazz, Lounge, Nu Jazz, Broken beat, Bossa, LatinПродолжительность: 02:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AD6B2BB898FE9B16E1F11DCAC3838DCE87CCE1
 ```
 
 

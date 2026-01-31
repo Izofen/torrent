@@ -1,3 +1,30 @@
+###  Публикация: 903288   (658788) от 30.05.2015
+
+VA - Популярная хитовая сотка (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658788.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jennifer Lopez Feat. Iggy Azalea & Pitbull - Booty (Bali Bandits Remix) (05:07)
+002. Belka - Я Пришла (03:53)
+003. Afrojack, Martin Garrix - Turn Up The Speakers (04:03)
+004. Shami - Восток (04:00)(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C9C711BC2D630A18C23964CC889F6F9A1E6DFEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903356   (658950) от 30.05.2015
 
 VA - Тузы козырные Блатной суперсборник (2015) [MP3|256 кб/с]<Шансон>
@@ -686,33 +713,6 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.61
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12CA4BEAEDE9961173E65044F50CF8485B0033B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138947   (661000) от 01.06.2017
-
-VA - 55 most slow Blues (Bonus) (2017) [MP3|320 Kbps] <Blues, Rock, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Cray -  A Whole Lotta Pride
-02. Blues Cousins -  All Your Love
-03. Robert Randolph -  Angels
-04. Louisiana Red -  Arlene Blues(   Читать дальше...   )Жанр: Blues, Rock, Blues RockПродолжительность: 04:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:660123D9F03BD5E7CA03D76B8EC8B1E8EF10F4A3
 ```
 
 

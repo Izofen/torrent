@@ -1,3 +1,30 @@
+###  Публикация: 972360   (979211) от 09.01.2016
+
+Jaffa - 2 albums (2000, 2011) [MP3|320 кб/с] <Electronic, Ambient, Jazz>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_979211.jpg" />
+</div>
+
+
+###  Подробнее
+
+За спиной Дэвида Кейкона, он же Jaffa, пятнадцать лет школы классической игры на фортепиано. Большой поклонник органа и коллекционер старинных синтезаторов, в своей музыке он использует такие инструменты, как Fender Rhodes, Moog MultiMoog, Roland Alpha-Juno 2, Waldorf Pulse, Hammond B3, Hohner Clavinet и Wurlitzer EP.
+Дебютный альбом Jaffa не укладывается в рамки (   Читать дальше...   )Список альбомов:
+2000 - Elevator
+2011 - EchoesЖанр: Electronic, Ambient, JazzПродолжительность: 01:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD4C922288B69F51B5F26BFDE85A8FC9C079262
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973363   (980101) от 08.01.2016
 
 VA - Viper Presents: Drum & Bass Annual 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
@@ -681,33 +708,6 @@ VA - Soleados Chillout Beats (2015) [MP3|320 кб/с] <Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBB13E6149E524A5E4F45FFE4D18C58AA1EDDFF5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355501   (983519) от 26.01.2020
-
-Jeff & Jane Hudson - Flesh (1983) Reissue CD, 2000, Daft Records [MP3|320 Kbps] <Electronic, Industrial, Electro, Synth-pop>
-
->>Electronic
->>Industrial, EBM, Dark Electro
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_983519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special World (4:41)
-02. 3 x 3 (4:38)
-03. Fat Of The Land (3:36)
-04. Mystery Chant (4:03)(   Читать дальше...   )Жанр: Electronic, Industrial, Electro, Synth-popПродолжительность: 01:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E15D6110ADC7C569E7E2EF86A45602C4F08BCF3B
 ```
 
 

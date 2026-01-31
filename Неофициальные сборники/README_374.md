@@ -1,3 +1,30 @@
+###  Публикация: 1037065   (615276) от 23.07.2016
+
+VA - Лучшие хитовые треки 2016 - Drum And Bass №1 (2016) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_615276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above Beyond ft. Richard Bedford - Sun Moon (Zardonic Remix)
+02. Agressor Bunx - Battlespace
+03. Andy Pain & Z - Connection - Asteroid Belt
+04. Anile ft. Blu Mar Ten - Lyssakses(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18D00F04D8A771654CEEAA7D8EA987C5F241DC8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230343   (615392) от 12.06.2018
 
 VA - Instrumental Smooth Jazz (2018) [MP3|320 Kbps] <Instrumental, Smooth Jazz, Easy Listening>
@@ -713,39 +740,6 @@ VA - Popular Superstar (2018) [MP3|320 Kbps] <Pop, Dance, RnB, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D63F3969F97F1827D158112B7DB6A0ED939A34A5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523338   (617208) от 16.07.2012
-
-VA - Знойный летний хит (2012) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_617208.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pandora feat. Stacy - Why magistral (3:28)
-2. Вирус - За Тобой (3:11)
-3. Женя Вилль - Странная Любовь (4:06)
-4. Светлана Лобода - Облака (DJ Ozeroff & DJ Sky feat. Lebedev Radio Mix) (3:41)
-5. Alexey Romeo & Euegene Noiz Feat. Alateya - Лето (Bimbo Song) (3:27)
-6. Vilana - Море (3:34)
-7. Dj Cosmo - The Lovesong (3:07)
-8. НеАнгелы - Твоя (DJ Jedy Club Remix) (4:33)
-9. DJ Mikis feat. Нина Богданова - С Обратной Стороны Луны (Radio Edit) (3:11)
-10. Alexandra Stan - Lemonade (3:30)Жанр: PopПродолжительность: 06:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC64C79F849B0E749D82D48DFC1B2DFD5468C3D0
 ```
 
 

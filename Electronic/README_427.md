@@ -1,3 +1,30 @@
+###  Публикация: 1119672   (807597) от 28.03.2017
+
+VA - Dreams Builder 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magda Shortankard – Relaxing Night (00:05:20)
+ 02. Jago Alejandro Pascua – Epica (00:06:12)
+ 03. Maximo Gladius – Back In Lebanon (00:05:39)
+ 04. Mark Gaetani – I’m Sorry (00:04:58)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CBAEBBD36CB690DE22BCDE26C17A4DE0F22C25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119305   (807599) от 28.03.2017
 
 VA - Turn It Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
@@ -666,33 +693,6 @@ VA - House Ladies Vol 2 (2017) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:533C34318213A5E44FFC9C047999D99ACD287006
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198261   (809837) от 10.01.2018
-
-Atrium Carceri, Cities Last Broadcast, God Body Disconnect - Miles To Midnight (2018) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL] <Dark Ambient, Dark Jazz, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_809837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles To Midnight (05:56)
- 02. A Thousand Empty Rooms (06:20)
- 03. Scene Of The Crime (05:04)
- 04. Floor 6, Please (03:00)(   Читать дальше...   )Жанр: Dark Ambient, Dark Jazz, AmbientПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B10D8214441406B8FBA2F6DF9C34FF0AD1CE5A3
 ```
 
 

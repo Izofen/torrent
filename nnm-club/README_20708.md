@@ -1,676 +1,680 @@
-###  Публикация: 1505939   (801728) от 29.10.2021
+###  Публикация: 1507161   (798748) от 03.11.2021
 
-Журнал | Делаем сами №15 (2021) [PDF]
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 20 (2021) [AAC|~290 Kbps] <Downtempo, Lounge, Jazz>
 
->>Журналы
->>Домоводство (журналы)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801728.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоФормат: PDF
+01. Sarah Menescal - Stand by Me (3:06)
+02. Nova Bossa Ltd., Lizette - 99 Red Balloons (3:27)
+03. Amazonics, Michelle Simonal - Cry for Help (2:56)
+04. Scubba, Lila Liu - Lost in Love (2:35)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:21:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCA7EBF32AFA61669EB803EE11519E59F7ADD6A8
+magnet:?xt=urn:btih:D4EACBF9D8B8DD5554E8C2155E0E6640EFFB22ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506085   (801729) от 29.10.2021
+###  Публикация: 1507205   (798749) от 03.11.2021
 
-Лев Кассиль | Линия связи (2021) [MP3, Артём Демченко]
+Howlin' Wolf - The London Howlin' Wolf Sessions (1989) [FLAC|Lossless|tracks + .cue]<Chicago Blues>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801729.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказ написан в начале войны и посвящен памяти сержанта Новикова, о подвиге которого говорилось в одном из фронтовых сообщений. Тогда же рассказ был передан по радио и напечатан в сборнике рассказов Льва Кассиля, изданном в 1942 году в библиотеке журнала «Огонек». Сборник так и назывался — «Линия связи».Жанр: Военная драмаПродолжительность: 00:12:11
+01. Rockin' Daddy
+02. I Ain't Superstitious
+03. Sittin' On Top Of The World
+04. Worried About My Baby(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:40:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10520E31B36A03FE27AC6D8F3F2099B1E333DA60
+magnet:?xt=urn:btih:FC204EA3DF759918F4D5917357E637C32BE0C6CB
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505889   (801730) от 29.10.2021
+###  Публикация: 1507158   (798750) от 03.11.2021
 
-Engelbert Humperdinck - In Time (1972) [MP3|320 Kbps] <Pop, Folk, World, & Country>
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 19 (2021) [AAC|~298 Kbps] <Downtempo, Lounge, Jazz>
 
->>Pop
->>Зарубежная поп-музыка
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801730.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Baby I'm A Want You
-A2 Day After Day
-A3 Too Beautiful To Last
-A4 (They Long To Be) Close To You(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 00:35:44
+01. Sarah Menescal - Like a Prayer (3:38)
+02. The Cooltrane Quartet, Eve St. Jones - Never Gonna Give You Up (3:08)
+03. Nenei - Dangerous Woman (3:41)
+04. Amazonics - Duel (3:13)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:38:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1FE48C1E7B273AF1354E940F292FEFF72D471CE
+magnet:?xt=urn:btih:89717FDAF35E1132C5F3D0575D2F3D65D468CBA3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506133   (801731) от 29.10.2021
+###  Публикация: 1507061   (798751) от 03.11.2021
 
-Edguy - Mandrake (2001) [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears of a Mandrake 7:12
-02. Golden Dawn 6:07
-03. Jerusalem 5:27
-04. All the Clowns 4:48(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:09:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6AA2559C960461ABC56644124181276E01AAA6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505913   (801732) от 29.10.2021
-
-Exposure Software Eye Candy 7 v7.2.3.176 [En]
+Justus - Live From a Former Submarine Wharf in The Port of Rotterdam (2021-11-01) [MP3|~245 Kbps (V0)] <Big Room, Future House>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801732.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Alien Skin Eye Candy 7 — новая версия набора из 30 фильтров и более 1500 пресетов со множеством настроек для Adobe Photoshop, которые позволят выполнить с легкостью множество дизайнерских задач, начиная от веб-интерфейсов и заканчивая впечатляющими логотипами. Плагин создает реалистичные эффекты природных явлений, предоставляя красивый детальный результат. Простой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.06.2021Разработчик: ALIEN SKIN SOFTWARE, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+01. Justus (NL) vs. Tiësto - ID vs. Red Lights
+02. Justus - Satisfaction 2021Жанр: Big Room, Future HouseПродолжительность: 00:32:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F8EC2DC6437FFFAF3FC3018E02E17C5F95042607
+magnet:?xt=urn:btih:E455639921065EEBECC9E3F81967DB989CAE5E7C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506080   (801733) от 29.10.2021
+###  Публикация: 1507151   (798752) от 03.11.2021
 
-David Reece - Blacklist Utopia (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+Футбол. Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801733.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Utopia
-02. Red Blooded Hell Raiser
-03. Down To The Core
-04. Civil War(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:55:01
+Футбол.Лига Чемпионов Online 2021/2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021)Телекомпания: Матч ТВ ПремьерЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:12:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B676F6C09BAF62D86282AF8E506D4AD9B9510CBC
+magnet:?xt=urn:btih:ADFBA52DC367038FBB8F9FAC1A39570981EC8F7B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505946   (801734) от 29.10.2021
+###  Публикация: 1507146   (798753) от 03.11.2021
 
-The Motors - 3 Albums (1977 - 1980) [MP3|320 Kbps] <Pub Rock, Power Pop, New Wave>
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''H'. Тур 4. Ювентус (Италия) - Зенит (Россия) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801734.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Motors - британская группа новой волны, образованная в 1977 году в Лондоне, Англия, бывшими участниками Ducks Deluxe Ником Гарвеем и Энди Макмастером (с гитаристом Брэмом Чайковски и ударником Рики Слотером). The Motors, исполнявшие отмеченный технически точными, размашистыми аранжировками поп-рок с элементами паб- и панк-рока, получили известность благодаря (   Читать дальше...   )Список альбомов:
-1977 - 1
-1978 - Approved By The Motors
-1980 - Tenement Steps(   Читать дальше...   )Жанр: Pub Rock, Power Pop, New WaveПродолжительность: 02:25:29
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''H''. Тур 4. Ювентус (Италия) - Зенит (Россия) (03.11.2021)
+СУДЬЯ Эрнандес Эрнандес Алехандро Хосе (Санта-Крус-де-Тенерифе, Испания)
+Судья на линии 1: Наранхо Хосе (Испания)
+Судья на линии 2: Собрино Теодоро (Испания)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:51:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4B4AB89F2C58FA566B0DB008A7BE4B4E014226A
+magnet:?xt=urn:btih:FFCB4E3C29A113D8750733B584EFC65824FC26CF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505979   (801735) от 29.10.2021
+###  Публикация: 1507148   (798754) от 03.11.2021
 
-This Winter Machine - Kites (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Le Jour D'avant (00:01:40)
-02 - The Storm (Part I) (00:05:37)
-03 - The Storm (Part II) (00:04:36)
-04 - Limited (00:02:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BE9AA2CD10333D704E5BC5118D67A20A7DF802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505950   (801736) от 29.10.2021
-
-King Company - Trapped (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801736.jpg" />
-</div>
-
-
-###  Подробнее
-
-Финский Hard Rock коллектив King Company был основан в 2014 году барабанщиком Миркой «Лека» Рантаненом (Raskasta joulua , Warmen , ex- Thunderstone , ex- Kotipelto и др.).
-Первый альбом "One for the Road" был записан в 2016 году, с певцом Паси Рантанен. Но в дальнейшем у него случилась проблема с голосом и второй альбом "Queen of Hearts" 2018 (   Читать дальше...   )01. I Will Be Here
-02. Trapped In Heart
-03. Stephanie
-04. Dangerous Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4B272FB7FB0EE24BEF854B284F206F67252796
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505740   (801737) от 29.10.2021
-
-NDKH - If Heaven Is A Lie (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  - Trauma , [02:22]
-02.  - Behelit (feat. FRCTRD) , [04:50]
-03.  - Adonis (feat. Child Of Waste) , [04:30]
-04.  - El Dj0ntos , [05:47](   Читать дальше...   )Жанр: Progressive-Metalcore, DeathcoreПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E64568C85960B622527996D73DD452B346B0C1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505787   (801738) от 29.10.2021
-
-Короли Кухни - VII (2018) [MP3|320 Kbps] <Rock>
+Магнитная Аномалия feat. Я Vegan - Я больше не ем животных (2021) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801738.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[3:26] 01. Поэт и стриптизерша
-[2:30] 02. Big Love
-[3:02] 03. Мой мужчина
-[2:52] 04. Чёрно-белое фото(   Читать дальше...   )Жанр: RockПродолжительность: 02:07:34
+1. Я больше не ем животных
+2. Сила
+3. Нормально
+4. Еее(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC5A9D05AA0DC21EACB4B2A6B30829E06E012413
+magnet:?xt=urn:btih:D54B31704863DF01B9237B7D14B136A92F43E91F
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506115   (801739) от 29.10.2021
+###  Публикация: 1507157   (798755) от 03.11.2021
 
-Downcast 2.11.1 [En]
+iNet Network Scanner 2.8.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798755.jpg" />
+</div>
+
+
+###  Подробнее
+
+iNet предоставляет Вам информацию о сети к которой подключен ваш Mac. Удобный дизайн позволяет даже неопытным пользователям получить полную информацию о вашей локальной сети.
+iNet показывает устройства, подключенные к вашей локальной сети, компьютер или маршрутизатор, а также их имя, IP и поставщика. iNet обнаруживает и различает Windows и Macintosh. Для большинства (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.08.2021Разработчик: BananaGlueПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Испанский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B69B07EE63CED1C381DB36B322C4B162389729
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507149   (798756) от 03.11.2021
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798756.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Тур 4. Обзор матчей (03.11.2021)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:352638E8763ADC1016480E2663F5DA573FC7DF07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507155   (798757) от 03.11.2021
+
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 18 (2020) [AAC|~304 Kbps] <Downtempo, Lounge, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ituana - Tape Loop (3:11)
+02. Sarah Menescal - Company (3:00)
+03. Anakelly, STEREO DUB, Nova Bossa Ltd. - Last Friday Night (T.G.I.F.) (3:30)
+04. 48th St. Collective, Michelle Simonal - Over My Shoulder (3:41)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F855A47EDABF297972EA177FFBE34D6F71B642A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507308   (798758) от 03.11.2021
+
+Vitamin-R 4.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798758.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vitamin-R — продвинутый таймер для техники Pomodoro. Каждый из нас постоянно сталкивается с ситуацией, когда необходимо сфокусироваться на выполнении задачи, но желанное состояние потока так и не приходит. Или, когда начав работать над очень важным для вас проектом, вдруг, через некоторое время, вы обнаруживаете себя на странице Facebook или бесцельно блуждающим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Rights ReservedПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF198764762DD58424CD432798C8CB73B6DE4026
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507162   (798759) от 03.11.2021
+
+Sketch 79 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801739.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downcast - популярное приложение подкаста iOS теперь доступно для OS X. Загрузка, проигрывание и синхронизация. Ваши любимые подкасты с интуитивным интерфейсом, созданным исключительно для подкастов.
-Downcast – программа для загрузки и прослушивания подкастов без необходимости использовать iTunes. Поиск, подписка и скачивание видео и аудио подкастов любого размера, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2021Разработчик: Enterprises LLCПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
+Сделайте набросок графического дизайна для цифрового мира. Мощные инструменты и элегантный интерфейс в одном отмеченном наградами пакете. Потому что создание красивых вещей должно быть радостью, а не обузой.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © Bohemian CodingПоддерживаемая ОС: 10.15 or laterЯзык интерфейса: Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D61D360A359E0619BB7D5EE82D64DC6BBEF7A408
+magnet:?xt=urn:btih:9D714CE3A61326213F474029564177D28442D77D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506035   (801740) от 29.10.2021
+###  Публикация: 1507144   (798760) от 03.11.2021
 
-John E Vistic - Under The Volcano (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Динамо (Киев, Украина) - Барселона (Испания) (03.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801740.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Sublime Architecture of Death (00:04:26)
-02 - The King of Rock N Roll (00:03:34)
-03 - Psycho Death Kult (00:03:33)
-04 - It's Nature (00:03:53)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:49:37
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 4. Динамо (Киев, Украина) - Барселона (Испания) (03.11.2021)
+СУДЬЯ Хацеган Овидиу (Арад, Румыния)
+Судья на линии 1: Григориу Мирча Михаил (Румыния)
+Судья на линии 2: Георге Себастьян (Румыния)(   Читать дальше...   )Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:529E1C55BF0FC85D0E9F9B06CB2E2B1C7C9BE1F4
+magnet:?xt=urn:btih:D254ED52BEB82FB3BD3DF781F0925E187A2A80CF
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506002   (801741) от 29.10.2021
+###  Публикация: 1507145   (798761) от 03.11.2021
 
-Hardline - Heart, Mind And Soul (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 16 (2020) [AAC|~290 Kbps] <Downtempo, Lounge, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzystics, Apollinare Rossi - Riders on the Storm (3:46)
+02. Jamie Lancaster - Take It Easy (3:16)
+03. Michelle Simonal - Reminiscing (3:18)
+04. STEREO DUB, Karen Souza - Back Down South (Bossa Nova Mix) (2:45)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16D564D94605003C13BDCED245BBB01A7B1CF0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507245   (798762) от 03.11.2021
+
+Downie 4 v4.3.8 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 03.11.2021Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C68054819C2B4DCEC41987B131ADAFCDFA1C3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507154   (798763) от 03.11.2021
+
+VA - Vintage Café: Lounge and Jazz Blends (Special Selection), Vol. 17 (2020) [AAC|~306 Kbps] <Downtempo, Lounge, Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Menescal - I Fall Apart (3:39)
+02. Beluga's Trio, Shelly Sony - Love You Inside Out (3:43)
+03. Groove Da Praia, Ituana - Talking in Your Sleep (Bossa Nova Mix) (3:48)
+04. Urban Love, Luca Giacco - Suedehead (2:59)(   Читать дальше...   )Жанр: Downtempo, Lounge, JazzПродолжительность: 01:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:100DC99B2B83C84CC1D936BCAC3E3454AFB88341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507153   (798764) от 03.11.2021
+
+Display Maestro 5 v5.0.3 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Display Maestro - простая утилита, которая дает вам полный контроль над подключенным дисплеем, позволяя вам изменять не только разрешение экрана, но и глубину цвета, что невозможно сделать стандартными средствами Mac OS X (такая возможность была удалена еще в Mac OS X 10.5 Leopard).
+Примечание: После окончания работы с утилитой, все настройки возвращаются в первоначальное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D7FA6A6BBACC759EE2E67F3ECDE63A1CCF61DEF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274005   (798765) от 04.01.2019
+
+Зимовье зверей - Новейшая хронология (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Константин Арбенин заново собрал «Зимовье Зверей». Группа возвращается к студийной и концертной деятельности в обновлённом составе.
+Главная интрига проекта: в качестве его аранжировщика и саундпродюсера выступает Вадим Курылёв, музыкант-мультиинструменталист, хорошо известный слушателям по работе в группе «ДДТ», ансамблю «Дубы-колдуны», «ЭлектропартиZанам» и сольному (   Читать дальше...   )01. Новейшая хронология
+02. Дети-блюз
+03. Из лета в осень переезд
+04. Интро-стих 1(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F2B6BF71383482B7B8A5EB1D619B22C9B30B66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273843   (798766) от 04.01.2019
+
+Colorado - California Dreaming (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. California Dreaming (7:07)
+02. Bus Stop (5:11)
+03. Should I (4:15)
+04. Colorado Stones (5:40)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CC0C30741FF9EEC3D40E93FA56C3D2001265055
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273785   (798767) от 04.01.2019
+
+Boston ‎– Walk On (1994) [FLAC|Lossless|image + .cue] <Hard Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801741.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fuel To The Fire
-02. Surrender
-03. If I Could I Would
-04. Like That(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:27
+01. I Need Your Love (5:33)
+02. Surrender To Me (5:33)
+03. Livin' For You (4:57)
+Walk On Medley:(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 00:44:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B99C45CE956F6E7556FFDDFA7605E90ECC07F39
+magnet:?xt=urn:btih:79A7B11CEEE2555BE6A75954039CCD3B70505986
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506069   (801742) от 29.10.2021
+###  Публикация: 1273833   (798768) от 04.01.2019
 
-Алена Бондарович | Всё, что нужно знать малышу. Учимся считать (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всё, что нужно знать малышу - это серия развивающих книг для занятий с детьми дошкольного возраста. Красочные иллюстрации и множество занимательных заданий в лёгкой игровой форме помогут превратить процесс обучения вашего малыша в любимое занятие.
-Эта увлекательная книга познакомит вашего ребёнка с цифрами и числами, научит считать и даже решать задачки.Жанр: Обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F0A96287B029DFBF4C6FA69D9E90FF0AB8436CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505937   (801743) от 29.10.2021
-
-Whitechapel - Kin (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801743.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I Will Find You
-2. Lost Boy
-3. A Bloodsoaked Symphony
-4. Anticure(   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72B1287C80D26C939D5918F801648C290E62D70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506099   (801744) от 29.10.2021
-
-PhotosRevive 2.0.0 [Multi]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801744.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: © NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54C4EE85CF3F9911CDCB3ADF219F40E6A87D6D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505912   (801745) от 29.10.2021
-
-Exposure Software Snap Art 4 v4.1.3.384 [En]
+Berlin Blondes - The Complete Recordings (1980-1981) Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Synthpop,New Wave>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801745.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Snap Art 4 - этот плагин предназначен для превращения фотографий в картины и рисунки, нарисованные от руки различными стилями. Содержит большую библиотеку предварительных заготовок, которые дают возможность одним щелчком мыши создавать картины, написанные или нарисованные маслом, углем, акварелью, цветными карандашами, ручкой и чернилами, пастельными мелками, а также (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Exposure Software, LLC.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+01.	Framework
+02.	Astro
+03.	Science
+04.	Romance(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:15:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:879051FF275E8D5D800B04AF7361A4FF93B26313
+magnet:?xt=urn:btih:43F001235C255C719EE87F8C0CC0ED080D193EE7
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506029   (801746) от 29.10.2021
+###  Публикация: 1273794   (798769) от 04.01.2019
 
-Dymond Bright - Rebirth Of Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Lizard - Half-Live (2018) [FLAC|Lossless|tracks + .cue] <Prog Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801746.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Rebirth Of Light (00:05:25)
-02 - Walk In Pride (00:03:30)
-03 - Voices From The Past (00:04:44)
-04 - Save The World Today (00:04:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:01:38
+01. Half-Live I (19:49)
+02. Half-Live II (24:03)Жанр: Prog RockПродолжительность: 00:43:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5474A2DFB8B269E88AA83BA9FB537B4065A18FB7
+magnet:?xt=urn:btih:321FEA39A00BEA155013DC14E70163EA88FEFB74
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506126   (801747) от 29.10.2021
+###  Публикация: 1273840   (798770) от 04.01.2019
 
-Edguy - Lavatory Love Machine (2004) EP [FLAC|Lossless|image + .cue] <Power Metal>
+Azrael - Moonchild (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801747.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lavatory Love Machine 04:24
-02. Lavatory Love Machine (Acoustic Version) 04:36
-03. I'll Cry For You (Europe cover) 03:45
-04. Reach Out 04:04(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:20:48
+1. Birth Of The Universe (Instrumental) [01:40]
+2. Moonchild [04:50]
+3. Surveillance Society [04:39]
+4. Fly Till The End Of Time [04:48](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:56:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01F4DEE721B426AED1010167B0E4DDC7C2E42C66
+magnet:?xt=urn:btih:D1E41790FFB9BBEDABBB290F4B3556B6E8FD6FE8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384579   (801749) от 21.05.2020
+###  Публикация: 1273837   (798771) от 04.01.2019
 
-Yppah - Sunset in the Deep End (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Breaks, Experimental, Dream Pop>
+Saba - Care For Me (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Busy / Sirens (feat. theMIND) (5:29)
+02. Broken Girls (4:37)
+03. Life (3:48)
+04. Calligraphy (3:04)(   Читать дальше...   )Производство: Saba Pivot LLC - 843357130095Жанр: Hip-Hop, Jazz HopПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA250E295F4DC3D1742FDFBBB1D62B6E44AF53BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273856   (798772) от 04.01.2019
+
+Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] <Glitch, Ambient, Minimal, Acoustic>
 
 >>Electronic
 >>Ambient, Experimental, Modern Classical (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801749.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dreams Like You (feat. Shaunna Heckman) (5:44)
-02. Light Cycle (4:30)
-03. Pieces (5:21)
-04. Shadows Climb The Wall (5:23)(   Читать дальше...   )Производство: Future Archive Recordings - 3663729104908Жанр: Ambient, Breaks, Experimental, Psychedelic, Shoegaze, Dream PopПродолжительность: 00:51:50
+01. Corkscrew (09:43)
+ 02. Girl With The Silver Eyes (09:40)
+ 03. Remedios The Beauty (15:37)
+ 04. Stars Aligned, Webs Spun (20:41)Жанр: Glitch, Ambient, Minimal, AcousticПродолжительность: 00:55:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7A643539466C8E532B527156F3F1069589CC918
+magnet:?xt=urn:btih:E53F14BC86A1B4A71DD6B9486BC2096B36833686
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384705   (801750) от 21.05.2020
+###  Публикация: 1273919   (798773) от 04.01.2019
 
-Гарриет Уайтхорн | Секрет говорящего какаду (2020) [EPUB]
+Kryder - Kryteria Radio 167 (Best Of 2018) 2019-01-02 [MP3|192 Kbps] <House, Tech House, Tribal House>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801750.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Совсем недавно Вайолет вернулась из удивительнейшего путешествия в её жизни. Она побывала в Индии! Там девочка познакомилась с махараджей, очень старым и очень богатым индийским князем, и его любимым говорящим какаду. Но как же удивилась Вайолет, когда обнаружила на пороге своего дома в Лондоне слугу махараджи. Он попросил её приютить какаду, потому что ценную птицу (   Читать дальше...   )Жанр: Детективы, Приключения для детейПеревод: Константин МольковФормат: EPUB
+01. FISHER - Losing It (Dave Winnel For The Win Remix)
+02. Safri Duo - Played A Live (The Bongo Song) (Massivedrum 2K18 Remix)
+03. Agent Greg & Dim Chord - RYDM
+04. Sunnery James & Ryan Marciano x Nicola Fasano & Adam Clay - Born Again (Babylonia) (Festival Mix)(   Читать дальше...   )Жанр: House, Tech House, Tribal HouseПродолжительность: 01:37:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7FBDCFA8B81F8EA69238CF927FC89D9C8E0A24AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384724   (801751) от 21.05.2020
-
-Заира Дреева | Несси. Тайна черной пирамиды (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несси – это вовсе не чудовище из озера Лох-Несс, а милая и в меру любопытная девочка. Ее семья на время переезжает жить к дядюшке в старинный замок, но в нем Несси чувствует себя не принцессой, а настоящим исследователем и охотником за тайнами. Случайно приложив найденный загадочный золотой амулет к еще более загадочному узору, Несси попадает в волшебную страну, (   Читать дальше...   )Жанр: Фэнтези, Приключения для детейФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4FA893F722EC8EFC751F8574F60A78C4DEBD75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384577   (801752) от 21.05.2020
-
-Anubis - Different Stories (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Passing Bell (13:20)
-02. The Deepest Wound (04:29)
-03. Fool's Gold (06:34)
-04. Dead Trees (07:21)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:0948
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25384215D0D71F4F2C6A7E3CEA345F61DAB8A5CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384567   (801753) от 21.05.2020
-
-Tethra - Empire Of The Void (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Melodic Death Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmosgenesis (1:46)
-02. Cold blue Nebula (6:51)
-03. Gravity Pt I Ascension (5:53)
-04. Gravity Pt II Aeons Adrift (6:53)(   Читать дальше...   )Производство: Black Lion RecordsЖанр: Doom Metal, Funeral Doom, Melodic Death Metal, Gothic MetalПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92DA43B77B746D47251DC04247EED2C1522D5DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384802   (801754) от 21.05.2020
-
-Annie Barbazza - Vive (2020) [FLAC|Lossless|tracks + .cue] <Rock, Experimental, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ys (4:09)
-02. June (3:35)
-03. From Too Much Love of Living (2:38)
-04. Time (1:04)(   Читать дальше...   )Жанр: Rock, Experimental, Avantgarde, Post Rock, Prog RockПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDE67DC1ADBC88987844CF3AB5D9699EC7D357B
+magnet:?xt=urn:btih:D6C1CF086F91EF876445226F8EF1C8C4BA5E41BB
 ```
 
 

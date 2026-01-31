@@ -1,3 +1,30 @@
+###  Публикация: 1242431   (515137) от 22.08.2018
+
+VA - Ultimate Uplifting Trance Anthems (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_515137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enfortro - We Came To Conquer (Original Mix)
+02. Air Project & Arsen Gold - Quantum (Original Mix)
+03. Mariomos - Golden Age (Original Mix)
+04. Precious Affliction - Use The Force (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 04:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5EDC463C736EE620E889CF3E093B3BD453C21DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930559   (515258) от 23.08.2015
 
 SiJ - Way To Dream (2015) [FLAC|Lossless|WEB-DL]<Ambient, Modern Classical, New Age>
@@ -663,33 +690,6 @@ magnet:?xt=urn:btih:9EDF91AB9F1756FF4D803DAFB50CE7ACD21DD15D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:502CE89CCFAD75643293C533E355810A134C44E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241786   (518416) от 19.08.2018
-
-Trazer - Twilighting (2018) [MP3|320 Kbps] <Ambient, Chillout, Piano>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_518416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone 08:58
-02. Questions without Answers 08:04
-03. Short and Sweet 03:14
-04. Gentleness 04:06(   Читать дальше...   )Жанр: Ambient, Chillout, PianoПродолжительность: 01:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F210461188EF9343ED6D2624A6B9F383298DD42
 ```
 
 

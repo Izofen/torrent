@@ -1,3 +1,84 @@
+###  Публикация: 1839140   (1003327) от 27.11.2025
+
+VA - 80s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christopher Cross - Arthur's Theme (Best That You Can Do) (3:53)
+02. a-ha - Take On Me (3:48)
+03. The Beach Boys - Kokomo (3:36)
+04. Tina Turner - The Best (Edit) (4:10)(   Читать дальше...   )Жанр: PopПродолжительность: 05:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9049181F0DCA5BCA8FBE843C6DC91FBC8767DFEB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350230   (1003443) от 05.01.2020
+
+VA - The Best Of Hotsound Vol. 1 (1989) [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 –Proof Of Energy Energy Tonight 4:08
+02 –Attack Crazy For Your Love 3:36
+03 –Gotcha You're Wrong (12'' Version) 6:11
+04 –Beat Boys Space Dream 3:38(   Читать дальше...   )Жанр: Italo-Disco, Hi NRGПродолжительность: 01:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BC98BC3FAFCEBF4664E2A21F83CCDD47B0EC5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350145   (1003445) от 05.01.2020
+
+VA - 100 Greatest American Songs (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prince And The Revolution - Purple Rain
+02. Ben E King - Stand by Me (2012 Collection Remaster)
+03. The Notorious B.I.G. - Hypnotize (2007 Remaster)
+04. Tina Turner - The Best (Edit)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459F23A430CB2692DC9B9FF5EDC9F0D0F26F7B3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350264   (1003518) от 05.01.2020
 
 Lucio Dalla - Lucio Dalla 40th Legacy Edition (2019) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -613,87 +694,6 @@ VA - July 2021 Hits [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BCDE7B624CEE981ED50AF4E13E74202CD21D5D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484813   (1005803) от 22.07.2021
-
-VA - Cosmic Discotheque - 12 Junkshop Disco Funk Gems From The 70s (2021) Vol.4, LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fu King - Fu King (1975) (3:15)
-02. Kebekelektrik - War Dance (1978) (3:28)
-03. Epsilon - Wake Up (1976) (3:15)
-04. Kawasaki Band - Japan Disco (1978) (2:56)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D03A01991D03AD31843E6FEC7015A9550E9E76C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484862   (1005806) от 22.07.2021
-
-Олег Газманов - 7:0 в мою пользу (2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005806.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Отбой
-2. Скорая помощь
-3. Крылья
-4. В городе сонном (feat. Валерия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCB26124430490DAECEB0FF11D5D2609851E512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484777   (1005821) от 22.07.2021
-
-Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1005821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Break My Heart Myself (feat. Travis Barker)
-02. Sabotage
-03. Trust Fall
-04. Better Mistakes(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B70F5718B576FA6E73490D435C3181EBFA6BE5D
 ```
 
 

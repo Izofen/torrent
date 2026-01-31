@@ -1,3 +1,30 @@
+###  Публикация: 1297268   (603106) от 24.04.2019
+
+Paul Denton - Live @ Anomaly, Rong Afterparty, Tunnel Club Birmingham, United Kingdom (2019-04-06)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. John O'Callaghan & Deirdre McLaughlin vs. Karney - Stay Nothing (John O'Callaghan Noodle)
+03. Key4050 - The Truth
+04. Marco V - Godd(   Читать дальше...   )Жанр: TranceПродолжительность: 01:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68B7D9B7BD4F558E5F2E13B2A94CA06FAD036E16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297688   (603107) от 24.04.2019
 
 Akob - Gravitational Waves (2019) Circular Limited [FLAC|Lossless|WEB-DL|tracks] <Techno, Acid>
@@ -668,33 +695,6 @@ Claude Challe - Nirvana Lounge 02 (2002) 2CD Box [APE|Lossless|image + .cue] <Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4C004073DCFE92530D72A6E98A7B0685219C048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064897   (604259) от 25.04.2022
-
-VA - 2004' Ambient Album (2004) [APE|Lossless|image + .cue] <Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From This Moment/Persis - Brian Eno
-02. Midnight Sun - David Sylvian
-03. Promis - ORB
-04. Sixty Sixteen (For Karina) - Banco De Gaya(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5218E01B990C5DAE8135D29EBF21DDACFA422DCF
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1197670   (811774) от 09.01.2018
+
+VA - Drum & Bass Annual 2018 Sampler (Viper Presents) (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby - A Simple Love (BMotion Remix)
+ 02. Matrix & Futurebound - Human
+ 03. Brookes Brothers - Flashing Lights
+ 04. BMotion - Love Blind(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 04:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812294F1B09623723670DF424090A7BC8154AEA4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197318   (811777) от 09.01.2018
 
 VA - High Class Tech House Music Nonstop (2018) [MP3|320 Kbps] <Minimal, Tech House>
@@ -667,33 +694,6 @@ VA - Cafe Berlin Vol.1 (Electronic Backround Lounge Music For The Relaxed Moment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7040462156F293206B07F3E77A1ACE2DB0232889
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197636   (813925) от 08.01.2018
-
-VA - Illuminations II (2018) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Experimental, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Martin – Fallen Ground (01:43)
-02. Bruno Sanfilippo – Muse (04:47)
-03. Loscil – Azimuth (03:40)
-04. Jacaszek – Qualia (04:04)(   Читать дальше...   )Жанр: Ambient, Modern Classical, Experimental, DroneПродолжительность: 02:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3426574383BC9F1AC28E64F3D14FA93CB5874C3
 ```
 
 

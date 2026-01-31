@@ -1,3 +1,30 @@
+###  Публикация: 1044534   (562612) от 21.08.2016
+
+VA - Russian Mega Boom (2016) [MP3|256 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lx24 - Недоступная
+02. Ваня Чебанов - Все Хорошо
+03. Evgen Dia - Меланхолия
+04. группа МОЖЕТ - Золушка(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90797F91B0A3F4FE8EF5786B7B5B06718B191138
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044805   (562614) от 21.08.2016
 
 VA - World Amount Club House (2016) [MP3|320 Kbps] <House, Electro House, Future House, Progressive, Club, Dance>
@@ -692,33 +719,6 @@ VA - Minimal Lighters (2016) [MP3|320 Kbps] <House, Tech House, Deep House, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FE0CABD273765A5902641541174AC7986AEE9BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304383   (563850) от 26.05.2019
-
-VA - Guitar Track - Instrumental Collection by Pop-Music Vol.1 (2018) [MP3|320 Kbps] <Metal, Hard-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.nobody.one - Razoresolve (04:53)
-02.Head & Head - Pepper and Sol (05:04)
-03.Кирилл Коняев - Spectrum (05:06)
-04.Inceptum - Prologue (03:23)(   Читать дальше...   )Жанр: Metal, Hard-RockПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A13A0506328264B0CEBBC63DAD905B107A5ED7
 ```
 
 

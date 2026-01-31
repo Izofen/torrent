@@ -1,3 +1,30 @@
+###  Публикация: 992932   (897289) от 04.03.2016
+
+Scooter - The Ultimate Aural Orgasm (2007) [FLAC|Lossless|tracks + .cue] <Trance, Hard House, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horny In Jericho (2:45)
+02. Behind The Cow (3:34)
+03. Does The Fish Have Chips? (3:26)
+04. The United Vibe (3:48)(   Читать дальше...   )Жанр: Trance, Hard House, HouseПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F85620D152EB37C72E49F9E259BCDC726FD842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993074   (897631) от 04.03.2016
 
 Joey Fehrenbach - Mellowdrama (2006) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo>
@@ -665,33 +692,6 @@ VA - Relaxation Lounge: Chillout Your Mind (2017) [MP3|320 Kbps] <Downtempo, Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59F547259336174720F8D93B2A19FB86CF246F04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100688   (899895) от 04.02.2017
-
-VA - This Is My Church, Vol. 1 (The Chill Out Edition) (2017) [MP3|320 Kbps] <Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakfast Trim - Dubai Sun (7th Star mix) (03:20)
-02. Tony Smoke - Old & Dirty (Milf Jazzy mix) (05:15)
-03. Backroom Barn - Black Horse (original mix) (03:05)
-04. Mikis Theodorakis & Francesco Diaz - Farewell (original mix) (04:37)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B429A60F4375FF865B95C98299C5021F1C3D5F
 ```
 
 

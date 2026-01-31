@@ -295,6 +295,102 @@ magnet:?xt=urn:btih:7EB80D4422725EC3E678142ADAE6FF523D9BD598
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 555291   (431513) от 03.10.2012
+
+Van Morrison - Born To Sing: No Plan B (2012) [FLAC|Lossless]<Jazz, Blues, Pop, Rock, R&B>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open the Door (To Your Heart) [05:21]
+02. Goin' Down to Monte Carlo [08:12]
+03. Born to Sing [04:39]
+04. End of the Rainbow [04:36]
+05. Close Enough for Jazz [03:46]
+06. Mystic of the East [04:56]
+07. Retreat and View [06:51]
+08. If in Money We Trust [08:02]
+09. Pagan Heart [07:52]
+10. Educating Archie [05:44]Жанр: Jazz, Blues, Pop, RockПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553324   (431579) от 03.10.2012
+
+Karrin Allyson - 9 альбомов (1995-2008) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Felicidade (Happiness) [05:15]
+02. Correnteza [02:28]
+03. So Tinha De Ser Com Voce [03:45]
+04. Medo De Amar (Surrender The Soul) [03:43]
+05. O Morro Nao Tem Vez (Favela) [06:20]
+06. Estrada Branca (This Happy Madness) [04:49]
+07. Outono (Stay) [05:02]
+08. Double Rainbow [05:33]
+09. Imagina [02:55]
+10. Desafinado (Slightly Out Of Tune) [05:13](   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553033   (431587) от 03.10.2012
+
+Jaco Pastorius - Smoke On The Water, Live In Rome, 1986 (2007) [WavPack|Lossless]<Jazz-Rock, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bluma/Smoke on the Water  (5:39)
+02. The Medley Purple Haze/The Third Stone from the Sun/Teen Town (17:36)
+03. Star Spangled Banner  (5:01)
+04. Reza (5:36)
+05. Honestly (6:28)
+06. Invitation (7:43)
+07. Broadway Blues (12:31)Жанр: Jazz-Rock, FusionПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323729   (431693) от 06.09.2019
 
 Bill Evans - 3 Essential Albums (1959 - 1963) 3CD, Universal, 2017 [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop, Piano Jazz>
@@ -317,6 +413,38 @@ CD1 - Portrait In Jazz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:581E25A9591259AE5F0AB67F1AEBF2738AC4B782
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553743   (431709) от 03.10.2012
+
+Dave Douglas Quintet - Be Still (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431709.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Be Still My Soul (05:01)
+2. High On A Mountain (02:37)
+3. God Be With You (05:00)
+4. Barbara Allen (04:22)
+5. This Is My Father's World (03:43)
+6. Going Somewhere With You (05:23)
+7. Middle March (05:46)
+8. Living Streams (05:02)
+9. Whither Must I Wander? (05:59)Жанр: JazzПродолжительность: 00:42:56
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -371,6 +499,38 @@ Al Jarreau - Tomorrow Today (1999) Verve Music [FLAC|Lossless|image + .cue] <Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20F93D42E305B72DE32E3BE2D33D307ACCF5F03C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553684   (431795) от 03.10.2012
+
+VA - Explorations Into Dancefloor Jazz Vol. 1-3 (1994-95) [FLAC|Lossless]<Acid Jazz, Jazzdance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431795.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Count Basic - Strange Life With Dub (Kruder & Dorfmeister Remix)
+2. Hookian Minds - Freshmess (Red Snapper Mix)
+3. Soul Bossa Trio - Sally
+4. Rollercone - Rester Eveillé
+5. Angel - Step Into The Light
+6. Tosca - Chocolate Elvis
+7. Negrocan - Aquela Esquina (Snowboy Remix)
+8. A.P.E. - Fallen
+9. Silent Majority - Still Water (Horny Mix)Жанр: Acid Jazz, JazzdanceПродолжительность: 02:10:40
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -511,6 +671,35 @@ magnet:?xt=urn:btih:050915AF48F65A48F479C9F88E9005D3D540D217
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553497   (431869) от 03.10.2012
+
+Jaco Pastorius, Kenwood Dennard, Hiram Bullock - PDB (1989) Live / DIW Records / [APE|Lossless]<Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_431869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invitation (Kaper/Webster) (9:43)
+02. Three Views Of A Secret (Pastorius) (7:37)
+03. Son Of Creeper (Bullock) (6:01)
+04. Ode To Billy Joe (Gentry) (3:37)
+05. Continuum (Pastorius) (4:36)
+06. Dolphin Dance (Hancock) (10:21)Жанр: Jazz-RockПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945683   (431908) от 11.10.2015
 
 Oliver Lake Quintet - Dedicated to Dolphy (1996) [FLAC|tracks+.cue]<Contemporary Jazz>
@@ -533,168 +722,6 @@ Oliver Lake Quintet - Dedicated to Dolphy (1996) [FLAC|tracks+.cue]<Contemporary
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1887DABEDA4A98383B3BCAD9AE14875AB69AFC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945685   (431909) от 11.10.2015
-
-Oliver Lake Steel Quartet - Dat Love (2003) [FLAC|image+.cue]<Post-Bop, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stolen Moments
-02. Double Space
-03. Venus
-04. Dat Love(   Читать дальше...   )Жанр: Post-Bop, Free JazzПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246A1B1814A9D2A9ACEB7C1422C2E2DB17F76B1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410887   (431926) от 23.09.2020
-
-Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monk's Shop (Remastered 2017) (03:52)
-02. 'Round Midnight (Remastered 2015) (04:53
-03. One for My Baby (And One More for the Road) (Remastered) (07:41)
-04. Falling in Love With Love (Remastered 2017) (06:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F58B2EC8C3E359C46719DAA476E748D9CD19E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410842   (431931) от 23.09.2020
-
-Louis Armstrong - Highlights from His Decca Years (1924 - 1958) 1994, 2CD, GRP [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431931.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Wild Man Blues [3:06]
-02. Weary Blues [2:48]
-03. Georgia Bo Bo [3:06](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F558B3DE88F10B62FEF638571DE2C38D06A8480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410841   (431933) от 23.09.2020
-
-Nat King Cole - Spotlight on Nat King Cole (1944 - 1960) 1995, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Funny that Way [3:04]
-02. Sunday, Monday or Always [2:21]
-03. Crazy She Calls Me [2:36]
-04. Spring Is Here [2:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6744B37D9FCED6664CA5340861D7E044D19EE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410875   (431979) от 23.09.2020
-
-New York Jazz Quartet - Blues For Sarka (1978) 1998, Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Blues [15:29]
-02. Rodney Round Robin [5:45]
-03. I'll Tell You Tonite [7:15]
-04. Blues For Sarka [7:11](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC2F96B1AA6C6B606A47FFDA1496E8B5EFF1BD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410835   (431982) от 23.09.2020
-
-Slide Hampton - Drum Suite (1962) 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fump [5:21]
-02. Lover [5:10]
-03. Like Someone in Love [8:27]
-04. Gallery Groove [4:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DB3AE148C39FCBF3C4C8AF0020B7A6E46F4BEC
 ```
 
 

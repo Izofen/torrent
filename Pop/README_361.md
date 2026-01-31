@@ -1,3 +1,84 @@
+###  Публикация: 1615866   (1037219) от 27.02.2023
+
+VA - Romantic Collection '2000 Vol. 8 (2000) [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Williams - Love Story
+02. Patricia Kaas - Mon Mec A Moi
+03. Terence Trent D'Arby - Sign Your Name
+04. Sam Brown - Stop(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB19A4BEF0C68A1D9587D19A3BC41616263A4351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442026   (1037242) от 23.01.2021
+
+Henk van Daam - Millionen Kusse (2014) [FLAC|Lossless|image + .cue] <Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037242.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wann
+2. Millionen Küsse
+3. Ich steh dir zur Seite
+4. Wann bist du bei mir(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E6817D8C673AC1D6C381368E07750AA51BF33F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615898   (1037277) от 27.02.2023
+
+Disco Made In Israel - Disco Made In Israel (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1037277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Side 1 (Medley) (14:50):
+-Bashana Haba'a
+-Baruch's Boots
+-Ma'yim Ledavid Ha'melech(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404B17C1D06A7B37BA864220A05498C49CF2ABD0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441752   (1037465) от 22.01.2021
 
 Inner Life - I'm Caught Up (In A One Night Love Affair) (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -611,87 +692,6 @@ VA - Pop Acoustic 00's (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E1C822DD78AF65B8B65CD9D91599139B486F814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614342   (1038831) от 21.02.2023
-
-VA - Trending Top Hits Now! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1038831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lil Uzi Vert - Just Wanna Rock (2:03)
-02. Lizzo - Special (feat. SZA) (2:54)
-03. Ed Sheeran - Celestial (3:29)
-04. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE6422C6E6ACC4219A33BB74166AA2CE491C68A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440260   (1039151) от 16.01.2021
-
-Sha-na-na - Rama Lama Ding Dong (1993) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Prayer (2:47)
-02. Get A Job (2:48)
-03. Little Arrows (2:42)
-04. Alley Oop (2:43)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297235F10042A39EA5A4B8B76FFB2F4A43212260
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440253   (1039160) от 16.01.2021
-
-The Archies - Sugar Sugar (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Sugar (2:49)
-02. Jingle Jangle (2:45)
-03. Bang-Shang-a-Lang (2:35)
-04. Sugar and Spice (2:06)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 01:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E50846AD8497AB7FC2A902961CF860AA7588B29
 ```
 
 

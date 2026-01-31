@@ -1,3 +1,30 @@
+###  Публикация: 938174   (480096) от 19.09.2015
+
+VA - Easy Listening Injection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_480096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inlightneed - Catch the Chimera
+02. Lemonchill - Freak - Deepernet Remix
+03. Aureon Project - Fiti s Lament
+04. Nortoel - Anesperos Light(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21EA18298FAB157797A0231C0EDD8F618D5C524C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244655   (480236) от 02.09.2018
 
 Yamaneko - Afterglow (2018) Local Action [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
@@ -665,33 +692,6 @@ VA - Deep & Melodic Techno #03 - Best of 5 Years (2018) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1768D47711282CF406B44A64FF7C51DCAA02222C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056190   (484007) от 24.09.2016
-
-VA - Body Pump #1 - Best of Workout (2016)  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light In Color - Take Cover 05:27
-02. David K (Ger) - In Love : In Love (Robin Schulz Remix) 06:49
-03. Acido Domingo - Lagerfeuer 05:08
-04. David K (Ger) - Open Eyes 06:49(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E8A5F6D8C7B548586B3D3338AE92CA48E06546
 ```
 
 

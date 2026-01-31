@@ -1,3 +1,36 @@
+###  Публикация: 603648   (995322) от 21.01.2013
+
+VA - Vocal Passion Vol.51 (2012) [MP3|320 kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serge Devant feat. Emma Hewitt - Take Me With You (05:51)
+02. Omnia & IRA - The Fusion (Original Mix) (06:08)
+03. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Club Mix) (05:47)
+04. Susana & Rex Mundi - All Time Low (Original Mix) (08:03)
+05. The Attic feat. Oh Laura - Release Me (Kevin Sunray Remix) (07:20)
+06. Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix) (06:40)
+07. Will Holland feat. Jeza - Every Heartbeat (Beat Service Intro Mix) (06:08)
+08. Protoculture - Ode To The Ocean (Original Mix) (07:54)
+09. W&W feat. Bree - Nowhere To Go (Shogun Remix) (06:36)
+10. Roger Shah feat. Inger Hansen - Dance With Me (Extended Mix) (06:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCB5DDE4D478C67BA848996977B70A7B30BE9A5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606060   (995601) от 20.01.2013
 
 VA - Новогодняя блатная вечеринка Радио шансон 2 (2013) [MP3|256 кб/с]<Шансон>
@@ -816,39 +849,6 @@ VA - Voices in my Head Volume 53 (2013) [MP3|320 кб/с]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE37CCDC3F13D641E5C850120ABBAEAE8217C897
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602777   (997579) от 13.01.2013
-
-VA-Зимняя русская best-of-ка (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Electrofashion Feat. Mc Жан - Пришелец
- 002. Вне Времени - Не Звони Мне
- 003. В Двух Шагах - Сердце
- 004. Elvira T - Одержима
- 005. Макс Барских - Supermassive Black Hole
- 006. Ранетки - Ревность
- 007. Ирина Кулькова - Я Искала Тебя
- 008. Натаника - Налетели
- 009. Светлана Разина - Радио НАХ
- 010. Isamin - О Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D07DF64F905CC6395D62160E861DDABEDD8E48CA
 ```
 
 

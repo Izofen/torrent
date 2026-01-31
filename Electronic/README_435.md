@@ -1,3 +1,30 @@
+###  Публикация: 1006838   (825584) от 13.04.2016
+
+VA - Progressive Nation Vol.31 (2016) [MP3|320 кб/с] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_825584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oliver Chang - Hybrid 05:23
+02. Tim Horten - Suva 04:45
+03. Roy Dest, Kaj Melsen, Alicia Madison - Avalanche (Baha Remix) 05:53
+04. Michael White - Superheroes 05:00(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46248163ED85F5065631139D6898EC599B7C0B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006737   (825586) от 13.04.2016
 
 VA - Miami House Vol.4 (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
@@ -666,33 +693,6 @@ VA - Pumping Storm from 2005 to 2015 (10 Years Bundle Pack) (Mixed by XS Project
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:712BB748834954F2356FCD822780982FB2722339
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006375   (829207) от 11.04.2016
-
-Richard Davis - Details (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honest with You (6:46)
-02. The Truth (6:52)
-03. Empty (7:16)
-04. World Disappears (6:35)(   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9CC5BB5604635C6AE7EBDF04F27035B8AF98BF5
 ```
 
 

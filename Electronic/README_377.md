@@ -1,3 +1,30 @@
+###  Публикация: 1281409   (753368) от 07.02.2019
+
+Front Line Assembly - Wake Up The Coma (2019) [FLAC|Lossless|tracks + .cue] <Industrial, Electro-Industrial, EBM, Experimental>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eye On You (feat. Robert Görl) (04:30)
+02. Arbeit (05:02)
+03. Rock Me Amadeus (feat. Jimmy Urine) (04:14)
+04. Tilt (05:10)(   Читать дальше...   )Жанр: Electro-Industrial, EBM, ExperimentalПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A322782F53A9C9933373EF1382E22FCA5B7169EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281414   (753491) от 07.02.2019
 
 Dirk Serries - Epitaph (2018) Consouling Sounds [FLAC|Lossless|tracks+.cue] <Ambient, Drone, Experimental>
@@ -666,33 +693,6 @@ VA - Coastal Remixes Vol.01 (2018) [MP3|320 Kbps] <Progressive House, House,Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1C66E6157BB1AB918D922DBBF706D875E865853
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215657   (756604) от 27.03.2018
-
-The Mover - Undetected Act from the Gloom Chamber (2018) Planet Phuture [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Comedown (06:16)
- 02. Stars Collapse (07:32)
- 03. Stealth (06:23)
- 04. Shadow Deception (06:32)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07927C41A8D8C6570CEF338F139968EE2E52B84A
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1239150   (542434) от 03.08.2018
+
+VA - 50 Chillout Luxury (Deluxe Lounge Experience) (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chill Insider - Bumpkin (Flower Day) 2:25
+02. Jazzmake - Relieve (Fat Mix) 2:13
+03. Kate Back - Whisper Of Grief (Spirit Stunt) 2:19
+04. Key Range - Morning Rose (French Touch) 2:11(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:56:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9A3F2429553561DD12CB557161CA42EEA38C6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239112   (542436) от 03.08.2018
 
 VA - Kontor Top Of The Clubs 2018.03 (2018) [MP3|320 Kbps] <House, Tech House, Club House, Progressive>
@@ -662,33 +689,6 @@ The American Dollar - You're Listening (2018) Yesh Music [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A9A5BFC375D1E7E614A7962FC46DB17D3E9F672
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238763   (544660) от 01.08.2018
-
-Poison Arrow - If You Don't Love Me (2018) Pleasure District [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_544660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Don't Love Me (I'll Cut Your Face) (07:36)
-02. Casa Show (06:00)
-03. If You Don't Love Me - (Konrad Black's Scarredface Mix) (07:13)
-04. If You Don't Love Me (I'll Cut Your Face) - Razor Dub (07:33)Жанр: Electro, IDM, Techno, MinimalПродолжительность: 00:28:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D902AD14CFCAAAE420D77AC092C030F9574399F6
 ```
 
 

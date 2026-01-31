@@ -1,3 +1,30 @@
+###  Публикация: 1024743   (712115) от 11.06.2016
+
+Garbage - Strange Little Birds (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes (2:52)
+02. Empty (3:54)
+03. Blackout (6:32)
+04. If I Lost You (4:11)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D077AF60498CA60B63F69CCF56CDA9AEDDC301EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025313   (712129) от 11.06.2016
 
 Band Of Horses - Why Are You OK (2016) [FLAC|Lossless|image + .cue] <Alternative-Rock, Indie-Rock>
@@ -669,30 +696,6 @@ Low Roar - Once in a Long, Long While... (2017) [FLAC|Lossless|tracks + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F649EDECCA5BE628B4E6C89A351431E42C00E820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 668189   (726220) от 14.06.2013
-
-P J Harvey & John Parish - A Woman A Man Walked By (2009) [FLAC|Lossless]<Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_726220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative Rock, Indie RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 

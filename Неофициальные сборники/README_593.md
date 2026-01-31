@@ -1,3 +1,30 @@
+###  Публикация: 1493658   (894074) от 04.09.2021
+
+VA - Beatport Synth Electronic: Sound Pack #341 (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894074.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Firehold - Human
+002. Microsha 89 - Soviet Union
+003. Eccodroid - Lingering Decay Of The Mind
+004. A Reis - Love In The Night(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 07:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBBC2BA20A8BCA29C2563B44D56D636D36360D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493689   (894088) от 04.09.2021
 
 VA - NRW: Clubbing Future House (2021) [MP3|320 Kbps] <House, Electro>
@@ -683,33 +710,6 @@ VA - Aperitif (2013) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE5F0FB5061CC3D5C2A6C92B12C69EDA6B4A83C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493254   (895369) от 03.09.2021
-
-VA - Music News vol.128 (2021) [MP3|320 Kbps] <Pop, Soul, Dance, (Other)>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_895369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Anastezzia feat. Selena Mayer - Кружева (03:04)
- 002. ALBA feat. Александра Белякова - Catch Me (02:54)
- 003. Alderson - Ягодный Juice (02:02)
- 004. After School House - Веснушка (02:39)(   Читать дальше...   )Жанр: Pop, Soul, Dance, (Other)Продолжительность: 05:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD2FB96FE584E8CD0FBF6F7B0ACE31EEF932D06
 ```
 
 

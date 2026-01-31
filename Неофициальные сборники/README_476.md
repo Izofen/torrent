@@ -1,3 +1,30 @@
+###  Публикация: 1396187   (748261) от 14.07.2020
+
+VA - Mysterium Desert (2020) 2CD [MP3|320 Kbps] <Enigmatic, New age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Can Dance - Opium
+02. Musique De Film - Tubular Bells (Tire Du Film "L'exorciste")
+03. Johann Johannsson - It's Not Your Fault
+04. Danny Baranowsky - The Binding of Isaac(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 10:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7486126E44F72F57486A7C3B2F4A7C1874CDDB2F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281888   (748281) от 10.02.2019
 
 VA - Dark Thunder Riddim (2019) [MP3|320 Kbps] <Reggae, Dub, Ska>
@@ -668,33 +695,6 @@ VA - The Night In Question (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0D20659FB424B388CCAECB70F2F672012F3F367
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396300   (748680) от 14.07.2020
-
-VA - Soft Emotion: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo, Background>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Martin Vogel - Heaven Can’t Wait
-002. Back 2 U - Morning Sun
-003. The Soul Crusaders - Sway
-004. Funky Valley - Merefa(   Читать дальше...   )Жанр: Lounge, Downtempo, BackgroundПродолжительность: 08:24:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF51C01D833898109E396377640B41A09E68472
 ```
 
 

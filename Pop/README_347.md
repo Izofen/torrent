@@ -1,3 +1,84 @@
+###  Публикация: 1472560   (1014373) от 25.05.2021
+
+Stainless Steal - Can-Can (1978) LP [MP3|320 Kbps] <Electronic, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can-Can (14:21)
+02. More Than Meets The Eye (6:04)
+03. Messing With You (Is Like Messing With The Devil) (5:28)
+04. It All Comes Down To Love (6:43)Жанр: Electronic, DiscoПродолжительность: 00:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03407911272FA472A4267BD32E764371B16248F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472203   (1014503) от 24.05.2021
+
+Марина Сафонова - Ставка на ZERO (2003) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 ZERO
+02 Не по правилам
+03 Стекло на губах
+04 Ищу Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F9CF60E20AAC1CC6AEEB6EE161FD4ACBBDB538
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472106   (1014527) от 24.05.2021
+
+VA - American Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Mars - Count On Me (3:17)
+02. Jason Mraz - Have It All - Acoustic (3:45)
+03. Christina Perri - A Thousand Years (4:45)
+04. Seasick Steve - Walkin Man (2:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC16A188607A1D2C232783262D4E7AEE134EDBAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471998   (1014667) от 23.05.2021
 
 Zolita - Evil Angel (Deluxe) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -614,87 +695,6 @@ VA - Top Music of the World (Remix) (2016) [MP3|320 Kbps] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABCA99264D616D03EA03AD01F53894B2D607EDCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469969   (1016155) от 14.05.2021
-
-VA - Rewind & Remixed Hits (2010) [MP3|~245 Kbps (V0)] <Dance, Electro Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Cell - Tainted Love (DJ RAD Remix) (4:17)
-02. Frenchie Davis - Sweet Dreams (3:35)
-03. Shannon - Let The Music Play (2009 Club Crasher Remix) (6:40)
-04. J.J. Fad - Supersonic (Electrolicious Remix) (5:07)(   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 03:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE28B8D8B60A396FC7AA9AC2735F0C6BC445957
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469980   (1016160) от 14.05.2021
-
-VA - Ultimate NRG Party (2004) [MP3|320 Kbps] <Dance, Disco, Hi-NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna M. - Diva (English Mix) (3:54)
-02. Boys In The Dark - Santa Maria (3:28)
-03. Inside<>Out - Believe (NRG Radio Mix) (4:01)
-04. Hanky Panky - Truly Madly Deeply (NRG Radio Mix) (3:16)(   Читать дальше...   )Жанр: Dance, Disco, Hi-NRGПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582546BECEA2320F4E0ACB80B74AEA6413B27EAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469544   (1016286) от 13.05.2021
-
-Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1016286.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Break My Heart Myself (feat. Travis Barker) (02:31)
-2. Sabotage (02:56)
-3. Trust Fall (02:30)
-4. Better Mistakes (02:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCEF7A8137EEE29F345D1D844290DEFA53AFE2B
 ```
 
 

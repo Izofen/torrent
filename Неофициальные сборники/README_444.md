@@ -1,3 +1,30 @@
+###  Публикация: 1287060   (707101) от 05.03.2019
+
+VA - не Громкие новинки недели 3 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Саша Санта - Не Улетай
+02. Ольга Горбачева - Оля Оля
+03. T1One & Inur - Вино Помогает
+04. Rode - Fuck You(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63BFC6549D611BC200462CFC61FAF83BBDADF535
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287026   (707105) от 05.03.2019
 
 VA - Brooklyn Bounce (2019) [MP3|320 Kbps] <Electro House, Dance, Club>
@@ -669,33 +696,6 @@ VA - 100-ка популярных весенних хитов на Europa Plus.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2779F6235D479210F8087C7D64ED5C8F9F157F19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532937   (708742) от 22.02.2022
-
-VA - Pop Remix NNM (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_708742.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lana Del Rey, Imanbek - Summertime (4:25)
-002. Faithless, Suli Breaks, Jazzie B., MEDUZA - Innadadance (Edit) (6:07)
-003. Bee Gees, SG Lewis - More Than A Woman - SG's Paradise Edit (5:57)
-004. Halsey - I am not a woman, I'm a god - Hot Chip Remix (4:48)(   Читать дальше...   )Жанр: PopПродолжительность: 05:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9830F9C9EEB2AF8AD30EA9B1C17E0FDC90EFA7
 ```
 
 

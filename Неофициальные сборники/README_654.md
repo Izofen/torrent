@@ -1,3 +1,30 @@
+###  Публикация: 1349900   (1003577) от 05.01.2020
+
+VA - 5oFoF: Five Years of Friends of Friends (2014) [MP3|320 Kbps] <Electronic, Trip Hop, Downtempo, Experimental>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perera Elsewhere - Bizarre (02:40)
+02. Shlohmo - Places (05:02)
+03. Different Sleep - Conflict (03:44)
+04. Ernest Gonzales - We Can Live In the Forest (03:26)(   Читать дальше...   )Жанр: Electronic, Trip Hop, Downtempo, ExperimentalПродолжительность: 02:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD9E6A1AC695C53620CCE3AD035F911DF633936
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349375   (1003664) от 04.01.2020
 
 The Beatles - Rare Beatles De-Noised (4 CD) (2020) Remaster SMRP [MP3|320 Kbps] <Rock & Roll>
@@ -668,33 +695,6 @@ VA - Greatest Hard Rock And Metal Songs (2021) [MP3|320 Kbps] <Hard Rock, Hardco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D531839A88CFB96AA247D98E4DDA4535F4ADF857
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486595   (1004567) от 01.08.2021
-
-VA - German Top 100 Single Charts 30.07.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAF Camora & Bonez MC - Blaues Licht
-02. Ed Sheeran - Bad Habits
-03. Pashanim - Sommergewitter
-04. The Kid Laroi & Justin Bieber - Stay(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC37B59ECF8FE2955DA845BACE92E49D20F98958
 ```
 
 

@@ -1,3 +1,321 @@
+###  Публикация: 1053818   (494327) от 19.09.2016
+
+ReinXeed - 8 альбомов (2008-2013) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494327.jpg" />
+</div>
+
+
+###  Подробнее
+
+ReinXeed — шведская рок-группа из города Boden, играющая музыку в стиле симфоник пауэр-метал. Группа была образована вокалистом и мультиинструменталистом Tommy Johansson (aka Tommy ReinXeed) в 2004 году. www.reinxeed.comЖанр: Power MetalПродолжительность: 08:02:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4784E054AA7177696639B58CECB80E65392CF8D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053852   (494342) от 19.09.2016
+
+Smokie - Uncovered Too (2001) [APE|Lossless|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be My Baby (03:51)
+02. Everytime You Go Away (04:17)
+03. Hungry Heart (03:00)
+04. Garden Party (04:10)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FF8EA2C1ED01AA096C0E6EAEDD5F8A3021ACA93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318509   (494397) от 06.08.2019
+
+Slipknot - We Are Not Your Kind (2019) [MP3|320 Kbps] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insert Coin
+02. Unsainted
+03. Birth of the Cruel
+04. Death Because of Death(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 01:03:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590A7FF07F7A4941C07AAB7065C0D9DD196A6F93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054039   (494424) от 19.09.2016
+
+Cold Truth - Cold Truth (2003) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break Of A New Day  4:26
+02. In Her Groove  4:06
+03. Fire And Water  3:26
+04. Slow Burn  3:29(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75BD3DEF58B6BCD5C900107D9632BAD2C503801
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054046   (494471) от 19.09.2016
+
+Demonica - Demonstrous (2010) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demon Class 04:01
+02. Ghost Hunt 06:05
+03. Luscious Damned 03:49
+04. My Tongue 05:01(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9982146A30DA569695721A2650F89C4F2DF2C0B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 235567   (494543) от 14.09.2010
+
+God Is An Astronaut - Дискография (2002 - 2010) [MP3|320 kbps]<Post-Rock / Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Post-Rock / AmbientПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565087   (494661) от 23.07.2022
+
+Nebula - Transmission From Mothership Earth (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highwired
+02. Transmission From Mothership Earth
+03. Wilted Flowers
+04. Melt Your Head(   Читать дальше...   )Жанр: Heavy Rock, Stoner, PsychПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A14CC329FDAFDF681F9CC32612CDD665F0DC07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565094   (494662) от 23.07.2022
+
+Nicolas Cage Fighter - The Bones That Grew from Pain (2022) [MP3|320 Kbps] <Hardcore Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grey Eye (3:22)
+02. Shrine of Wire (3:08)
+03. Coughing Nails (3:01)
+04. Static Abyss (3:47)(   Читать дальше...   )Жанр: Hardcore MetalПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46D89F40076B8A4E0CC82C49D159F1F4DF29D78
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565204   (494674) от 23.07.2022
+
+Hatriot - The Vale Of Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horns & Halos
+02. The Hate Inside
+03. Forceful Balance
+04. Verminious And Vile(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562BC0C2DA6A2A18797DEFFDE51F49D2A8A87277
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565200   (494675) от 23.07.2022
+
+Bells And Ravens - What Death Cannot End (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Last Sacrifice
+02. The Headless Horseman
+03. Scourge Of The Seven Seas
+04. Martyrs & Illusionists (Victory), Pt. I(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A0E858648BC7AFB643BF8E22F065E056F134D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318425   (494691) от 06.08.2019
+
+Workout Music Tv - 40 Ultimate High Octane Tracks to Motivate the Lazy (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494691.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Iron Heart (3:19)
+2.Step by Step (3:15)
+3.Rock Your Jock (3:06)
+4.Tears of Sweat (5:38)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BF7F9CC1389FF8639DEAFD02BE2BCDD174E907
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565250   (494778) от 23.07.2022
+
+Ossuary Insane - Demonize The Flesh (1998) [FLAC|Lossless|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_494778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fallen to the Pits (04:15)
+02. Inverted in Darkness (05:09)
+03. Summoned to Death (03:02)
+04. Imprecari (05:09)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF2412F19778AFF921437154859E9B902D30B1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565224   (494781) от 23.07.2022
 
 Organic Infest - Penitence (1993) [FLAC|Lossless|tracks + .cue] <Death Metal>
@@ -371,330 +689,6 @@ Ousey / Mann - Is Anybody Listening (2022) Japanese Edition [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE2D283D6E704BDB08048238CA51D43F803EA4A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565352   (494913) от 23.07.2022
-
-Galleyboyz - Galleyboyz (1990) 2xCD, Reissue , 2022, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494913.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Galleyboyz:
-01. You Get What You Pay For (3:36)
-02. Nothin’ To Lose (3:46)
-03. One Step Up (4:24)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23782874B5BAED83F5E4103ADC42AE9A638E4A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565239   (494915) от 23.07.2022
-
-Blizzard Hunter - The Path Of Triumph (2022) [MP3|320 Kbps] <Heavy, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	On the Warpath	01:52
-02.	Final Flash	05:07
-03.	The Path of Triumph	07:34
-04.	Screaming (My Bloody Anger)	04:40(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2304A4091B7A7DADA0D9533E333BD05BE7DCBCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565402   (494985) от 23.07.2022
-
-Donkey Pilots - Serious Men (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Howl
-02. No Right
-03. One Beer Man
-04. Hotel Rio(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC674E9CA55306D3E0A49C66DA76AAFB313E87F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565316   (494986) от 23.07.2022
-
-Iconic - Second Skin (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast As You Can (4:38)
-02. Ready For Your Love (4:12)
-03. Second Skin (5:4)
-04. All I Need (4:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFEA8AB31F0B522E2FC547AB6A1003225D0DDEA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565108   (494994) от 23.07.2022
-
-Moonshade - As We Set The Skies Ablaze (2022) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Epitaph (4:11)
-02. Valley Of Dying Stars (3:47)
-03. Blood Of The Titans (4:37)
-04. The Shadows Of My Dissent (4:13)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1B11E61A2FF5B1FB2E8E9A9280887AE0235DA3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565344   (494996) от 23.07.2022
-
-Lonerider - Attitude (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Imagination (3:20)
-02. Lonerider (3:39)
-03. Hard Heart To Break (4:13)
-04. Fast Train (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC66CD26AFDFA6755A7D8149268D5F89F195F77F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565090   (495000) от 23.07.2022
-
-Patient Sixty-Seven - Wishful Thinking (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay Paranoid II (3:25)
-02. Scattered (3:47)
-03. Fatebringer (feat. Brian Wille of Currents) (3:48)
-04. Try Hard (3:40)(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7988757A5B86310C6275297D727759EDC151BDC5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565081   (495002) от 23.07.2022
-
-Villain of the Story - Divided (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Again (4:00)
-02. Jester (4:02)
-03. Karma (4:00)
-04. Under My Skin (3:43)(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2603CD62D6B32BBC9563E6C36C8DAC17EBBE02F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565230   (495003) от 23.07.2022
-
-Bells and Ravens - What Death Cannot End (2022) [MP3|320 Kbps] <Progressive Heavy, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Last Sacrifice (feat. Tommy Laasch & Julian Scott) (04:58)
-02. The Headless Horseman (feat. Tim "Ripper" Owens) (05:58)
-03. Scourge Of The Seven Seas (feat. Zak Stevens) (08:16)
-04. Martyrs & Illusionists (Victory), Pt. I (feat. Selin Schonbeck) (06:00)(   Читать дальше...   )Жанр: Progressive Heavy, Power MetalПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A91EA5D85A20819A1DE5F7168A630F3FABE6E51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565082   (495005) от 23.07.2022
-
-Mosara - Only the Dead Know Our Secrets (2022) [MP3|320 Kbps] <Atavistic Doom Metal, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Magissa
-02 Zion's Eyes
-03 The Permanence of Isolation
-04 Only the Dead Know Our SecretsЖанр: Atavistic Doom Metal, StonerПродолжительность: 00:33:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960478774CAF60EC36A97A3F3F1F1D0BCE7180DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565075   (495007) от 23.07.2022
-
-Supasonic Fuzz - Without… (2017) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Away from all [00:03:05]
-02 - Blocks [00:06:15]
-03 - Death Woman [00:04:46]
-04 - Fluid [00:06:46](   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE94568307750D51F3FA3AEF9105E78D196521D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565340   (495010) от 23.07.2022
-
-Bobby Stoker - Everglow (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_495010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting For The Night (5:01)
-02. Best Way Out (4:05)
-03. My Destiny (4:31)
-04. The Devil In Me (4:40)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE4D0D52ACD9B4F4FBF4433E83BB5AA5395CF16
 ```
 
 

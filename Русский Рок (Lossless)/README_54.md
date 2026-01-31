@@ -1,3 +1,30 @@
+###  Публикация: 931179   (512867) от 25.08.2015
+
+Наутилус Помпилиус - Концерт в Москве (2013) [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся в ДК МЭЛЗ, Москва, 1987 г.01. Эпиграф (Разлука)   [2:43]
+  02. Мальчик зима   [2:26]
+  03. Стриптиз   [7:35]
+  04. Казанова   [4:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB779B35549E570C3DC6CEB929000EBCC447E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315063   (515987) от 17.07.2019
 
 СашБаш (Александр Башлачев) & Алиса - Чернобыльские Бобыли На Краю Света (1998/1999) 2006, Bomba-Piter (Manchester) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -677,33 +704,6 @@ magnet:?xt=urn:btih:D0CFE668DD5BFB5B39CC3BBCEC227EB13062F8D6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83189B8ECF48E374EC24E6BC0C81B95197A58C68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312034   (536210) от 02.07.2019
-
-The Hatters - Forte & Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ska, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_536210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forte (Sounds Like Teen Spirit) (5:55)
- 02. Обижен (3:48)
- 03. Я твой (3:21)
- 04. Танцы (3:19)(   Читать дальше...   )Жанр: Rock, Ska, Punk RockПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F64B19535B141CFD2A45BFC6393E3DEAE5CE21
 ```
 
 

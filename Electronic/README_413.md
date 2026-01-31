@@ -1,3 +1,30 @@
+###  Публикация: 1274991   (791710) от 09.01.2019
+
+VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
+02. Jay Frog & Amfree - Is This Love (Radio Edit)
+03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
+04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040394   (791774) от 01.06.2020
 
 Aythar - Collection 12 Releases (2016-2019) Carpe Sonum, ...txt [FLAC|Lossless|WEB-DL|tracks] <Ambient, Space, Psybient, Berlin-School>
@@ -663,33 +690,6 @@ Roly Porter - Discography 6 Releases (2011-2020) Subtext [FLAC|Lossless|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E75026DB53D5A214E95733889001A69E0C5C9B1F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154625   (792472) от 31.05.2020
-
-Mint (Biotron Shelf) - Discography 20 Releases (2004-2015) Boltfish Recordings, U-Cover [FLAC|Lossless|tracks+.cue, tracks] <IDM, Ambient, Glitch, Downtempo, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_792472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. October Mist (02:25)
- 02. Three Ten To Euston (03:49)
- 03. Formless Geometry (06:58)
- 04. A Tree Without Birds (02:18)(   Читать дальше...   )Тип издания: CD, WebЖанр: IDMПродолжительность: 10:00:24 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD4C7983FCBF5EA46CE3DBAD3F6F924F0DD9957
 ```
 
 

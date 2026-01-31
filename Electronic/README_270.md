@@ -1,3 +1,30 @@
+###  Публикация: 1156877   (526400) от 09.08.2017
+
+VA - Ministry Of Sound - Chilled House Ibiza (2017) 2CD [MP3|320 Kbps] <Chill House, Lounge>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_526400.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1. It Ain't Me - Kygo & Selena Gomez
+2. Scared To Be Lonely (Julien Earle Remix) - Martin Garrix & Dua Lipa
+3. Places - Martin Solveig feat. Ina Wroldsen(   Читать дальше...   )Жанр: Chill House, LoungeПродолжительность: 02:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F70196E0D00F8CCDE07AEE7C6D0431CBCCCF91F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156962   (526444) от 09.08.2017
 
 VA - Global Player Saint Tropez 2017, Vol.1 (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -667,33 +694,6 @@ VA - Morning Delights (Beautiful Lounge Experience) Vol. 1 (2019) [MP3|320 Kbps]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3204E081902B810EE2800145DA76B03421A5470E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156195   (528497) от 06.08.2017
-
-VA - Despacito (Summer Breeze Beach Chillout Beats Music) (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj. Juliano BGM - Despacito (Chillout)
-02. DJ Infinity Night - Beach Picnic
-03. Dj Vibes EDM - Holidays at West Coast
-04. Dj Dimension EDM - Out of Town (Radio Song)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E51CE3AC53BBAF539208530BC371A41AFC57CB9
 ```
 
 

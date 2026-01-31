@@ -1,3 +1,30 @@
+###  Публикация: 1132823   (696454) от 11.05.2017
+
+VA - Рок в Авто  Зарубежный - Collection  (2012-2017) [MP3|192-320 Kbps] <Rock, Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696454.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A Hero for the World - Eternal Shadows 5:25
+002. Abraxas - Cry Of The Nature 3:40
+003. Adrenaline Mob - Kill the King 4:33
+004. Age of Artemis - Echoes Within 4:04(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 19:25:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF898E99029C70709E41FB1748C3BDA6CBABAA6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027243   (696529) от 19.06.2016
 
 VA - I Love Ballads - Part VIII (2016) [MP3|256 кб/с] <Rock, Pop, Chanson>
@@ -667,33 +694,6 @@ VA - Mimicry 2: Psy Trance Digest (2017) [MP3|233-320 Kbps] <Psychodelic Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7759749D59F3BAD8445F555AD16B90B39A930A28
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133215   (697218) от 11.05.2017
-
-VA - Trance Сollection Vol.60 (2017) [MP3|320 Kbps] <Trance , Progressive Trance ,Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697218.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4 Strings & Denise Rivera - In The Middle Of A Dream (Original Mix) 5:13
-002. Above & Beyond, OceanLab - On a Good Day (ilan Bluestone Remix) 4:22
-003. Airborn, Bogdan Vix & KeyPlayer Feat. Danny Claire - What Is Loneliness (Original Mix) 6:22
-004. Akamana & Alaera - Frozen Sky (Original Mix) 9:02(   Читать дальше...   )Жанр: Trance , Progressive Trance ,Uplifting TranceПродолжительность: 10:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CC4F75EFA0A6E6D71C6D4CA3FEDC7FECC65CD2
 ```
 
 

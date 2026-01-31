@@ -1,3 +1,326 @@
+###  Публикация: 1500239   (841298) от 06.10.2021
+
+Black Sabbath - Technical Ecstasy (1976) 2021 remaster, Sanctuary Records [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy-Metal, Doom-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Street Kids [00:03:46]
+02. You Won't Change Me [00:06:35]
+03. It's Alright [00:03:58]
+04. Gypsy [00:05:08](   Читать дальше...   )Жанр: Heavy-Metal, Doom-MetalПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA20C87059D873B15E4046F6E01FB2254A08DF9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112634   (841338) от 09.03.2017
+
+Северный Флот - Live in Moscow (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Надвигается Северный Флот (Live)
+02. Мизантропия (Live)
+03. Презирать и ненавидеть (Live)
+04. Харон (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E69E5ABB925E800E13D58812D52507E3BF69F7E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112806   (841344) от 09.03.2017
+
+Намбату (экс "Настя", "Наутилус Помпилиус") - Игра в дурака (2017) [FLAC|lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игра в дурака (04:42)
+02. Глинтвейн (04:59)
+03. Дуня (04:01)
+04. Лунное пламя (05:03)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0E9A461425999D86F73F478D41E4206EC90184
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112617   (841352) от 09.03.2017
+
+Elvis Presley - Way Down in the Jungle Room (2016) 2CD [FLAC|Lossless|WEB-DL|tracks + .cue] <Rock'n'Roll, Rockabilly, Blues, Pop, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом "Way Down In The Jungle Room" редких демо-записей и ранее не публикованныхнных композиций великого короля поп-музыки Элвиса Пресли. Полная коллекция финальной студийной сессии Пресли, впервые собранная в одной антологии, Way Down In The Jungle Room — это существенное и приятное дополнение в музыкальное собрание каждого меломана. В середине 1970-х (   Читать дальше...   )Список альбомов:
+CD1 - The Masters
+CD2 - The OuttakeЖанр: Rock'n'Roll, Rockabilly, Blues, Pop, RockПродолжительность: 02:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D580579E32D7280B58E866DDCBA14B4EA6B36B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500240   (841398) от 06.10.2021
+
+Sainted Sinners - Back With A Vengeance (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Like A Phoenix
+02. Burnin' The Candle
+03. Back With A Vengeance
+04. Tell Me I Was Wrong(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0994365E1C89EB85ED0CE51FDF5666CCA40A0133
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004008   (841499) от 04.04.2016
+
+Тараканы! - Солидный панк-рок для солидных господ: полноприводная акустика (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт, записанный на этом альбоме, состоялся 2 января 2015 года в московском клубе RED на «Красном Октябре». Все классические хиты и раритеты были значительно переработаны в таких стилях, как регги, даб, кантри, свинг, босанова. Стандартный состав группы был дополнен двумя бэк-вокалистками и перкуссионистом, а сами музыканты группы использовали максимум своих побочных (   Читать дальше...   )01. Потеря сознания
+02. Мешки с костями
+03. Восклицания знаки
+04. Улица Свободы(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FE9CA3E1BA2C46A8BCD8B5C4AFBC0785845065
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112478   (841535) от 09.03.2017
+
+The Shins - Heartworms (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Name For You (3:09)
+02 - Painting a Hole (4:44)
+03 - Cherry Hearts (3:33)
+04 - Fantasy Island (4:46)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06351D0E768529D6989906FA52BE924B6365B95D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112457   (841540) от 09.03.2017
+
+Begging For Incest - Finsternis (2016) [FLAC|Lossless|tracks] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening in Nothingness
+02. Apathetic Loss of Dignity
+03. Obliterate Human Conscience
+04. Katharsis(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690F7F584C9BAC5EEC98B9FFCA01382BBC5866AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112508   (841544) от 09.03.2017
+
+Mike Tramp - Maybe Tomorrow (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home (6:33)
+ 02. It's Not How We Do It (4:43)
+ 03. Spring (4:37)
+ 04. Would I Lie to You (4:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC7B5E8A4BF8BD394ADDBE80957923BC410974F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112109   (841626) от 09.03.2017
+
+Lionville - A World Of Fools (2017) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Wait (4:11)
+02. Show Me The Love (3:53)
+03. Bring Me Back Our Love (4:48)
+04. Heaven Is Right Here (4:49)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9564D17CF912686F8642FBCF15474F84250CF8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 746400   (841686) от 04.04.2016
+
+Electric Light Orchestra - Secret Messages (1983) [FLAC|Lossless]<Classic Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Secret Messages   (4:44)
+02.  Loser Gone Wild   (5:26)
+03.  Bluebird   (4:07)
+04.  On And On   (5:03)(   Читать дальше...   )Жанр: Classic Rock, Symphonic RockПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E71ED204C507271F487F0BB91CE05A5C7487D6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003794   (841700) от 04.04.2016
+
+Phil Collins - Hello, I Must Be Going! (1982) 2CD Deluxe Edition, 2016, Atlantic [FLAC|Lossless|image + .cue] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Care Anymore (Live) (6:31)
+02. I Cannot Believe It's True (Live) (5:29)
+03. Like China (Live) (5:42)
+04. You Can't Hurry Love (Live) (3:04)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:945D972D2F734ACD6E4325D6BDEC49BEA7440DAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003971   (841705) от 04.04.2016
 
 Grimner - Frost Mot Eld (2016) [MP3|320 кб/с] <Folk Metal, Viking Metal>
@@ -365,321 +688,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEB94970CFE211375CAC10A149CD515406698115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309313   (842303) от 15.03.2011
-
-Manfred Mann's Earth Band - Star Collection (4CD BOX) (2011) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Art Rock, Symphonic Rock, Progressive RockПродолжительность: 05:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B1897A1D8F2A91CFC00B4C9729E49A3F60EF5B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592770   (842382) от 27.04.2020
-
-10cc - Solo Albums of the band members (1951-2012) 32 Albums (Eric Stewart/Godley & Creme/Graham Gouldman/Wax/Andrew Gold) [FLAC, APE|Lossless]<Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (0:16)
-02. Rock My World (4:35)
-03. Lazybones (4:20)
-04. Ha Ha Went The Clown (0:39)(   Читать дальше...   )Жанр: Rock, Art Rock, Progressive RockПродолжительность: 32:20:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E153B5418CF8323BC3F12AA1CADBF381841E5FA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499992   (842480) от 05.10.2021
-
-Dirty Kings - Crown Jewel (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes Man Alive (04:05)
-02. Locomotive Heart (Bloody Marie) (05:49)
-03. Crown Jewel (04:09)
-04. Let It Lie (03:59)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5540CF79536C5BCCB9F04AB7E7FA6E01A07C9D1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500183   (842599) от 05.10.2021
-
-ДДТ (DDT) - Тень на стене (2021) Single [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тень на стене (07:29)Жанр: RockПродолжительность: 00:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9509962A53E2AC026E3BC1C6E9861D3F30E38581
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500099   (842600) от 05.10.2021
-
-Black Sabbath - Heaven and Hell (1980) 2xCD, Deluxe Edition, Reissue, Remastered, 2021, Rhino Records [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842600.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Heaven and Hell (2021 Remastered):
- 01. Neon Knights (2021 Remaster) (03:52)
- 02. Children of the Sea (2021 Remaster) (05:34)
- 03. Lady Evil (2021 Remaster) (04:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28C4E9131E73EC71909D1D557DA2020085435345
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500180   (842606) от 05.10.2021
-
-Ольга Кормухина - Юбилейный концерт "30 лет в открытом космосе"(2021) Live [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Храни тебя небо (04:26)
-02. Жёлтая дорога (03:51)
-03. Башмаки (03:49)
-04. Космическая (04:55)(   Читать дальше...   )Жанр: RockПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42073D2718320FF26588AC9E96ED614F7690E34F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500185   (842611) от 05.10.2021
-
-Шмелi (Шмели) - Чорний Лic (2021) [MP3|320 kbps] <Industrial, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гімн Чорного Лісу (02:11)
-02. Лише Мене (03:38)
-03. Мавка (04:11)
-04. Вовкулака (02:25)(   Читать дальше...   )Жанр: Industrial, Folk RockПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E9C2A20917D612BB49CCC715FA0AE4196FE4B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500052   (842614) от 05.10.2021
-
-Black Sabbath - Technical Ecstasy (1976) Box Set, Deluxe Edition, 4xCD, Reissue, Remastered, 2021, Rhino Records [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Symptom of the Universe (Live World Tour 1976-77) [00:04:48]
-02. War Pigs (Live World Tour 1976-77) [00:07:24]
-03. Gypsy (Live World Tour 1976-77) [00:05:12]
-04. Black Sabbath (Live World Tour 1976-77) [00:07:33](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 4 CD, 02:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7463E912F93B1FC75FFE379B0232CB33A3D584A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500247   (842615) от 05.10.2021
-
-Holy Kids - Немного свободы (2021) [MP3|320 kbps] <Rock, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ветер свободы (00:53)
-02. Скорость "С" (03:23)
-03. Город Разбитых Надежд (04:34)
-04. Девочка-пожар (03:35)(   Читать дальше...   )Жанр: Rock, Pop-PunkПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7C9B2984AA5A424A7BB6CB8A173C48C0C071C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500186   (842703) от 05.10.2021
-
-Пилот - Архангельск (2021) Single [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Архангельск (04:23)Жанр: RockПродолжительность: 00:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293995374B1C2031735400D841D3EE8293435965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500012   (842711) от 05.10.2021
-
-The Ahab Dilemma - World On Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go 05:01
-02. World On Fire 03:04
-03. Waiting 05:46
-04. Dangerously Close To The Bone 02:39(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0579DA936257FA1C59640F4A8401C532201E74F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500258   (842712) от 05.10.2021
-
-Мужчины В Металле - Сибирь (2021) [MP3|320 kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сибирь (03:52)
-02. Ты Навсегда Со Мной (03:11)
-03. Дождь На Заре (05:25)
-04. Жаль, Что Тебя Больше Нет (05:47)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DA108A85AAC063489012ECB6D8F9C20DC636E8
 ```
 
 

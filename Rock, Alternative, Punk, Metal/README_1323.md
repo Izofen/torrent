@@ -1,3 +1,326 @@
+###  Публикация: 1848687   (1053089) от 18.01.2026
+
+Knocked Loose - Collection (2014 - 2024) 5CD [FLAC|Lossless|tracks + .cue] <Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Knocked Loose — американская хардкор-панк-группа из Oldham County, Kentucky. Играет в жанрах металкор, хардкор-панк и битдаун-хардкор. Вокалист Брайан Гаррис отмечает, что их звук находится «между хардкором и металкором».Список альбомов:
+2014 - Pop Culture
+2016 - Laugh Tracks
+2019 - A Different Shade of Blue(   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 02:08:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287D94373045F9EBEAC8553C8AE8BC5056FE24F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848715   (1053097) от 18.01.2026
+
+Александр Ф. Скляр и Ва-Банкъ - По-новому (2026) EP[MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053097.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На кухне [00:05:20]
+2. Босиком по луне [00:05:06]
+3. Сад [00:03:43]Жанр: RockПродолжительность: 00:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC3CE834861CF8471F2D01265887C76CE5E8068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848772   (1053110) от 18.01.2026
+
+Binding - Cool Memory (2025) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call to Action [00:04:06]
+02. The Things That Never Show [00:03:04]
+03. Impermanent [00:02:21]
+04. Remember the Time [00:03:42](   Читать дальше...   )Жанр: Coldwave, Post-PunkПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9A662413CAA9A89B91C322423FF3D5C548470CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849009   (1053153) от 20.01.2026
+
+Werken - Hielo Eterno (2026) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maquinchao (Intro)
+02. Alas Delta
+03. Esperanza
+04. El Regreso(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3AF996F106D3F851B5B3B7016EC3BF6417BB2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848801   (1053201) от 19.01.2026
+
+VA - 2000s Rock HIts (2025) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - Numb - (03:08)
+ 02. Red Hot Chili Peppers - Can’t Stop - (04:29)
+ 03. Green Day - American Idiot - (02:54)
+ 04. Disturbed - Down with the Sickness - (04:39)(   Читать дальше...   )Жанр: RockПродолжительность: 03:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE003EE806D4A93C63B817E2880A6095B30223EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849191   (1053244) от 21.01.2026
+
+Siska - Broken Dreams (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Last Days (01:33)
+ 02 - Time Machine (04:43)
+ 03 - Gangster (The Roaring Twenties) (04:04)
+ 04 - We'll Return (03:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05916DFC071564555741AE29907391F77CA07681
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849169   (1053254) от 21.01.2026
+
+Цветы - 30 Лет - Лучшие песни (2001) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Есть глаза у цветов 4'16
+02. Звездочка моя ясная 5'17
+03. Не надо 3'01
+04. Колыбельная 3'15(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6833D3E03F0993777C976AC50B1F0AD14B742842
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849148   (1053267) от 21.01.2026
+
+Juniper Inc - We sold our Souls for Rock'n'Roll (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock, Southern>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have mercy (4:05)
+02. Paycheck Blues (3:52)
+03. We sold our Souls for Rock'n'Roll (4:08)
+04. Work hard play hard (2:00)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, SouthernПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6B95B00594FD2450AB3483D5779F68B2B94665
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849062   (1053308) от 20.01.2026
+
+Ravencrown - Vol. II (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Momentary Trail (04:01)
+ 02 - Halo of Scars (03:36)
+ 03 - Pain is Yesterday (03:16)
+ 04 - Pathway to Demise (03:51)(   Читать дальше...   )Жанр: Gothic Metal, Heavy MetalПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B201B44E7D4A81DFE3303D9AC8D08123B02D2D4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849213   (1053427) от 21.01.2026
+
+The John Lister Project - Projections (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Elation (3:38)
+02.  The Altar (3:48)
+03.  Projections (2:53)
+04.  Solutions (3:05)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7142DD5EB6C49AD88229043B750B26EA4049836
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849476   (1053483) от 23.01.2026
+
+polnalyubvi - Песнь Нимфеи (2026) [MP3|320 Kbps] <Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053483.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Девочка с Севера
+2. Ледяная
+3. Я иду звёздной тропой
+4. Рассказ теней(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:27:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E238DFF0B15EF35202129BF37EE0F14EC4AA66D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849475   (1053485) от 23.01.2026
+
+Ясвена - Концерт с оркестром Глобалис (2026) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053485.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы ничего не теряем (live)
+2. Опрокинуты с неба (live)
+3. Сопряжение сфер (live)
+4. Оловянный солдат (live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5ACEADC637F8BD94E21D820256E419D96F56336
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849372   (1053531) от 22.01.2026
 
 Nite Stinger - What The Nite Is All About (2026) [MP3|320 Kbps] <Melodic Hard Rock>
@@ -344,6 +667,33 @@ Mezcaleros - No Way Back (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79AF010894AC41138CA1DC5A749D8D0191AAA968
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849916   (1053909) от 
+
+Stormzone - Immortal Beloved (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Titanic (Steel Meets Ice)
+02. Tyrannosaur (Screaming In The Night)
+03. My Immortal Beloved
+04. Stand In Line(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43A8546A4D42E4D8D293B25293D6E2F0EFB48AFB
 ```
 
 

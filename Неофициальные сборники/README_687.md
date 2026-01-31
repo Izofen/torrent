@@ -1,3 +1,30 @@
+###  Публикация: 1607000   (1044240) от 24.01.2023
+
+VA - Simply Dance Vol. 07 (2023) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hostel Kidz - Standing In Line
+02. David Garner - Silent Night
+03. yaml - Dance The Night Away
+04. DJ Spacig - Hearts On Fire(   Читать дальше...   )Жанр: Europop, Dance, Club, ProgressiveПродолжительность: 01:46:13 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1874A78BA8DC4860A09DD147DCCB63CF2FD407FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606989   (1044244) от 24.01.2023
 
 VA - Simply Dance Vol. 04 (2022) [MP3|320 Kbps] <Europop, Dance, Club, Progressive>
@@ -668,33 +695,6 @@ VA - Fresh Fruity Electro House Tracks (2023) [MP3|320 Kbps] <Bass House, Progre
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BEF93490BC2FC7B0DFC2291B7D5BB454763DCF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604439   (1045397) от 13.01.2023
-
-VA - Trance Anthems 2023 [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC & Alex M.O.R.P.H. - Afterlife (Extended Mix) (6:51)
-02. Armin van Buuren feat. Scott Abbot - I'm Sorry (Extended Mix) (5:41)
-03. Ronski Speed x Linnea Schössow - Two Of Us (Extended Mix) (8:07)
-04. DJ T.H. & Claas Inc. and Alexandra Badoi - Time to Rave (Extended Mix) (6:09)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D42D2E76C5CD61CF770D9E1D1FDC65955EEC0A2
 ```
 
 

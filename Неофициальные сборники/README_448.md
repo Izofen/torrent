@@ -1,3 +1,30 @@
+###  Публикация: 1130790   (712179) от 03.05.2017
+
+VA - Top 100 Зайцев.Нет - Апрель (2017) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712179.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Estradarada - Вите Надо Выйти  4:18
+002.  Егор Крид & Molly - Если ты меня не любишь  3:27
+003.  Rag'N'Bone Man - Human  3:19
+004.  Burito - По волнам  3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA0E4B18C9A238CA2F0F3782190A3AB332D4DF1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025073   (712193) от 11.06.2016
 
 VA - Ibiza Calling: Deluxe Cafe Bar and Sexy Lounge Sunset Summer Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - Tropical Vibes vol. 7 (2018 - 2019) [MP3|320 Kbps] <Tropical House, Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F05D335E0DB20B1B42EA6A2F768936EC11E55C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400689   (713122) от 08.08.2020
-
-VA - New Rock 2 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theory Of A Deadman - World Keeps Spinning (3:34)
-02. The Strokes - Bad Decisions (4:53)
-03. The Rolling Stones - Living In A Ghost Town (4:07)
-04. The Pretty Reckless - Death by Rock and Roll (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41D695F5206F78D7B5E88FC907000A1CBE91800
 ```
 
 

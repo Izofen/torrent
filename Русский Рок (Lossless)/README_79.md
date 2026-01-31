@@ -1,3 +1,30 @@
+###  Публикация: 1613567   (1039126) от 20.02.2023
+
+Абвиотура - Тридуги (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:01:25]
+02. Хорошая [00:03:43]
+03. Дуги [00:05:37]
+04. Тает лёд [00:03:49](   Читать дальше...   )Жанр: Rock, ethno-coreПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98918688800680191A0F9B4ED410CA128A824F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613549   (1039382) от 19.02.2023
 
 YqpY - Near (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Electronic>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:C62F4A85DC5AE6F0B5DF5168949285076258BA66
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35359462E76E4C4CB2FBF89405F1B56B898A5C72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437729   (1042042) от 05.01.2021
-
-Хмарь - Мгла (2020) [FLAC|Lossless|Web-DL|tracks] <Atmospheric Black Metal, Blackgaze, Post Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Когда деревья заговорят (7:39)
-02. Пыль (7:52)
-03. Сон (5:40)
-04. Колыбель леса (7:53)(   Читать дальше...   )Жанр: Atmospheric Black Metal, Blackgaze, Post Black MetalПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B882C42430D43134A27CD7847B8E0ED79B8D96
 ```
 
 

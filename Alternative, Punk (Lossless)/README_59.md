@@ -1,3 +1,30 @@
+###  Публикация: 413498   (790836) от 10.01.2019
+
+Daughtry - 6 альбомов (2006 - 2018) [FLAC|Lossless|tracks+.cue]<Alternative, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daughtry (Дотри) — рок-группа из Северной Каролины, основана и финалистом шоу American Idol Крисом Дотри с 2006 года. Их одноимённый альбом "Daughtry", выпущенный в 2006 году, попал в Billboard 200, было продано более 5 миллионов копий. Альбом стал самым быстро продаваемым рок альбомом в истории Soundscan. Так же было продано 7.1 миллиона синглов. Первый (   Читать дальше...   )Список альбомов:
+2006 - Daughtry
+2009 - Leave This Town
+2011 - Break the SpellЖанр: Alternative, Modern RockПродолжительность: 05:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EEF725117B4C9B0CFFAE24E46EA0254406388C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201947   (790982) от 27.01.2018
 
 Dream Wife - Dream Wife (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop, Dream Pop>
@@ -668,33 +695,6 @@ Placebo - Meds (2006) Limited Edition CD+DVD [FLAC|Lossless|image + .cue] <Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87C52C2725365E6A4F207D4897B0120784686DFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273776   (798696) от 04.01.2019
-
-The Cranberries - Greatest  Hits Platinum Collection (2000) Unofficial edition [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798696.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Promises
-2 Linger
-3 Animal Instinct
-4 Ode To My Family(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1EE3C1DFF4B599F4A85D9BF394F92899ED37C67
 ```
 
 

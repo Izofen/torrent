@@ -1,3 +1,30 @@
+###  Публикация: 1127776   (731130) от 22.04.2017
+
+VA - Весенний хит-парад на радио Шансон выпуск № 4 (2017) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_731130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Олеся Атланова - В Мире Грез 4:25
+002. Валерий Лукашевский - Я Не Касался Губ Твоих 3:31
+003. Сергей Трунов - Старый Дом 3:28
+004. Владимир Ворон - Пой Моя Гитара 3:32(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE9B48B007E9FC902724DED70155D2034813EBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127798   (731131) от 22.04.2017
 
 VA - German Top 50 Official Dance Charts 21.04. (2017) [MP3|320 Kbps] <Pop, Dance>
@@ -668,39 +695,6 @@ VA - Deep Atributes: Deep House Compilation (2016) [MP3|320 кб/с] <Deep House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:628E6B3870CB02FA3837DCFBB260C53F91EA3C43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 324335   (732124) от 16.04.2011
-
-VA - Super Хитовый from AGR (2011) [MP3|320 kbps]<Pop, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_732124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dash Berlin Feat. Emma Hewitt - Disarm Yourself (Club Mix)
-02. Jasper Forks - Alone (Radio Edit)
-03. Bobina & Betsie Larkin - You Belong To Me
-04. Dj Kopernik - Confusionland 2011
-05. Nitrous Oxide Feat. Aneym - Far Away (Club Mix Edit)
-06. Moonbeam Feat. Avis Vox - We Are In Words (Ashley Wallbridge Vocal Remix)
-07. Fontan - Мне Бы Сейчас Полетать
-08. Deportrance - Sunset In Dubai (Original Mix)
-09. Peter Luts Feat. Jerique - Cant Fight This Feeling (Radio Edit)
-10. Haris C - Time To Say Goodbye (Sly One Vs. Jurrane Remix)(   Читать дальше...   )Жанр: Pop, Club, DanceПродолжительность: 06:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F1DB4474EA68511A7B99732E168DAC67824115
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1006375   (829207) от 11.04.2016
+
+Richard Davis - Details (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honest with You (6:46)
+02. The Truth (6:52)
+03. Empty (7:16)
+04. World Disappears (6:35)(   Читать дальше...   )Жанр: Deep House, MinimalПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9CC5BB5604635C6AE7EBDF04F27035B8AF98BF5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006392   (829209) от 11.04.2016
 
 Richard Davis - Safety (2002) [FLAC|Lossless|tracks + .cue] <Deep House, Minimal>
@@ -666,33 +693,6 @@ Phillip Sollmann | Efdemin - Discography 24 Releases (2005-2019) Curle Recording
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AC80CC99A4D03D118EF7B66DB052992340A8501
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380814   (831363) от 04.05.2020
-
-VA - Summer Deephouse Megamix 2020 (2020) [MP3|320 Kbps] <House, Deep House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Summer Deephouse Megamix 2020 Pt. 1 1:15:12
-02. DJ Mix - Summer Deephouse Megamix 2020 Pt. 2 1:18:13
-03. Ben Delay - Something Special (Extended Mix) 4:49
-04. Carlisle - On Your Skin (Original Club Mix) 3:37(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive, Electronic, DanceПродолжительность: 09:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9DFDACB21F14A8FCDE66B38CB9507F94998C33
 ```
 
 

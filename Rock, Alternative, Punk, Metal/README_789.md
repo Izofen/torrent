@@ -1,3 +1,327 @@
+###  Публикация: 1313252   (527918) от 07.07.2019
+
+Ночные Снайперы - Невыносимая легкость бытия (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527918.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Разбуди меня
+2. Нелюбовь
+3. Раскаленные
+4. Грустные люди(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:786710A26DC43E2B14646AA8B37CFDBF53D4BAD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052410   (527951) от 14.09.2016
+
+Alcatrazz - The Ultimate Fortress Rock Set (2016) 5CD Box Set [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_527951.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - No Parole From Rock 'N' Roll (1983)
+CD2 - Live Sentence (1984)
+CD3 - Disturbing The Peace (1985)
+CD4 - Dangerous Games (1986)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 05:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB03FE49C585F3B8B6B8D59A28682D0A880B1351
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 368768   (528049) от 28.07.2011
+
+VA - 100 Rock'n'Roll Hits (1992) 4 CD, Box Set [FLAC|Lossless]<Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528049.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+Продолжительность 01:01:11
+
+01. Heinz - Just Like Eddie 			(02:51)(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 04:07:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052476   (528073) от 14.09.2016
+
+Tainted Nation - On The Outside (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Live And Die (3:16)
+ 02.Defiance (3:28)
+ 03.Fight (3:48)
+ 04.Barriers (3:24)(   Читать дальше...   )Жанр: Hard Rock, Melodic Heavy MetalПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC50ED1A4BB04464CF9E2D5395CAB4B9F95157B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052385   (528080) от 14.09.2016
+
+Lanfear - The Code Inherited (2016) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Delusionist
+02. The Opaque Hourglass
+03. Evidence Based Ignorance
+04. The Code Inherited(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9F99248EA26AA0AEB7DBCEC18F404B347D2D1EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052331   (528138) от 14.09.2016
+
+Ines - The Flow (1999) [FLAC|Lossless|image + .cue]<Neo-Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel the River's Dance 4:51
+02. The River and Me 4:17
+03. In a Space Made of Blue 4:43
+04. Flow I 1:20(   Читать дальше...   )Жанр: Neo-Progressive RockПродолжительность: 00:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7C19D7942AFC2512FB6543BAB2F5F300B3E660
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052383   (528187) от 14.09.2016
+
+Gloryful - End Of The Night (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Dawn of the Raven King
+02. This Means War
+03. The Glorriors
+04. Heart of Evil(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A875CBD052C05F76F857763F4BF7823F0315C1C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052387   (528191) от 14.09.2016
+
+Serious Black - Mirrorworld (2016) Limited Edition [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breaking the Surface
+02. As Long as I'm Alive
+03. Castor Skies
+04. Heartbroken Soul(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5D63452000544E87724DA9D553ACF85C4ED7E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052402   (528245) от 14.09.2016
+
+Zаrра - Disрuеstоs Раrа Аtасаr (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tropas Del Bien Y Del Mal
+02. Yo Quiero Mas
+03. Un Peregrino Soy
+04. Corazon Electrico(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED14C660DC9766395542F27BA3E0A39B8EF9088
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052417   (528246) от 14.09.2016
+
+А Тоrturеd Sоul - Оn Тhis Еvil Night (2016) [FLAC|Lossless|image + .cue] <Heavy Metal, Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On This Evil Night
+02. Crimson
+03. Black Dragon
+04. Dreams(   Читать дальше...   )Жанр: Heavy Metal, Dark MetalПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5ADD8E0F8A5BA86B01D7A1412EF1D4D349356F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313073   (528283) от 07.07.2019
+
+Masters of Reality - Welcome To The Western Lodge (1999) [FLAC|Lossless|tracks + .cue] <Space Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Shit (2:57)
+ 02. Moriah (3:34)
+ 03. The Great Spelunker (3:11)
+ 04. Time To Burn (2:36)(   Читать дальше...   )Жанр: Space Rock, Psychedelic RockПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9601205DDA4782C7BED61F5382F601F96285C5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313007   (528286) от 07.07.2019
+
+Heir Apparent - The View from Below (2018) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man in the Sky (5:35)
+02. The Door (5:50)
+03. Here We Aren't (5:44)
+04. Synthetic Lies (4:59)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2828A2785F5DEF8E63FAA33B749D81C224107E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313035   (528288) от 07.07.2019
 
 Bornholm - March for Glory and Revenge (2009) [FLAC|Lossless|image + .cue] <Black Metal>
@@ -371,330 +695,6 @@ Face The Legacy - Ashes on the Ground (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1592942F5923C70631BC4421DE83BC1C493DD2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558498   (528798) от 22.06.2022
-
-Nordicwinter - Le dernier adieu (2021) [FLAC|Lossless|WEB-DL|tracks] <Depressive Black metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le corbillard (7:57)
-02. La Nuit (5:38)
-03. Adieu (5:16)
-04. Je n’ai plus que les os (7:17)(   Читать дальше...   )Жанр: Depressive Black metalПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066ED20F00D3C2ED15460281FD61816A0CF9729D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351202   (528951) от 06.07.2019
-
-The Raconteurs - 3 альбома (2006, 2008, 2019) [FLAC|Lossless|image + .cue|tracks+.cue]<Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528951.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Raconteurs - американская супер-группа из старых знакомых - Джека Уайта (Jack White) (The White Stripes), Джека Лоуренса (Jack Lawrence) (The Greenhornes), Патрика Килера (Patrick Keeler) (The Greenhornes), Брендана Бенсона (Brendan Benson) . Несмотря на численное меньшинство, музыка The Raconteurs само собой перевешивает в сторону White Stripes. История группы (   Читать дальше...   )Список альбомов:
-2006 - Broken Boy Soldiers
-2008 - Consolers Of The Lonely
-2019 - Help Us StrangerЖанр: Alternative rockПродолжительность: 02:10:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D9ECE351558492D5EC99AB2217F3E4257A5341A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050434   (528953) от 06.07.2019
-
-Bachman-Turner Overdrive - 20 альбомов, 1 Box Set (1973 - 2016) 29 CD [FLAC|Lossless|image + .cue] <Hard Rock, Cassic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_528953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bachman-Turner Overdrive - канадская группа, образованная в 1972 году в городе Виннипег. Инициатором создания этой группы был бывший участник The Guess Who - Randy Bachman (Рэнди Бэкмен, в другом варианте - Бахман).
-Bachman покинул The Guess Who на вершине её популярности, как раз после их самого успешного альбома "American Woman", видимо надоело всегда (   Читать дальше...   )Список альбомов:
-1973 Bachman-Turner Overdrive
-1973 Bachman-Turner Overdrive II
-1974 Not Fragile(   Читать дальше...   )Жанр: Hard Rock, Cassic RockПродолжительность: 22:47:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E074F93674A77884554A5B9DD406A1230A2288F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052034   (529000) от 13.09.2016
-
-Nick Cave & The Bad Seeds - Skeleton Tree (2016) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus Alone
-02. Rings Of Saturn
-03. Girl In Amber
-04. Magneto(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE30F634626647BA3DA012D5AFEB807EE3BF1C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312889   (529162) от 06.07.2019
-
-Turilli / Lione Rhapsody - Zero Gravity (Rebirth and Evolution) (2019) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phoenix Rising
-02. D.N.A. (Demon and Angel) (feat. Elize Ryd of Amaranthe)
-03. Zero Gravity
-04. Fast Radio Burst(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB6B0815874A651176C88511481DF4F5753E549
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312835   (529211) от 06.07.2019
-
-The Wallflowers - Collected: 1996-2005 (2009) Interscope Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Headlight (5:17)
- 02. 6th Avenue Heartache (5:40)
- 03. Three Marlenas (5:00)
- 04. The Difference (3:51)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861268723D9E996A057D71D90E0EC495C479A74C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052038   (529273) от 13.09.2016
-
-Circus Of Power - Circus Of Power (1988) Japan [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Motor
-02.White Trash Queen
-03.Call Of The Wild
-04.Needles(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E02F3CFF48C3253450955537058A5B76372A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927151   (529459) от 12.08.2015
-
-Grateful Dead - 20 Albums (1965-1989)The Golden Road Box Set+Beyond Description Box Set /2001-2004, Rhino/[FLAC|image+.cue]<Rock, Folk Rock, Blues Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foolish Heart
-02. Just A Little Light
-03. Built To Last
-04. Blow Away(   Читать дальше...   )Жанр: Rock, Folk Rock, Blues Rock, Psychedelic RockПродолжительность: 30:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1115BDEDFCA5A81020B35FC1B17249CCD4045E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156042   (529473) от 05.08.2017
-
-Clawfinger - Save Our Souls (2017) Single [MP3|320 кб/с]<Alternative, Nu-Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529473.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clawfinger неожиданно вышли из затишья и презентовали новую песню — «Save Our Souls».
-Группа прекратила свою деятельность в августе 2013 года, а с момента выхода их последнего альбома «Life Will Kill You» прошло 10 лет.
-Песня «Save Our Souls» затрагивает злободневные вопросы политики в современных реалиях. В ней есть ясные слова против неонационалистического правительства (   Читать дальше...   )01. Save Our SoulsЖанр: Alternative, Nu-Metal, RapcoreПродолжительность: 00:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71147D967F0E5F03FB3A3B65FF9ECCAC7622D67D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915156   (529624) от 12.08.2015
-
-Liorinkarmic - 6 альбомов (2014-2015) [MP3|320 кб/с]<Post-rock, Experimental, Minimal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The lost forgotten girl [05:16]
-02. Tecollection [05:24]
-03. Double black death butterfly [03:52]
-04. Jealous of the kind and lovely [02:49]Жанр: Post-rock, Experimental, MinimalПродолжительность: 03:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C139AC2D887F600A8C82960FE87409FEEA3C412
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925030   (529725) от 12.08.2015
-
-The Animal In Me - Words and Actions (2015) [MP3|320 кб/с]<Post-Hardcore, Female & Male Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing Dreams 03:41
-02. So Unbelievable 03:58
-03. Grave Digger 03:15
-04. Who Will Save Us 04:52(   Читать дальше...   )Жанр: Post-Hardcore, Female & Male VocalПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D9B548DD7E37F9B17A36F600144ED5B9019E8A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926915   (529731) от 12.08.2015
-
-Gun - Gun Sight (1969) Remastered /2000, Repertoire/ [FLAC|tracks+.cue]<Hard Rock, Psychedelic Rock, Heavy Psych>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Head in The Clouds 04:41
-02. Drown Yourself in The River 02:56
-03. Angeline 05:36
-04. Dreams And Screams 05:16(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Heavy PsychПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6DA89AD36AED0D34B3DCB0FBFFA3147C22623AD
 ```
 
 

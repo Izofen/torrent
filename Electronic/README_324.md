@@ -1,3 +1,30 @@
+###  Публикация: 1142579   (641065) от 15.06.2017
+
+VA - Champagne Lounge Deep House (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Microwave Monkeys - Twist in My Sobriety - Radio Edit
+02. Mykel Mars - L.A. Nights - Eddy Chrome Marina Del Rey Remix
+03. Klangkubik - Sumbesi
+04. Michael Ruland - Dreamer - Ibiza Dub Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D539D7855285C071C80405B412B06963EE40926
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227901   (641077) от 29.05.2018
 
 VA - Sexy Ibiza Summer - Chillout Beach Cafe Lounge (2018) [MP3|320 Kbps] <Lounge, ChillOut, Downtempo>
@@ -665,33 +692,6 @@ VA - Beach Waves Lounge (Chillout Your Mind) (2018) [MP3|320 Kbps] <Balearic, Do
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A26CF5D7EF0068E1C8BA79B62969F88AA2E1FBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227853   (643143) от 28.05.2018
-
-Junior Bourcier - Mystic Rain (2018) [MP3|320 Kbps] <Piano, Easy Listening>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystic Rain
-02. Butterflies
-03. The Unknown
-04. Love at First Sight(   Читать дальше...   )Жанр: Piano, Easy ListeningПродолжительность: 00:55:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F20B9EA84F5F091AC999C61B768A61CED789E28
 ```
 
 

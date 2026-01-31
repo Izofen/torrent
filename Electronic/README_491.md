@@ -1,3 +1,30 @@
+###  Публикация: 1355501   (983519) от 26.01.2020
+
+Jeff & Jane Hudson - Flesh (1983) Reissue CD, 2000, Daft Records [MP3|320 Kbps] <Electronic, Industrial, Electro, Synth-pop>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_983519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Special World (4:41)
+02. 3 x 3 (4:38)
+03. Fat Of The Land (3:36)
+04. Mystery Chant (4:03)(   Читать дальше...   )Жанр: Electronic, Industrial, Electro, Synth-popПродолжительность: 01:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E15D6110ADC7C569E7E2EF86A45602C4F08BCF3B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355378   (983626) от 26.01.2020
 
 VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
@@ -691,33 +718,6 @@ Emancipator - Dusk to Dawn (2013) [MP3|320 кб/с]<Downtempo, Trip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB377DFE1769D60EAC75704A7ADF98E8D15EA23E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354655   (987044) от 23.01.2020
-
-VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Groove - Taken (Root Edit)
-02. Purity Of Soul - Start Me Up (Purity Mix)
-03. French Kiss Lovers - Deep Colour (French Edit)
-04. 6ex - Shaft (Nineteen Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49BA0B9D6534DC2D287F0703962726E40A02139B
 ```
 
 

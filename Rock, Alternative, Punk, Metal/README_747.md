@@ -1,3 +1,324 @@
+###  Публикация: 1405319   (485604) от 29.08.2020
+
+Tony Mitchell - Church Of A Restless Soul (2020) [MP3|320 Kbps] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Church Of A Restless Soul
+02. Living On The Run
+03. In & Out Of Love
+04. The Mighty Fall (ft. Danny Vaughn)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88788047F4CB32B9ACED49A058F49B2BD5691061
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404999   (485723) от 29.08.2020
+
+Volatile Ways - Condemned to Life, Burdened to Death (2020) [MP3|320 Kbps] <Beatdown Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485723.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Plead (1:33)
+2. Natural Selection (feat. Alex Malevolence) (3:38)
+3. Burdened (1:23)
+4. To Death (2:36)(   Читать дальше...   )Жанр: Beatdown HardcoreПродолжительность: 00:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D993EB9312DAEEE4B93135CAA222CB13C36D45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405272   (485725) от 29.08.2020
+
+Ramos - My Many Sides (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Today Is The Day (feat. Joe Retta) (04:59)
+02. Unbroken (feat. Terry Ilous) (05:03)
+03. Blameless Blue (feat. Danny Vaughn) (05:17)
+04. Immortal (feat. Tony Harnell) (05:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798441C68B64047A1CF4306476D3B6D10E90EE3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405161   (485731) от 29.08.2020
+
+The Agonist - Orphans (2019) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In Vertigo
+02.As One We Survive
+03.The Gift of Silence
+04.Blood As My Guide(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7B1D8C242BF0B309F70DDA9FD3FD9335510CFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159353   (485805) от 19.08.2017
+
+Наив - Я - панк-рокер и алкоголик (2017) Single [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485805.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я - панк-рокер и алкоголикЖанр: Punk RockПродолжительность: 00:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A8991F0330B39C4033EB5347B1C874608F6637
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405156   (485814) от 29.08.2020
+
+Radiant Knife - The Body (2020) [MP3|320 Kbps] <Sludge Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485814.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. P.M.A [00:04:29]
+2. Time [00:03:34]
+3. G.T.F.O [00:02:55]
+4. The Beast [00:04:16](   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F384D7373382D06958FE9CCFA1562191E638C60
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405060   (485816) от 29.08.2020
+
+Willie Nile - New York At Night (2020) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New York Is Rockin' (03:40)
+02. The Backstreet Slide (03:51)
+03. Doors Of Paradise (04:06)
+04. Lost and Lonely World (04:05)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F41C957419568E4EC9621E39FF53B8A562A3DB63
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404990   (485821) от 29.08.2020
+
+Pinghost - Palingenesis (2020) EP [MP3|320 Kbps] <Progressive Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Checkmate (4:36)
+02. Doom (4:26)
+03. Komplett Am Arsch (3:37)
+04. Palingenesis (3:33)(   Читать дальше...   )Жанр: Progressive Metalcore, Post-HardcoreПродолжительность: 00:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C60C421502EF5CA068012CBAF65D9537BAE5A8A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405262   (485826) от 29.08.2020
+
+Nuclear Warfare - Lobotomy (2020) [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485826.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lobotomy [00:03:24]
+2. Bombshell Disease [00:03:24]
+3. Gladiator [00:07:34]
+4. Fuck Face [00:04:19](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E3295CDD31977E009057B1730DA3CFCFB368D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405297   (485828) от 29.08.2020
+
+Poema Arcanus - Stardust Solitude (2020) [MP3|320 Kbps] <Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485828.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stardust Solitude [00:09:14]
+2. Orphans [00:05:30]
+3. Haven [00:06:34]
+4. The Lighthouse Keeper [00:06:49](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39E8D8C1976FFB5919DE4F12C165505F70F38A1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405179   (485831) от 29.08.2020
+
+Babirusa - Humanoid (2020) [MP3|320 Kbps] <Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 343 [00:02:24]
+02 Desolation System [00:02:50]
+03 Humanoid [00:04:19]
+04 Catatonia [00:03:44](   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BBF8C15942A91CF908BD1ECDB472035D2B7AE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405157   (485833) от 29.08.2020
+
+Akiavel - V (2020) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Witness
+02.Rest In Reject
+03.Addicted to You Father
+04.Huntington(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0C5A25FBF813F02FF64FA952DEFEF245512844A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405178   (485836) от 29.08.2020
 
 Fleshcrawl - Into the Catacombs of Flesh (2019) [APE|Lossless|image + .cue] <Death Metal>
@@ -369,330 +690,6 @@ Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B177749E1DC389BA99C764547C88C68BA3919787
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159050   (486255) от 19.08.2017
-
-Сryоniс Теmple - In Thу Роwer (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Sleep Of The Innocent (Instrumental) (1:23)
- 02 - When Hell Freezes Over (5:41)
- 03 - In Thy Power (5:38)
- 04 - Travellers In Time (5:15)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3463918F922C90EDD7D66548F46264A78FC11848
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820551   (486259) от 15.09.2014
-
-Motorjesus - 4 Альбома + 1 EP (2004-2014) [MP3|320 кб/с]<Hard Rock, Heavy Metal, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486259.jpg" />
-</div>
-
-
-###  Подробнее
-
-2004 - Dirty Pounding Gasoline
-2006 - Deathrider
-2009 - 100.000 Volt Survivor (EP)
-2010 - Wheels Of Purgatory(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Stoner RockПродолжительность: 03:46:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7708BA4C8345640F62ADB7F8398CBBF417A7EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319167   (486342) от 10.08.2019
-
-Slipknot - We Are Not Your Kind (2019) [FLAC|Lossless|tracks + .cue] <Heavy Metal, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insert Coin (01:40)
-02. Unsainted (04:21)
-03. Birth of the Cruel (04:36)
-04. Death Because of Death (01:20)(   Читать дальше...   )Жанр: Heavy Metal, Nu MetalПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D0F780070E5BBC4EDE7B7524FA1E77F294DE904
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566042   (486390) от 27.07.2022
-
-Riptide - Masters of the Apocalypse (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Smoke (00:04:51)
-02 - Masters of the Apocalypse (00:06:33)
-03 - Fatal Retribution (00:06:04)
-04 - Cage of Regret (00:07:25)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:227A69C18C11C23262D6556101FA9495E11AA835
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566047   (486394) от 27.07.2022
-
-Sacral Night - Le Diademe D'argent (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Les miroirs de la lune (00:03:59)
-02 - Par dela les lueurs sepulcrales (00:01:26)
-03 - L'archange aux yeux de feu (00:03:57)
-04 - Conquerant des lumieres (00:04:21)(   Читать дальше...   )Жанр: Heavy, Death MetalПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B5CA94BDE7446071D4DF3FDE43DF456AA629126
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566183   (486515) от 27.07.2022
-
-Noctambulist - The Barren Form (2021) [FLAC 2.0|24/96|tracks|WEB-DL] <Death metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exordium (2:08)
-02. Depletion (8:27)
-03. Infinitesimal (11:23)
-04. Engulfed (8:05)(   Читать дальше...   )Жанр: Death metalПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3AD3BD78634779F9CB4D7BD1A760232CA5AF44
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566128   (486516) от 27.07.2022
-
-Snake Eyes - No One Left To Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Masque Of The Red Death (00:05:05)
-02 - No One Left To Die (00:05:10)
-03 - Roi De Rats (00:04:00)
-04 - Underdog (00:03:59)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575E3DD88EEFDE840E5C284D277BF78B1400D0F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566158   (486517) от 27.07.2022
-
-Templars - King of Metal (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro (00:01:37)
-02 - War (00:04:16)
-03 - Nothing to Lost (00:04:03)
-04 - Pagan Gods (00:03:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438354DC3277ECF40CCA3CF1EB820445451EFDB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565982   (486522) от 27.07.2022
-
-Necrophagia - Ready For Death (1986) Reissued, Xtreem Music, 2021 [APE|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Funeral
-02. Lust of the Naked Dead
-03. Hemorage
-04. Ready for Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F9C5A60411F729B05FA22016B801B1E2724AFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543938   (486662) от 09.09.2012
-
-Gotye - 7 релизов (2003-2012) [MP3|320 кб/с]<Indie/Electronic/Downtempo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Indie/Electronic/Downtempo •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:066D6C33D848DF2322818794E3FE8AB701C8753D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319210   (486683) от 10.08.2019
-
-Tool - Fear Inoculum (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fear Inoculum (10:21)Жанр: RockПродолжительность: 00:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240332A91DC21D79BAC31E9F8F09EF0CA2D6258E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545220   (486767) от 09.09.2012
-
-VA - Re-Machined. A Tribute To Deep Purple's Machine Head (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_486767.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Carlos Santana & Jacoby Shaddix - Smoke On The Water (5:05)
-2. Chickenfoot - Highway Star (7:05)
-3. Glenn Hughes & Chad Smith - Maybe I'm A Leo (4:59)
-4. Black Label Society - Pictures Of Home (3:30)
-5. Kings Of Chaos - Never Before (4:05)
-6. The Flaming Lips - Smoke On The Water (4:25)
-7. Jimmy Barnes & Joe Bonamassa - Lazy (8:53)
-8. Iron Maiden - Space Truckin' (3:27)
-9. Metallica - When A Blind Man Cries (4:37)
-10. Glenn Hughes, Steve Vai, Chad Smith - Highway StarЖанр: Hard RockПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3752451426B2DC016CFB6AD389B4445BEA94F71F
 ```
 
 

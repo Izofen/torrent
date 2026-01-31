@@ -1,3 +1,326 @@
+###  Публикация: 1370660   (895229) от 28.03.2020
+
+Ocean Grove - Flip Phone Fantasy (2020) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SUPERSTAR (03:05)
+02. NEO (01:54)
+03. SENSE AGAIN (03:04)
+04. SUNNY (03:00)(   Читать дальше...   )Жанр: Nu Metal, Rapcore, HardcoreПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9EEC4F9CB93133F4E4DC416EA4C854A7A641A73
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370698   (895239) от 28.03.2020
+
+Sven Larsson - 2 альбома (2010-2012) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2010 - Sunlight And Shadow
+2012 - Bad Mad ManЖанр: Westcoast, AORПродолжительность: 01:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628A5DA37079FCB5B3493960E186C2A2894E377A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370820   (895248) от 28.03.2020
+
+Richard Page - Peculiar Life (2010) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Page - A Kiss On The Wind 04:08
+02. Richard Page - You Are Mine 03:53
+03. Richard Page - Worldly Things 04:13
+04. Richard Page - Peculiar Life 03:24(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97DC5B08E5AB34DEA3AB8C47889E1A0828574F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493455   (895253) от 03.09.2021
+
+Bernie Marsden - Kings (2021) [FLAC|Lossless|tracks + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t You Lie To Me (Hudson Whittaker) 03:00
+02. Key To The Highway (William Lee Conley Broonzy, Charles Segar) 03:57
+03. Help Me Through The Day (Leon Russell) 04:24
+04. I’ll Play The Blues For You (Jerry Beach) 04:11(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314E4CB505D02188EFC01C3564921E257FB77EFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493433   (895261) от 03.09.2021
+
+Iron Maiden - Senjutsu (2021) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Senjutsu (примерный перевод - «Стратегия и тактика») - грядущий семнадцатый студийный альбом британской хеви-метал группы Iron Maiden, выход которого запланирован на 3 сентября 2021 года. Как и предыдущий альбом, The Book of Souls, это двойной альбом группы.
+Line Up:
+Steve Harris - Bass, Keyboards (British Lion, ex-Gypsy's Kiss, ex-Smiler)
+Dave Murray - Guitars (ex-Hear (   Читать дальше...   )CD - 1:
+01. Senjutsu
+02. Stratego
+03. The Writing On The Wall(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:21:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:951C762F0294718A8AA36901807B0EF729BF22F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370709   (895272) от 28.03.2020
+
+Атлас - Есенни цветя (2004) [FLAC|Lossless|image + .cue] <Rock, Pop Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Капка от любов
+02. Най-кратката нощ
+03.Един щастлив празен ден
+04.Есенни цветя(   Читать дальше...   )Жанр: Rock, Pop Rock, New WaveПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C234346834F88AB29BA0D52C45D717ACC7811F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493469   (895276) от 03.09.2021
+
+Barry Goudreau's Engine Room - The Road (2021) [FLAC|Lossless|image + .cue] <AOR, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Lead The Way
+02. Las Vegas
+03. Word To The Wise
+04. Old No. 7(   Читать дальше...   )Жанр: AOR, Blues Rock, Hard RockПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8917F6F5B40D3D1B4794CDDEBCCA87353AC8E77D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370861   (895277) от 28.03.2020
+
+808hardcore - Любое название меняет смысл / LIVE (2019-2020) [MP3|~245 Kbps (V0)/320] <Experimental Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:00:31]
+02. Ты - страх (LIVE) [00:03:51]
+03. Закон (LIVE) [00:03:39]
+04. Плеть (LIVE) [00:03:48](   Читать дальше...   )Жанр: Experimental HardcoreПродолжительность: 2 CD, 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D506176CF3AFD9182EECA4EDAB77A8871CDE7EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 158244   (895300) от 05.03.2016
+
+Van Halen - 5150 (1986) [APE|lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993222   (895377) от 05.03.2016
+
+Myrath - Legacy (2016) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jasmin (1:48)
+02. Believer (4:32)
+03. Get Your Freedom Back (3:57)
+04. Nobody's Lives (5:43)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70ED3F8B4D2F688D954614747AE75B60E08B08AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493572   (895407) от 03.09.2021
+
+Imagine Dragons - Mercury: Act 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Life
+02. Lonely
+03. Wrecked
+04. Monday(   Читать дальше...   )Жанр: Indie Rock, ElectronicПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:437CCD08301E6AB2FA3BC60622D1FADA5A222E9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992925   (895530) от 05.03.2016
+
+Tonight Alive - Limitless (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Alt.Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_895530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Be Free
+02. Oxygen
+03. Human Interaction
+04. Drive(   Читать дальше...   )Тип издания: АльбомЖанр: Pop Rock, Alt.Rock, Female VocalПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39CD8C826F7AE3A822AFE5B120792DBBF7080674
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493457   (895567) от 03.09.2021
 
 BlackOwl - Fly Away (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -372,330 +695,6 @@ Bridgeville - Aftershock (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81A9F4B540E0786B02CF64CE75AB6DED9981087F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101036   (896402) от 06.02.2017
-
-Cirrus Bay - Places Unseen (2016) [FLAC|Lossless|image + .cue] <Symphonic Prog, Prog Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Places Unseen (6:53)
-02. First Departure (11:06)
-03. Songs Unheard (3:47)
-04. Dimension 7 (5:12)(   Читать дальше...   )Жанр: Symphonic Prog, Prog Rock, Neo-ProgПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7492C523D8A9F61881EFA5058530592A381BF044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101029   (896408) от 06.02.2017
-
-Boneyard Dog - Bluesbound Train (2016) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atchafayalla (0:57)
-02. Mother Lode (4:23)
-03. Kingdom of Your Company (4:39)
-04. Lonely Road (4:41)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13392597D7B751DDF7958C1E45F42973941929BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638264   (896464) от 02.04.2013
-
-Foreigner - 4 (1981) [FLAC 2.0 24/96|tracks (WEB-DL)]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Life [03:50
- 02. Juke Box Hero [04:19]
- 03. Break It Up [04:13]
- 04. Waiting For A Girl Like You [04:52](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46AC0440BF1C21B66C10B5331FF3F2895ED02FCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370490   (896672) от 27.03.2020
-
-VA - Rock Legends (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896672.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ZZ Top - Gimme All Your Lovin'
-2. Chicago - Feelin' Stronger Every Day
-3. The Stooges - I Wanna Be Your Dog
-4. Grateful Dead - China Cat Sunflower(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard RockПродолжительность: 01:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746427000F0EFB336C60E1D4C95B2A5CE9AD7289
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370406   (896743) от 27.03.2020
-
-Baxter Dury - The Night Chancers (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Alternative Rock, Indie Pop, Funk, Soul>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Not Your Dog (2:58)
- 02. Slumlord (3:24)
- 03. Saliva Hog (3:06)
- 04. Samurai (3:23)(   Читать дальше...   )Жанр: Alternative Rock, Indie Pop, Funk, SoulПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC7177A979436DB8616487CE6B16165F39FC2169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638176   (896749) от 02.04.2013
-
-Dan McCafferty - Two Original Albums(2CD) (2002) [WavPack|Lossless]<Blues Rock, Pop Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Honky Tonk Downstairs [03:43]
-02. Cinnamon Girl [04:21]
-03. The Great Pretender [03:04]
-04. Boots Of Spanish Leather [04:59](   Читать дальше...   )Жанр: Blues Rock, Pop Rock, Hard RockПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370422   (896832) от 27.03.2020
-
-VA - Soft Rock Classics (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Parr – St. Elmo’s Fire (Man In Motion)
-02. Foreigner – Waiting for a Girl Like You
-03. Bread – Make It with You
-04. Andrew Gold – Thank You for Being a Friend (Outtake)(   Читать дальше...   )Жанр: RockПродолжительность: 01:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F905E72B2B556F68648690F918072D190671BCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370443   (896855) от 27.03.2020
-
-Рви Меха - Оркестр! - Сильная & независимая (2020) [MP3|320 Kbps] <Ska, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_896855.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мы с тобою
-2. Ипотека & алименты
-3. Валера
-4. Сильная & независимая(   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17934C181D9B498249F32E49085F21E04D8EF9FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992832   (896866) от 04.03.2016
-
-Звери - Страха нет (2016) [MP3|320 кб/с] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896866.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Муха (02:28)
-02. Страха нет (03:52)
-03. Элвис (03:41)
-04. Настя (03:31)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D798410A002E232D31507BDCD83D179E2136D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370448   (896906) от 27.03.2020
-
-Nine Inch Nails - Ghosts V: Together (2020) [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896906.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Letting Go While Holding On
-2. Together
-3. OUT IN THE OPEN
-4. With Faith(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F9BDF2F69B8381567BBB9CACD95FD9658E5647
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370502   (896909) от 27.03.2020
-
-Wine Red - Сквозь горизонты (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сквозь километры [03:53]
-02. Манифест [02:59]
-03. Ночной полёт [03:48]
-04. Дорогая [03:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95695D14D3245841CA51AC7426724D7AE03990BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370446   (896918) от 27.03.2020
-
-Nine Inch Nails - Ghosts VI: Locusts (2020) [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_896918.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Cursed Clock
-2. Around Every Corner
-3. The Worriment Waltz
-4. Run Like Hell(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97AC13274E2A347DBB3859129EE91F84644E63F5
 ```
 
 

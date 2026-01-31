@@ -1,3 +1,30 @@
+###  Публикация: 1204247   (784956) от 05.02.2018
+
+Headphone Science (Forbid, HdSc) - Discography 15 Releases (2003-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Leftfield, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_784956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Here? (03:19)
+ 02. Nowhere (04:50)
+ 03. Let It Go (03:44)
+ 04. 401 (03:21)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/ExperimentalПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB109725B8955CAFFA8FE78642B22A910213877
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204254   (784975) от 05.02.2018
 
 VA - Best Of Progressive House Vol.01 (2018) [MP3|320 Kbps] <House>
@@ -668,33 +695,6 @@ VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B3A8F5761965524C1CF4F62652C564ED0E264E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204049   (785431) от 04.02.2018
-
-VA - Timeless in Space: Universe Lounge Journey (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raphael Van Sandern - Timeless in Space - Space Edit Mix
-02. Substrata - Theresa - Electronic Dance Pop Mix
-03. Crimson Stone - What Is the Meaning - Electronip Space Night Mix
-04. Roleystone - Galactica - Space Club Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B929FB28766E4021AF2E3C455E9AFC28803CB12A
 ```
 
 

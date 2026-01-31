@@ -1,3 +1,36 @@
+###  Публикация: 526018   (598719) от 23.07.2012
+
+Агата Кристи - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock / Gothic Rock / Post-Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Два корабля
+02.Гномы-каннибалы
+03.Позорная звезда
+04.Танго с дельтапланом
+05.Как на войне
+06.Нисхождение
+07.Сказочная тайга
+08.Ураган
+09.Трансильвания
+10.Сирота(   Читать дальше...   )Жанр: Rock / Gothic Rock / Post-PunkПродолжительность: 02:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906B80B206E0806E67179E91FFD417F888C157AC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 356431   (599024) от 28.06.2011
 
 VA - В ритме танца (2011) [MP3|128 kbps]<Pop>
@@ -695,33 +728,6 @@ VA - Beatport Top 100 House June (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF567E0D5A2363A25C6793F8DA37B8E1DE8BA43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149332   (601040) от 10.07.2017
-
-VA - White And Gold: Popular Dance Hit (2017) [MP3|320 Kbps] <Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601040.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Burak Yeter - Tuesday (feat. Danelle Sandoval) 04:02
-002. Bruno Mars - 24K Magic 03:47
-003. Alle Farben & Janieck - Little Hollywood 03:05
-004. Maroon 5 - Don't Wanna Know 03:35(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 08:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8076C03071F7BE046C9A76F463C7BC6409B30D35
 ```
 
 

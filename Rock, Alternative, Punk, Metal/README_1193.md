@@ -1,3 +1,351 @@
+###  Публикация: 1353467   (991969) от 18.01.2020
+
+Jack Green - The Party At The End Of The World (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 100% Alive [2:49]
+ 02 - How Proud You Must Feel [4:00]
+ 03 - The Party at the End of the World [3:45]
+ 04 - Heaven Can Wait [3:28](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48A47C3443721BE8E1BFDFE987BAA45CCDFC6F80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353441   (991979) от 18.01.2020
+
+Scandal - Warrior (1984) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The warrior [4:03]
+ 02 - Beat of the heart [4:46]
+ 03 - Hands tied [4:08]
+ 04 - Less than half [4:18](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D3F28374F4F66F88E2AA957E0B53A7221B0446F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353670   (991987) от 18.01.2020
+
+Grin - Translucent Blades (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Shoegaze, Stoner Rock, Post Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helix (5:23)
+02. Orbital Grace (3:19)
+03. Translucent Blades (5:46)
+04. Husk (4:04)(   Читать дальше...   )Производство: Crazysane RecordsЖанр: Doom Metal, Shoegaze, Stoner Rock, Post Metal, Sludge Metal, Grunge, D'n'BПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6ECEEA9C368BBE0F206ECDF427B06B8E38FFB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353570   (991988) от 18.01.2020
+
+Angellore - La Litanie Des Cendres (2015) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Shrine of Clouds (13:47)
+02. Still Glowing Ashes (10:26)
+03. Twilight's Embrace (9:28)
+04. Inertia (6:28)(   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9C150ECE251D29BEB4851DF9E4704E657A6A5C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607571   (992177) от 27.01.2013
+
+Bombay Bicycle Club - Flaws (2010) [MP3|320 кб/с]<Инди-рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992177.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rinse Me Down (3:10)
+2. Dust On The Ground (4:23)
+3. Fairytale Lullaby (2:20)
+4. Ivy & Gold (2:56)
+5. Flaws (2:57)
+6. Swansea (4:14)
+7. Leaving Blues (2:56)
+8. Word By Word (2:38)
+9. Many Ways (2:42)
+10. My God (2:28)Жанр: Инди-рокПродолжительность: 00:30:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A377E5B2AA19B5ABC8ACD20C6D075BABC18FE36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609236   (992297) от 27.01.2013
+
+The Stranglers - Giants (2012) [MP3|320 кб/с]<Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992297.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01 - Another Camden Afternoon - 4:03
+02 - Freedom Is Insane - 6:09
+03 - Giants - 3:42
+04 - Lowlands - 3:14
+05 - Boom Boom - 3:22
+06 - My Fickle Resolve - 5:32
+07 - Time Was Once On My Side - 3:31
+08 - Mercury Rising - 3:37
+09 - Adios (Tango) - 4:39(   Читать дальше...   )Жанр: PunkПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEDCBF32A4A5C801001693FBECED7FA91CBF6D59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609174   (992370) от 27.01.2013
+
+Emergency Gate - You (2013) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992370.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mindfuck
+ 2. Force United
+ 3. Moshpit
+ 4. Feeling Inside
+ 5. Liar's Truth
+ 6. Breathless
+ 7. Revolution
+ 8. You
+ 9. Lean on Words
+ 10. Regret(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66927673D44D0434712674EA858AA7803419CEBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609634   (992373) от 27.01.2013
+
+Wave Machines - Pollen (2013) [MP3|320 кб/с]<Alternative Rock, Indie-Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting Birds (3:40)
+02. Ill Fit (3:13)
+03. I Hold Loneliness (2:57)
+04. Blood Will Roll (5:41)
+05. Home (4:37)
+06. Pollen (4:31)
+07. Unwound (4:56)
+08. Walk Before I Run (5:20)
+09. Gale (3:51)
+10. Sitting In A Chair, Blinking (5:46)Жанр: Alternative Rock, Indie-Rock, ElectronicПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BDD529A79D504376BF7AB76B371D56A7F9AAEDE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353227   (992570) от 17.01.2020
+
+Ozzy Osbourne (feat. Elton John) - Ordinary Man (2020) Single [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ordinary Man (feat. Elton John) (5:02)Жанр: Hard Rock, Heavy MetalПродолжительность: 00:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1608817C6791B1453C198AF03F8D4F991B256F69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353225   (992695) от 17.01.2020
+
+Yes - Topographic Drama: Live Across America (2017) Live [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992695.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Machine Messiah (Live) [11:17]
+ 2 - White Car (Live) [1:25]
+ 3 - Does It Really Happen? (Live) [7:22]
+ 4 - Into The Lens (Live) [9:03](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF1F321D8C49FE1D4C96D660D55910A01C60421
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608812   (992720) от 26.01.2013
+
+Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992720.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: GrungeПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0897975EEBBDA2B7E3805921ECA219447B8C545B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608836   (992803) от 26.01.2013
+
+Unknown Mortal Orchestra - II (2013) [MP3|320 кб/с]<Psychedelic, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. From The Sun [04:44]
+2. Swim And Sleep (Like A Shark) [02:45]
+3. So Good At Being In Trouble [03:50]
+4. One At A Time [02:29]
+5. The Opposite Of Afternoon [05:25]
+6. No Need For A Leader [05:45]
+7. Monki [07:19]
+8. Dawn [01:08]
+9. Faded In The Morning [04:22]
+10. Secret Xtians [02:43]Жанр: Psychedelic, IndieПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C2636B739F3214365C50A8B1A061894766D22CF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608748   (992818) от 26.01.2013
 
 Stratovarius - Unbreakable (2013) EP [MP3|320 кб/с]<Melodic Power Metal>
@@ -407,391 +755,6 @@ Pink Cream 69 - Ceremonial (2013) [MP3|320 кб/с]<Hard Rock/Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8C6FFD8DB7183976C40F97D93A077CEE2841A7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608404   (993595) от 25.01.2013
-
-Forgotten Tales - All The Sinners (Japan Edition) (2004) [WavPack|Lossless]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pagan Chronicles Part I - The Hideaway [01:53]
-02. Pagan Chronicles Part Ii - Lady Of The Forest [05:01]
-03. Pagan Chronicles Part Iii - All The Sinners [04:03]
-04. Pagan Chronicles Part Iv - Wind Oh Wind [06:09]
-05. Pagan Chronicles Part V - The Message [04:45]
-06. Pagan Chronicles Part Vi - March For Freedom [04:25]
-07. Three Wishes [08:49]
-08. Fairytales [05:12]
-09. Magic Fountain (Bonus Track) [06:42]
-10. My Soul [04:30](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 430716   (993616) от 02.01.2012
-
-Sting - Fifteen Healing Bites (2012) сборник [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shape Of My Heart (4:37)
-02. Fragile (3:55)
-03. Fields Of Gold (3:40)
-04. Moon Over Bourbon Street (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608405   (993677) от 25.01.2013
-
-A Loathing Requiem - Psalms of Misanthropy (2010) [WavPack|Lossless]<Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annihilation Induced By The Luminous Firestorm [04:46]
-02. Rapturous Euphoria [03:32]
-03. False Gods Render Death [03:21]
-04. Enhanced Sinister Corruption (F/Matt Brown) [03:16]
-05. Ecliptic Realm [03:07]
-06. And Darkness Was Cast [02:24]
-07. Architect Or Arsonist (F/ Christian Mьenzner) [03:17]
-08. The Carnage Of Infinite Black [03:44]
-09. Purged And Forgotten [03:59]Жанр: Technical Death MetalПродолжительность: 00:31:28
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608334   (993704) от 25.01.2013
-
-Pride Of Lions - The Destiny Stone (2004) Japanese Ed. [MP3|320 кб/с]<Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993704.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Courage To Love Somebody (4:23)
-2. Parallel Lines (4:37)
-3. Back To Camelot (6:07)
-4. Born To Believe In You (4:36)
-5. What Kind Of Fool (5:46)
-6. Man Behind The Mask (5:08)
-7. Light From A Distant Shore (5:48)
-8. Letter To The Future (4:36)
-9. The Destiny Stone (6:09)
-10. Second Hand Life (4:29)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D001FA5DEEBE32444CB8C50B232CA3329C11CD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608262   (993715) от 25.01.2013
-
-Sons Of Aeon - Sons Of Aeon (2013) [MP3|320 кб/с]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faceless (7:41)
-02. Cold Waves (3:48)
-03. Burden (5:30)
-04. Enemy Of The Souls (4:23)
-05. The Centre (03:51)
-06. Havoc & Catharsis (3:52)
-07. Weakness (6:37)
-08. Seeds Of Destruction (3:25)
-09. Wolf Eyes (3:55)
-10. Black Sheep Process (5:45)Жанр: Melodic Death MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7B67299A9E352B57AC198B728B5E0D5F8CC9B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608081   (993994) от 24.01.2013
-
-Евгений Маргулис - Маргулис (2013) /WEB/ [FLAC (tracks)|Lossless]<Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_993994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Надоело(А)
-02. Курить
-03. Неботва
-04. Рок-н-ролл (Памяти Сергея Кавагоэ)
-05. Не надо так
-06. R.le.Kino
-07. Заносит
-08. Война
-09. Ловец
-10. I love u(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:34:05
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607903   (994019) от 24.01.2013
-
-Helloween - Straight Out Of Hell (Limited Edition) (2013) [FLAC|Lossless]<Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nabataea (7:02)
-02. World of War (4:57)
-03. Live Now! (3:11)
-04. Far from the Stars (4:43)
-05. Burning Sun (5:34)
-06. Waiting for the Thunder (3:54)
-07. Hold Me in Your Arms (5:11)
-08. Wanna Be God (2:02)
-09. Straight Out of Hell (4:35)
-10. Asshole (4:10)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:55
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607774   (994142) от 24.01.2013
-
-Jorn - Symphonic (2013) [MP3|320 кб/с]<Symphonic, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Came to Rock
- 02. Rock and Roll Children
- 03. The World I See
- 04. Burn Your Flame
- 05. Man of the Dark
- 06. My Road
- 07. Time to Be King
- 08. Black Morning
- 09. Like Stone in Water
- 10. Vision Eyes(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA7321220742F5E39F7002B5E83044E89D6A945
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607617   (994168) от 24.01.2013
-
-California X - California X (2013) [MP3|320 кб/с]<Sludge Noise Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sucker
- 02. Curse Of The Nightmare
- 03. Pond Rot
- 04. Hot Hed
- 05. Spider X
- 06. Lemmy’s World
- 07. Spirit World
- 08. MummyЖанр: Sludge Noise RockПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF0F4A1D10C51497AC5D480673240591EA84068
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607604   (994219) от 24.01.2013
-
-Proven Decadence - Equilibrium Meltdown (EP) (2012) [MP3|320 кб/с]<Progressive Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (0:52)
-
- 02. Material Dreams (2:28)
-
- 03. Unveiling The Realness (4:27)
-
- 04. For All The Chances That We've Missed (1:36)
-
- 05. Things That Really Matter (3:48)Жанр: Progressive DeathcoreПродолжительность: 00:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6859B6341283640973EDCA3B531661BEE3C0B379
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607313   (994455) от 23.01.2013
-
-Bullet For My Valentine - The Poison (2006) [FLAC|Lossless]<Heavy Metal, Rock, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Intro  	2:21
-02. 		Her Voice Resides 	4:18
-03. 		4 Words (To Choke Upon) 	3:44
-04. 		Tears Don't Fall 	5:48
-05. 		Suffocating Under Words Of Sorrow (What Can I Do) 	3:36
-06. 		Hit The Floor 	3:30
-07. 		All These Things I Hate (Revolve Around Me) 	3:45
-08. 		Room 409 	4:01
-09. 		The Poison 	3:39
-10. 		10 Years Today 	3:56(   Читать дальше...   )Жанр: Heavy Metal, Rock, HardcoreПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607521   (994489) от 23.01.2013
-
-Clockwork Times & Middlename - Sport (2013) [MP3|320 кб/с]<Ska Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_994489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clockwork Times - Вместо... (3:08)
-02. Clockwork Times - Спасибо! (3:35)
-03. Clockwork Times - Мои Привычки (3:10)
-04. Clockwork Times - Internet Boy (2:34)
-05. Clockwork Times - Спорт (2:14)
-06. Middlename - От А До Я (3:06)
-07. Middlename - Моя Жизнь (3:14)
-08. Middlename - Забытый Понедельник (2:52)
-09. Middlename - Что Ты За Птица? (4:18)Жанр: Ska PunkПродолжительность: 00:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6BE4DB399322BD5EC183ACF7B1C849EBF34732
 ```
 
 

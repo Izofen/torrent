@@ -1,3 +1,84 @@
+###  Публикация: 1510395   (791579) от 16.11.2021
+
+Gayle Adams - 2 Albums (1980, 1982) Reissue CD, 1992, Unidisc [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская диско исполнительница и автор песен, родившаяся в Вашингтоне, округ Колумбия. Записала эти два альбома для лейбла Prelude Records, ориентированного на танцы, в начале 1980-х годов. Ее самые известные хиты - "Stretchin' Out" (1980) и "Love Fever" (1982).01. Your Love Is A Live Saver (5:55)
+02. Stretchin' Out (6:11)
+03. The Love Of My Man (3:35)
+04. You Brought It On Yourself (5:27)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 02:15:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01884E899154A88EDB4A59394B5F67793648FFAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201807   (791628) от 26.01.2018
+
+Craig David - The Time Is Now (2018) [MP3|320 Kbps] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic
+02. Heartline
+03. Brand New
+04. Going On(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B05A3A8370AD81B7E4731C436EF72918C088175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274889   (791705) от 09.01.2019
+
+VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
+02. Nico Del Prato - Anymore (Radio Edit) 3:07
+03. Enormous Cats - Ready Or Not (Club Mix) 4:31
+04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510122   (791923) от 15.11.2021
 
 ABBA - Voyage (2021) 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Pop>
@@ -615,87 +696,6 @@ Silver Convention - The Very Best Of (2004) Compilation, 2CD [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C6B3ED3F706A57C44AE683BC90F98C00D1BBAAB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123038   (793314) от 06.04.2017
-
-VA - Айсберг. Дискотека 1-2 (2001) 2CD [MP3|image + .cue|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Hit Mix Awards
-02. Hi-Fi - Почтовый поезд
-03. Гости из будущего - Это сильнее меня (Remix By DJ Шури & Тиша)
-04. Лена Перова - Лети за солнцем (Club Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2527FB34FE77E8D369EDA4014614D788FDA54E7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386627   (793352) от 30.05.2020
-
-Thomas Anders - Alles Anders Collection (2020) 3CD, Limited Edition [FLAC|Lossless|WEB-DL|tracks] <Europop, Schlager, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul (Extended Version) (5:34)
-02. Modern Talking - Just We Two (Mona Lisa) (3:57)
-03. Modern Talking - With a Little Love (3:31)
-04. Modern Talking - One in a Million (3:40)(   Читать дальше...   )Жанр: Europop, Schlager, BalladПродолжительность: 03:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74AF444A5628AD6F07AB6ADF42FE30AA824C68F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386911   (793389) от 30.05.2020
-
-Roberta Flack Featuring Donny Hathaway - Roberta Flack Featuring Donny Hathaway (1979) Reissue CD, 1996, Atlantic [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Heaven Can Wait (4:06)
-02. God Don't Like Ugly (4:38)
-03. You Are My Heaven (4:15)
-04. Disguises (2:26)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3350D0E34B0C321B0EEC92C0EE97B44C0C98BEB0
 ```
 
 

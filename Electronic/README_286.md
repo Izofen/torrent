@@ -1,3 +1,30 @@
+###  Публикация: 1153602   (558081) от 27.07.2017
+
+Luca D'Alberto - Endless (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Balearic, Modern Classical>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wait For Me (4:07)
+ 02. Blessed Messenger (2:51)
+ 03. Yellow Moon (5:43)
+ 04. Endless (26th May 2016) (4:28)(   Читать дальше...   )Жанр: Electronic, Balearic, Modern ClassicalПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2459D9E9D912FC4B370ABAE529201C462A76661A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153595   (558083) от 27.07.2017
 
 Troels Hammer - The/Human/Tree (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo, Chillout>
@@ -668,33 +695,6 @@ VA - I Love Chill: Finest Ambient Lounge and Chillout Music (2016) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CB6A2DDCA491A9E65F3179D1AA67A42F10CC5C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045335   (559831) от 23.08.2016
-
-VA - Ibiza Beach Lounge And Chill House (Summer 2016) (2016) [MP3|320 Kbps] <Lounge, Chill House>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hamilton Bates - Last Flight 03:57
-02. Paris Barlow - Magic in Your Eyes 05:38
-03. Elysium Mind - Sunset Party 04:09
-04. Bob Lane DJ - Sensual Seduction 04:51(   Читать дальше...   )Жанр: Lounge, Chill HouseПродолжительность: 01:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F5E91C76F9912E88092FA7076ACC881D5F4544
 ```
 
 

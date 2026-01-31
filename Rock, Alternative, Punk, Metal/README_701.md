@@ -160,6 +160,39 @@ magnet:?xt=urn:btih:7E26A7BB41C9C30808510A545B7DAB71A7C9E259
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145056   (430695) от 11.10.2009
+
+Наутилус Помпилиус - Лучшее собрание Хитов (2009) [MP3|160 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_430695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Последнее письмо
+02. Прогулки по воде
+03. Тутанхамон
+04. Шар цвета хаки
+05. Я хочу быть с тобой
+06. На берегу безымянной реки
+07. Дыхание
+08. Скованные одной цепью
+09. Крылья
+10. Одинокая птица(   Читать дальше...   )Жанр: RockПродолжительность: 06:34:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165824   (430807) от 14.09.2017
 
 Atlantis - Atlantis (1972) Reissue, 2008, Universal [MP3|320 Kbps] <Krautrock, Prog Rock>
@@ -681,33 +714,6 @@ Corrupt-R - Awakening (2020) [MP3|320 Kbps] <Modern Metal, Djent Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:952132ACA3B73256FC2732C2BF1C85A7B30D1D4F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410670   (431984) от 23.09.2020
-
-En Minor - When The Cold Truth Has Worn Its Miserable Welcome Out (2020) [FLAC|Lossless|image + .cue] <Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mausoleums (4:57)
-02. Blue (5:07)
-03. On The Floor (5:22)
-04. Dead Can't Dance (2:38)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D696C86D98E2836264872167D0CADC214EA76C
 ```
 
 

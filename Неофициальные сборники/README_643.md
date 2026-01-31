@@ -1,3 +1,30 @@
+###  Публикация: 1356268   (980543) от 29.01.2020
+
+VA - Heaven With You: Chill House Mixtape (2020) [MP3|320 Kbps] <Chill, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980543.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jack Burton - Beacon Of Light
+002. James Corquita - Distancia Paralela
+003. The Ambientalist - Cast A Spell
+004. Lounge Pilots - Any Lounge Color(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC20FA9C894B497BB8C7D3A9B1FA375B0E519428
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356153   (980555) от 29.01.2020
 
 VA - Beatport Progressive House Pack 03 (2020) [MP3|320 Kbps] <Progressive House>
@@ -692,33 +719,6 @@ VA - Huge Uplifting Trance Midi & Spire (2016) [MP3|320 кб/с] <Trance, Uplift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F63F5A7272E5F91D1C70A5D62E66CB8DD6E9C5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972587   (981998) от 06.01.2016
-
-VA - Secret Massive Presets Control (2016) [MP3|212-320 кб/с] <Club, Bigroom, Future House, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fabelhaft Ft. Carmen & Camille - Bringing Me Back (Radio Edit) 03:31
-02. Dustin Mccoi - What You Want (Dayne S Remix) 06:21
-03. Eric Prydz - Opus (Original Mix) 09:03
-04. Dave Dean Feat. Kate Maerz - Will U Ever (Club Mix) 04:22(   Читать дальше...   )Жанр: Club, Bigroom, Future House, ProgressiveПродолжительность: 07:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30147BA4EAC7C93E65E148F9C9DC4E814B03D53
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1354583   (986980) от 23.01.2020
+
+VA - 100 Hits Winter (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986980.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Lorenzo - Damdamdeo
+02. Dadju - Compliqué
+03. Black M - Mon beau-frère(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95471D2CFAD0D7B6A5EFD73F2B6432FDDF46EF01
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354582   (986981) от 23.01.2020
+
+VA - Rock'N'Roll HitMix  Superhits Non-Stop (1999) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_986981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' David - Golden Age Of Rock 'N' Roll (0:56)
+02. Little Richard - Lucille (0:54)
+03. Rick Nelson - Poor Little Fool (1:12)
+04. Pat Boone - Speedy Gonzales (1:26)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, OldiesПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E4CA9822A917C169FA3BAA5DA524D331F58DE16
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354807   (987028) от 23.01.2020
+
+На-На - Вся жизнь - игра (1998) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дождик [03:19]
+02. Любимая [03:35]
+03. Игра [03:19]
+04. В первый раз [03:41](   Читать дальше...   )Жанр: PopПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF8DC933D3D10D56C7079CDE876D98A3AC10E61
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971452   (987320) от 02.01.2016
 
 VA - 50 EDM Legends vol. 2 (2015) [MP3|320 кб/с] <Dance, Electronic>
@@ -647,93 +728,6 @@ magnet:?xt=urn:btih:72ECD7E0B368F7609B9BC044F64321E45FAEE1D1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FA97A4824E7E04C4BC8A3B7058421ACD62FD4A8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608673   (991285) от 28.01.2013
-
-Johnny Burnette - The Ballads Of (2010) [MP3|320 кб/с]<pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamin'
-02. Clown Shoes
-03. My Special Angel
-04. Please Help Me I'm Falling
-05. Shattered Dreams
-06. I'll Never Love Again
-07. Love Me
-08. You're Sixteen
-09. I Just Found Out
-10. Settin' The Woods On Fire(   Читать дальше...   )Жанр: popПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685E395360AA4774FA28C3F5FCFE2E2CF0F18C70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353118   (992685) от 17.01.2020
-
-VA - Pop Giganten NDW (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992685.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Nena - 99 Red Balloons
-02. Markus - Ich will Spass
-03. Joachim Witt - Goldener Reiter(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C5C196CE983030AFB0AA8976371B13EC8E1FB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353204   (992687) от 17.01.2020
-
-Morgan Myles - Therapy (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire
-02. Mad at Myself
-03. Sanctuary
-04. Up To You(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A5AB34331AABC12D73E97F6ED5C68B6993B9FE
 ```
 
 

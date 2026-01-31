@@ -1,3 +1,30 @@
+###  Публикация: 1484362   (1006109) от 19.07.2021
+
+Profondita - Eternal (2021) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Psy-Trance>
+
+>>Electronic
+>>Psychedelic, psytrance, fullon (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Profondita - Psychedelic Jungle (08:05)
+ 02. Egorythmia - Eternal (Profondita Remix) (10:12)
+ 03. Astral Waves - La Danse Des Elfes (Profondita Remix) (08:20)
+ 04. Profondita - Zen (10:57)(   Читать дальше...   )Жанр: Progressive Trance, Psy-TranceПродолжительность: 01:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41C2DB039536751F663B181FC20AEEA2F35806B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484368   (1006159) от 19.07.2021
 
 Tomoroh Hidari - The Reinterpretation of Dreams (小さな夢達 remixed) (2021) Mahorka [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Ambient, Breakcore>
@@ -660,33 +687,6 @@ Bloko Ono - Kev’s Dead (2021) Detroit Underground [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:089E855D8EB924BC8923A7C59FB81B1DE25C34E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281445   (1006971) от 12.07.2021
-
-Lucrecia Dalt - Discography 19 Releases (2011-2021) Human Ear Music, Pruna Recordings [FLAC|Lossless|tracks+.cue, tracks] <Experimental, Minimal, Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nu (02:18)
- 02. Cao (01:49)
- 03. Gt (03:10)
- 04. Four Voices (01:47)(   Читать дальше...   )Тип издания: CD, WebЖанр: Experimental, Minimal, Ambient •Продолжительность: 08:58:51 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C131861BF60020F6A08A46B1446A3A3B43EED6
 ```
 
 

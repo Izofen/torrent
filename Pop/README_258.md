@@ -1,3 +1,84 @@
+###  Публикация: 1129842   (720547) от 29.04.2017
+
+Siberian Heat & Elen Cora - Brilliants: Best Of US (2015) LP, Compilation [OGG|312-322 Kbps] <Disco, Italo-Disco, Synth-pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720547.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Siberian Heat - Pick Up The Phone (ZYX Summer Mix) 7:20
+A2. Siberian Heat - Don't Stop The Music (Special Zyx Maxi Version) 7:53
+A3. Siberian Heat - Shadows (ZYX Long Mix) 6:34
+B4. Siberian Heat - Magic Blue Eyes (Maxi Version) 8:56(   Читать дальше...   )Жанр: Disco, Italo-Disco, Synth-popПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A377995A8259DB3EACCBEE30E11C890C7E7160
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531772   (720646) от 16.02.2022
+
+Julio Iglesias - Recital At The Festival ''The Golden Orpheus '73'' (1973) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now As Twenty Years Since
+02. Like The Poplar Along The Road
+03. Nina
+04. El Pajaro Chogui(   Читать дальше...   )Жанр: PopПродолжительность: 00:21:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E35A6BC4B9C2E282754B1BFEF4CABB588CB36625
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129508   (720776) от 29.04.2017
+
+VA - Spring Break Party 2017 Powered By Xtreme Sound (2017) [MP3|320 Kbps] <Deutscher Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Wackel – Die Nacht von Freitag auf Montag (Party Mix)[2:58]
+02. Lorenz Buffel – Johnny Dapp (Harris & Ford Remix Edit)[3:54]
+03. Tobee – 3 Promille (Doch da geht noch was)[2:59]
+04. Mia Julia – Hey Mr. DJ[3:36](   Читать дальше...   )Жанр: Deutscher PopПродолжительность: 02:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ABAFD16FF19411151F014CD55FED8FD59CA79AD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129756   (720802) от 29.04.2017
 
 Didi Robinson - Du Warst Mein Schoenster Traum (1992) [FLAC|Lossless|image + .cue] <Pop>
@@ -609,85 +690,6 @@ magnet:?xt=urn:btih:03CD0963C13072213499F70DDCE2F15CAFB002F9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2F74EC1652078A95AD5640252074D2911967B7F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104482   (723978) от 14.02.2022
-
-Cerrone - 32 Albums (1976-2021) Collection [MP3|320 Kbps] <Electronic, Funk-Soul, House, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jean-Marc Cerrone, больше известный как Cerrone, родился в 1952 году в Париже. Вместе с Giorgio Moroder, внес наибольший вклад в развитие европейского диско, практически, они стали родоначальниками ранней house-музыки.Список альбомов:
-1976 - Love In C Minor
-1977 - Cerrone's Paradise
-1977 - Supernature(   Читать дальше...   )Жанр: Electronic, Funk-Soul, House, DiscoПродолжительность: 01:00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE4702E3ED67BBE0E8623D42FC998651DD599EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128990   (724228) от 27.04.2017
-
-Nu Virgos (ВИА Гра) - Stop! Stop! Stop! (single) (2003) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop! Stop! Stop! (Original Version) (3:48)
-02. Stop! Stop! Stop! (Upbeat Version) (3:48)Жанр: PopПродолжительность: 00:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AEDB788CAED5B7CA433285B263B660EB3332AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129189   (724362) от 27.04.2017
-
-Fun Fun - 2 Albums (1984, 1987) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девичий Italo-Disco дуэт "Fun Fun"  был образован в 1983 году, и в его первоначальный состав вошли две симпатичные девушки-модели: Франческа Мерола (Francesca Merola) и Роберта Сервелли (Roberta Servelli), которую позже заменила Элена (Elena). Однако реальными же вокалистками проекта были Antonelle Pepe, Angela Parisi и популярная певица Ivana Spagna, позднее (   Читать дальше...   )01. Give Me Your Love (5:32)
-02. Sing Another Song (5:06)
-03. Tell Me (4:57)
-04. Living In Japan (5:18)(   Читать дальше...   )Жанр: Electronic, Italo-DiscoПродолжительность: 01:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3795E5F28A7FAD6C7E19047AC121A90B1192515
 ```
 
 

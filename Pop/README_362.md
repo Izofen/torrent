@@ -1,3 +1,84 @@
+###  Публикация: 1614342   (1038831) от 21.02.2023
+
+VA - Trending Top Hits Now! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lil Uzi Vert - Just Wanna Rock (2:03)
+02. Lizzo - Special (feat. SZA) (2:54)
+03. Ed Sheeran - Celestial (3:29)
+04. Bruno Mars - After Last Night (feat. Thundercat & Bootsy Collins) (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 02:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE6422C6E6ACC4219A33BB74166AA2CE491C68A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440260   (1039151) от 16.01.2021
+
+Sha-na-na - Rama Lama Ding Dong (1993) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Prayer (2:47)
+02. Get A Job (2:48)
+03. Little Arrows (2:42)
+04. Alley Oop (2:43)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297235F10042A39EA5A4B8B76FFB2F4A43212260
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440253   (1039160) от 16.01.2021
+
+The Archies - Sugar Sugar (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Rockabilly, Bubblegum>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Sugar (2:49)
+02. Jingle Jangle (2:45)
+03. Bang-Shang-a-Lang (2:35)
+04. Sugar and Spice (2:06)(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, BubblegumПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E50846AD8497AB7FC2A902961CF860AA7588B29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439776   (1039271) от 15.01.2021
 
 Systems In Blue - Blue Universe (The 4th Album) (2020) [FLAC|Lossless|image + .cue] <Euro-Disco>
@@ -614,87 +695,6 @@ VA - The Best 80s Love Songs Album In The World...Ever! (2022) [MP3|320 Kbps] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15B36E77BF18191F123638B1D22C909132301963
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611810   (1040754) от 13.02.2023
-
-VA - The Best 80s Album In The World...Ever! (2022) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simple Minds - Don't You (Forget About Me) (Remastered 2001)
-02. Roxy Music - More Than This (Remastered_1999)
-03. Nik Kershaw - Wouldn't It Be Good
-04. Grace Jones - Slave To The Rhythm(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 04:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FFCFB58C6AF88C23611A89EC0E393D775C6A4D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611532   (1040755) от 13.02.2023
-
-VA - Romantic Collection. Aria (2000) [OGG Vorbis|480 Kbps] <Electronic, Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebecca Lucker "Aria"–	Arianna
-02. Sarah Brightman–	Anytime, Anywhere
-03. Karen Cummigs–	Ave Maria
-04. Yuri Ogawa–	L'Amour Est Un Oiseau Rebelle "Carmen"(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 01:19:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A616A034807CC3C8FD293224A578267F6FBE120
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611724   (1040761) от 13.02.2023
-
-VA - ФРАНЦУЗСКИЙ ПОДАРОК The Best Of France Nostalgique Part 2 (2005) [OGG Vorbis|480 Kbps] <Pop, Chanson>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hervé Roy–	Emmanuelle
-02. Francis Lai, Nicole Croisille–	Un Homme Et Une Femme
-03. Nicoletta–	Mamy Blue
-04. Mireille Mathieu–	Une Histoire D’amour(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75174D7F46102E44729E10D448E6E56D64602A84
 ```
 
 

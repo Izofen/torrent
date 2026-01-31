@@ -1,3 +1,30 @@
+###  Публикация: 1241786   (518416) от 19.08.2018
+
+Trazer - Twilighting (2018) [MP3|320 Kbps] <Ambient, Chillout, Piano>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone 08:58
+02. Questions without Answers 08:04
+03. Short and Sweet 03:14
+04. Gentleness 04:06(   Читать дальше...   )Жанр: Ambient, Chillout, PianoПродолжительность: 01:54:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F210461188EF9343ED6D2624A6B9F383298DD42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241821   (518419) от 19.08.2018
 
 VA - Deep House Summer (2018) [MP3|320 Kbps] <Deep House>
@@ -668,33 +695,6 @@ magnet:?xt=urn:btih:57AC7578398AF786E9EC3766B00BBDDCE47388E4
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33370F1CDEF171A7C4A0A62A19DE7E3672D1F76D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241185   (521151) от 16.08.2018
-
-Lubomyr Melnyk - Piano Music (2015) [FLAC|Lossless|tracks + .cue] <Modern Classical>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521151.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Illorium Nr. 03A 11:08
-2 Vocalize Nr. 27A 16:15
-3 Meditation Nr. 01C 7:09
-4 (Silence) 0:08(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C83F2FE8C7AE4A7038BA36C94BB012E55BC20AD
 ```
 
 

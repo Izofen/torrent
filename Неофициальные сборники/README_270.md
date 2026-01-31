@@ -1,3 +1,30 @@
+###  Публикация: 1322109   (452486) от 27.08.2019
+
+VA - не Громкие новинки недели 32 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Al Fakher - Хулиганка (2:16)
+2.AMPATI - Замолчи (3:22)
+3.Andro - 7:00 (3:01)
+4.Andro - Болен Твоей Улыбкой (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DF813E6EC20EE66645FE85F853516E25595FB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322003   (452490) от 27.08.2019
 
 VA - Back End Roads: Indie Rock Collection (2019) [MP3|320 Kbps] <Indie, Rock>
@@ -731,39 +758,6 @@ VA - Absolute Club Autumn Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6651FFCE8B391BA98924155BC00DD41B842411E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550480   (453624) от 24.09.2012
-
-VA - Dance Миссия Осени. Зарубежный (2012) [MP3|256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Laurentiu Duta feat. Andreea Banica - Shining heart
-002. Jay Sean - Im All Yours
-003. Miralva - Venga A La Noche (Radio Edit)
-004. Serenity & Spyer Feat. Tevin - Club Rockin Beats (Ti-Mo Remix Remix Edit)
-005. Professor Green feat. Emeli Sande - Read All About It (Cahill Explicit Radio Edit)
-006. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
-007. Mick Lion - International Love (Smithee Mix)
-008. Shogun - Lotus (Original mix edit)
-009. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia
-010. Jennifer Lopez feat. Flo Rida - Goin In(   Читать дальше...   )Жанр: DanceПродолжительность: 05:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA0FBFA85A973AF90636E764B51B9D29331F70D
 ```
 
 

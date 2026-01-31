@@ -1,3 +1,30 @@
+###  Публикация: 1113265   (838083) от 11.03.2017
+
+Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] <Alternative, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Love Song (03:05)
+ 02. Personal Jesus (04:07)
+ 03. mOBSCENE (03:27)
+ 04. The Fight Song (02:57)(   Читать дальше...   )Жанр: Alternative, IndustrialПродолжительность: 01:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B21EC414216574C8D361513363A583B2880EE196
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112517   (838407) от 11.03.2017
 
 Regina Spektor - Soviet Kitsch (2004) [FLAC|Lossless|image + .cue] <Art Rock, Alternative Rock, Folk Rock, Punk>
@@ -675,33 +702,6 @@ Gengahr - Sanctuary (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E18CF54973DC005E72B8DF34CD8F7A1AEF7DF234
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498011   (857805) от 26.09.2021
-
-Sex Pistols - 76-77 (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Problems (Chris Spedding Session / 1976) [00:04:11]
-02. Pretty Vacant (Chris Spedding Session / 1976) [00:03:38]
-03. No Feelings (Take 1 / Chris Spedding Session / 1976) [00:02:52]
-04. No Feelings (Take 2 / Chris Spedding Session / 1976) [00:02:54](   Читать дальше...   )Жанр: Punk RockПродолжительность: 4 CD, 04:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4BED6C9AC30EFF44B33D20F50CE87648679DC6
 ```
 
 

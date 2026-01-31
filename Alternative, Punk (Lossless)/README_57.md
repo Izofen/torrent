@@ -1,3 +1,30 @@
+###  Публикация: 1015751   (772662) от 12.05.2016
+
+Maroon 5 - Songs About Jane (2002) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harder to Breathe (2:53)
+02. This Love (3:26)
+03. Shiver (2:59)
+04. She Will Be Loved (4:17)(   Читать дальше...   )Жанр: Alternative Rock, Soft Rock, Pop RockПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:385A3D4D9224B7EF384C05E6AFF132F86EE62146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278253   (772838) от 24.01.2019
 
 Bring Me The Horizon - amo (2019) RCA Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Metalcore>
@@ -668,33 +695,6 @@ Guster - Look Alive (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:658353CC1CCEF5E3934F96139D4C70B67E7FE6C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277704   (785031) от 21.01.2019
-
-Powerman 5000 - New Wave (2017) [FLAC|Lossless|tracks + .cue] <Industrial Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Footsteps and Voices (3:21)
- 02. Hostage (2:44)
- 03. Sid Vicious in a Dress (3:39)
- 04. David Fucking Bowie (3:13)(   Читать дальше...   )Жанр: Industrial Rock, AlternativeПродолжительность: 00:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA58C710FCD9F7860FB683D54A224EB7BF6AF3D3
 ```
 
 

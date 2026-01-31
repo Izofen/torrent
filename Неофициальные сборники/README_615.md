@@ -1,3 +1,30 @@
+###  Публикация: 987562   (925835) от 17.02.2016
+
+VA - Rock Blues: Gold Classic (2016) [MP3|320 кб/с] <Blues Rock, Country>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925835.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Danny Bryant - Razor Sharp (5:10)
+2. Tadeusz Nalepa - Musze dzis ciebie zabic (6:09)
+3. Eric McFadden - Til The Medicine Takes (2:19)
+4. Jared James Nichols - Get Down (2:18)(   Читать дальше...   )Жанр: Blues Rock, CountryПродолжительность: 06:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51C681BE3311F2219FED7638CEBF185BD830EE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987324   (925899) от 17.02.2016
 
 VA - I Put A Spell On You — Mesmerising Jazz (2014) [MP3|320 кб/с] <Jazz,Jazz Fusion,Smooth Jazz, Vocal Jazz>
@@ -665,33 +692,6 @@ VA - Top Dance Record. №7 (2016) [MP3|207-320 kbps] <Club, Dance, Remix>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50A0BD2DA1CAC95418AA71F0751737084C0708C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094939   (927682) от 19.01.2017
-
-VA - 80s Smash Healing Hits (2017) [MP3|320 Kbps] <New Wave, Dance-Rock, Blue-Eyed Soul, Post-Disco, Funk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_927682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenny Loggins - Danger Zone 03:36
-02. Eurythmics - Here Comes The Rain Again (Remastered Version) 04:54
-03. Herbie Hancock - Rockit 05:25
-04. David Bowie - Modern Love (Single Version; 2014 Remastered Version) 03:56(   Читать дальше...   )Жанр: New Wave, Dance-Rock, Blue-Eyed Soul, Post-Disco, FunkПродолжительность: 02:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1DCFDE739E9E2FEFED7066861AC55E98CE2319E
 ```
 
 

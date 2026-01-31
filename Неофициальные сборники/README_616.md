@@ -1,3 +1,30 @@
+###  Публикация: 1094939   (927682) от 19.01.2017
+
+VA - 80s Smash Healing Hits (2017) [MP3|320 Kbps] <New Wave, Dance-Rock, Blue-Eyed Soul, Post-Disco, Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Loggins - Danger Zone 03:36
+02. Eurythmics - Here Comes The Rain Again (Remastered Version) 04:54
+03. Herbie Hancock - Rockit 05:25
+04. David Bowie - Modern Love (Single Version; 2014 Remastered Version) 03:56(   Читать дальше...   )Жанр: New Wave, Dance-Rock, Blue-Eyed Soul, Post-Disco, FunkПродолжительность: 02:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1DCFDE739E9E2FEFED7066861AC55E98CE2319E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987006   (927702) от 16.02.2016
 
 VA - Lounge Barroom Music (2016) [MP3|320 kbps] <Lounge, Downtempo, Relax, Chillout>
@@ -670,33 +697,6 @@ VA - Caderas Great Day Hits (2017) [MP3|320 Kbps] <Mambo, Salsa, Dembow, World, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:612889BB15B491A981429F5D959DF05024B96496
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094374   (929290) от 18.01.2017
-
-VA - Звездная вечеринка. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_929290.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дмитрий Первушин - Поиск 3:00
-002. Adam Levine - Go Now 3:53
-003. Кай Метов & Татьяна Буланова - Прощай Любовь Моя 3:43
-004. Milen - Желанная 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68E41BDB0F3AFEBEC677F1960FF0D7DBC128B801
 ```
 
 

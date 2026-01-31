@@ -1,3 +1,30 @@
+###  Публикация: 1134528   (689225) от 15.05.2017
+
+VA - Bass Killer 12 (2017) [MP3|320 Kbps] <Dubstep, Trap, Electro House, Big Room>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack & Jay Karama — Diamonds (Extended Mix) (3:21)
+02. Bassnectar & ATLiens — Interlock (3:39)
+03. Borgeous vs. Riggi & Piros — Feel So Good (3:23)
+04. CID feat. Conrad Sewell — Secrets (BROHUG Remix) (3:11)(   Читать дальше...   )Жанр: Dubstep, Trap, Electro House, Big Room
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDDDE86554E9CBEB93CB640FA6551CC3565CEC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221893   (689310) от 27.04.2018
 
 VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
@@ -677,33 +704,6 @@ VA - Весна Танцевальная (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69773E143C0952BC9A06776F5B02065F1E23F4E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133945   (691304) от 14.05.2017
-
-VA - Vocal Deep House Vol.28 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691304.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren & Garibay Feat. Olaf Blackwood - I Need You 3:27
-002. Ilkay Sencan - Back To Life 3:11
-003. Gregor Salto Feat. Chappell - Your Friend (Nando Fortunato Edit) 6:35
-004. Rag'n'bone Man - Human (Andrey Exx & Sharapov Remix) 4:59(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D30B86092E46CB6DB1F09C48A4DF07CD68C322CE
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1126887   (764481) от 19.04.2017
+
+VA - Euro Dance Party (2017) [MP3|320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764481.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Set Fire To The Rain (Bourg's Escape In Euro Remix)
+002. Artik & Asti Feat. Run DMC - Половина (V.Bashmakov Eurodance Rmx)
+003. Lacuna - Celebrate The Summer (DJ Walkman Remix)
+004. Aruba Ice & Greysound - Hold Me (Andry Makarov Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 07:15:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50263400880E639F6C373E5DEE388B43569B4B36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126839   (764491) от 19.04.2017
 
 VA - Club Dance Dependence vol. 6 (2017) [MP3|320 Kbps] <Club, Dance, Remix>
@@ -665,33 +692,6 @@ VA - I Love Music! - Nu Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F591BF5094FE34A8353EE83F59EBBAE25C8C5ADE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126573   (765369) от 18.04.2017
-
-VA - I Love Music! - Alternative Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3 Pill Morning - Escape 3:59
-002. AFI - She Speaks The Language 4:01
-003. Acceptance - 73 5:00
-004. Acronycal - Lost Without A Name 4:23(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 06:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE6F34A554FAB9F90987D5DEEECF537464AD1E8
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1020878   (743810) от 27.05.2016
+
+VA - Party Hits Summer Editions (3 CD) (2016) [MP3|241-320 кб/с] <Disco, Club, Bigroom, Nu-Funk, Grime, Big Beat>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743810.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 House:
+01. Air-Lines - New Game (Original Mix) 07:46
+02. Arno Cost & Norman Doray - Apocalypse 2014 (Kryder & Tom Staar Remix) 05:42
+03. Audien & Matthew Koma - Serotonin (Original Mix) 05:08(   Читать дальше...   )Жанр: Disco, Club, Bigroom, Nu-Funk, Grime, Big BeatПродолжительность: 12:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6452D34D41B18EBD8B27CBF7804F17552F64CBFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020871   (743875) от 27.05.2016
 
 VA - Hello Summer - Opening Party (2016) [MP3|320 кб/с] <Dancehall, Moombahton, Reggaeton, UK Garage>
@@ -662,33 +689,6 @@ VA - Deep House: Soulful Party (2019) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:533DB6BB7A75DFE07F8D99520CE5706049CE6C16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020061   (745303) от 26.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 11 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pussycat - Georgie ( 1976 )
-02. Julian - Straight To My Heart ( 1986 )
-03. Righeira - Vamos A La Playa ( 1983 )
-04. Scotch - Born To Kill ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2154B47D8B4829DE108A94EA1F414FF6615190C2
 ```
 
 

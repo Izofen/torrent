@@ -1,3 +1,30 @@
+###  Публикация: 1059490   (461253) от 04.10.2016
+
+VA - Sense Of Renewal: Club House Party (2016) [MP3|320 Kbps] <Club, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461253.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wildones Ft David Julien - You Dancing (Original Mix)
+002. Zito & Alray - Amazing (Zito s HU On The Rocks Mix)
+003. Chris Largo feat. Orry Jackson - Close To Mine (Extended mix)
+004. Alan-Lee - Give It Up (Clubmix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 10:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0338D5148628DF088EC0190321BE1DF66328EDFE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059479   (461255) от 04.10.2016
 
 VA - Танцевальный Экспресс (2016) [MP3|320 Kbps] <Dance, Club>
@@ -680,33 +707,6 @@ VA - Chill in Chill Out Sensual Lounge Music for Relaxation (2015) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3AE43EDAC3D431E4D35D2E22BA2598013611773
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941143   (463011) от 27.09.2015
-
-VA - Ultimate Sexy Beats Vol.3 (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Vantigo - Run From Love (Original Mix)
- 02. Stereo Flight - Mirage (Original Mix)
- 03. Irvim - Pistol Star (Original Mix)
- 04. Dmpr - Dark Kitty (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CFEA2126C87F3C7FB55A68B01EFE10DF885A44
 ```
 
 

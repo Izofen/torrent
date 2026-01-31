@@ -1,3 +1,30 @@
+###  Публикация: 1532937   (708742) от 22.02.2022
+
+VA - Pop Remix NNM (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_708742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lana Del Rey, Imanbek - Summertime (4:25)
+002. Faithless, Suli Breaks, Jazzie B., MEDUZA - Innadadance (Edit) (6:07)
+003. Bee Gees, SG Lewis - More Than A Woman - SG's Paradise Edit (5:57)
+004. Halsey - I am not a woman, I'm a god - Hot Chip Remix (4:48)(   Читать дальше...   )Жанр: PopПродолжительность: 05:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9830F9C9EEB2AF8AD30EA9B1C17E0FDC90EFA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131256   (708776) от 05.05.2017
 
 VA - Любимая музыка. Дискотека Хит FM выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
@@ -665,33 +692,6 @@ VA - Высшая лига. Весна. Часть № 6 (2017) [MP3|256 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFEC65221C6CC8CBE8A8F68D266F1AFA749B55D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401423   (709270) от 10.08.2020
-
-VA - Pop Dance Foam Party (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709270.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tomorrow - Fairy Of Shampoo
-002. Kristofer Astroem - Ode To...
-003. Daniel O'donnell - Crystal Chandeliers
-004. Isaac Dunbar - Boy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2ADA57ACF7D2BC9C0F6FC99D6AF1797F9472915
 ```
 
 

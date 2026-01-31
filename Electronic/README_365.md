@@ -1,3 +1,30 @@
+###  Публикация: 1023133   (726733) от 04.06.2016
+
+VA - Bar & Lounge Music Vol. 2 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polished Chrome - Laid-Back
+02. Luis Hermandez - Havanna Nights
+03. 1605 - Complicated
+04. Glint - Elegant Gentry(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0BCB163E569DBD30EC29E034C51AB8DF2AB361
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976393   (727314) от 25.04.2017
 
 Between Interval - Discography 5 Albums (2005-2017) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Space>
@@ -664,33 +691,6 @@ VA - Chillout Lounge Summer Dreams (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E5EEA256A8DC6D11BE351DEFE8B51C7E066A912
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128245   (728893) от 24.04.2017
-
-VA - Femme Fatale (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deeper Sublime & Samiran Saharia - Nelumbo  5:44
-02.  Mystical Plants - Where's The Love  3:46
-03.  Luis Hermandez - Mi Amor  3:37
-04.  MarkOne & Kevin Shawn - Between The Lines  3:39(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FD4A0272F29DC8782FF88CA7D82348D54E1F46
 ```
 
 

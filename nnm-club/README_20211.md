@@ -1,685 +1,672 @@
-###  Публикация: 1276196   (788198) от 16.01.2019
+###  Публикация: 1277341   (785405) от 20.01.2019
 
-VA - Drinks at Sunset, Vol. 3 (2019) [MP3|320 Kbps] <Electro, Downtempo>
+Юлия Нелидова | Дело о сорока разбойниках (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785405.jpg" />
+</div>
+
+
+###  Подробнее
+
+1892 год. Земского врача Ивана Иноземцева направляют в столицу Туркестанского генерал-губернаторства – Ташкент. Но добраться до нового места службы Иноземцеву не удается: его похищает шайка разбойников во главе с коварным басмачом Юлбарсом, приручившим настоящего тигра. По всему краю ходят слухи и легенды о набегах банды Юлбарса. Он жесток и безжалостен, умен и необычайно (   Читать дальше...   )Жанр: Исторические детективыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9729BFF3472584D5F20D3E375CAAE8A4BC64CA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277473   (785406) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (361) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC24EAA8A9D8AFA324FA6AAB72A4CC9511025A4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277470   (785407) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (359) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1EBDB71378A4F26EE2D69B26E9042AD0996DEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277414   (785408) от 20.01.2019
+
+dArtagnan - Seit An Seit (2016) 2CD [MP3|320 Kbps] <Musketier-Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785408.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Seit An Seit
+02. Ehre Wem Ehre Gebuhret
+03. Komm Mit(   Читать дальше...   )Жанр: Musketier-Rock, Folk RockПродолжительность: 01:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B0EA92EE69AFEB7A1620D43A2450D68BB54A6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277478   (785409) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (365) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C569F9C9848FD9DA2523E883EE70C1321CE486
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277475   (785410) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (363) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0D5C0235CB842E1B9C4E327BD1B287D609A9DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277474   (785411) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (362) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56E25C8ABF1BD9C0AD3C9EA1498601416EAC272
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277400   (785412) от 20.01.2019
+
+Rocky Burnette - The Son Of Rock And Roll (1979) LP [MP3|320 Kbps] <Soft Rock, Pop Rock, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tired Of Toein' The Line (3:38)
+02. Angel In Chambray (3:18)
+03. Baby Tonight (3:14)
+04. Fallin' In Love (Bein' Friends) (3:57)(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, RockabillyПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0CC194AF6D5A64C266B0247A65A5AFDED17B26
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277455   (785413) от 20.01.2019
+
+Frank Sinatra, Dean Martin, Sammy Davis Jr. - Eee-O 11: The Best Of The Rat Pack (2001) [FLAC|Lossless|image + .cue] <Jazz, Pop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Sinatra - I'm Gonna Live Till I Die
+02. Dean Martin - Ain't That A Kick In The Head
+03. Sammy Davis Jr. - Too Close For Comfort
+04. Frank Sinatra & Sammy Davis Jr. - Me And My Shadow(   Читать дальше...   )Жанр: Jazz, Pop, SwingПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BAB6F7073510A5C2265E28C3CC0822B8FA2EC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277349   (785414) от 20.01.2019
+
+Жанна Волкова - Таксист (1995) [FLAC|Lossless|image + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А я такая пьяная
+02. Снег
+03. Эй, таксист!
+04. И всё таки я - женщина!(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265EBBBA987168046E84D53478ED741AE7438F7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277424   (785415) от 20.01.2019
+
+VA - Kamsutra Chillout Lounge - Spicy Sensual India Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788198.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lazy Hammock - Speak Of The Mind
-02. Spoq - Scratch
-03. Dub Mars - No Time To Lose
-04. Stuce The Sketch - Resonating Love(   Читать дальше...   )Жанр: Electro, DowntempoПродолжительность: 02:11:15
+01. Banghra Lounge Voices - Kamasutra In Heaven 5:09
+02. Bedroom Buddha - Mumbai Nights (Bar Del Mar Cafe Mix) 5:31
+03. Buddha Vibes - Summer Breeze In India (Goa Beach Extended Mix) 10:12
+04. Kamasutra Girl - Goodbye My Love (Sunset Bangarang Mix) 5:16(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:36:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39E4898F9978E7C637E3EF35AC7F93D20949C705
+magnet:?xt=urn:btih:70FCADED7A561ED181AA0509FF33E0CA4918B0D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203386   (788199) от 02.02.2018
+###  Публикация: 1277356   (785416) от 20.01.2019
 
-VA - My Life In An Insulation Test (2008) electr-ohm [FLAC|Lossless|tracks+.cue] <Dark Ambient, Industrial, IDM, Experimental>
+Цзиндэчжэньский фарфор / Jingdezhen Porcelain (2017) HDTVRip [H.264/720p-LQ]
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788199.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. P.A.L - Salvation (4:21)
-02. dDamage - Iron Ape (3:45)
-03. Sonic Area - Par Amour (3:51)
-04. Uniform - A Second Between What Is And What Was (3:29)(   Читать дальше...   )Жанр: Dark Ambient, Industrial, IDM, ExperimentalПродолжительность: 01:09:29
+Цзиндэчжэнь в провинции Цзянси на севере Китая можно без преувеличения назвать керамической столицей страны. История местного производства фарфора, насчитывает не одну тысячу лет. Гуляя по улицам Цзиндэчжэня, нельзя не заметить дома с отделкой из фаянса, выложенные кусочками керамической плитки переулки и удивительно красивые керамические уличные фонари. Изготавливать (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, история, путешествияРежиссер: Ван БиньПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3152116868544A4ABDAC3B3592AA211D5295B69
+magnet:?xt=urn:btih:C3A718BDECA1171F324B48C38D93537C550DF135
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203595   (788200) от 02.02.2018
+###  Публикация: 1277295   (785417) от 20.01.2019
 
-VA - Elite Driving Trance Anthem (2018) [MP3|320 Kbps] <Uplifting, Vocal, Progressive, Emotional, Melodic>
+VA - Record Super Chart 570 (2019) [MP3|320 Kbps] <House, Club, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788200.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785417.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marc Van Gale - Mumbai Taxi (Original Mix) 4:36
-02. Activeblaze - Last Day 5:47
-03. Maarten De Jong & Katty Heath - Free To Feel Again (Extended Mix) 5:47
-04. Nolans Stenemberg ft. Jennifer Lauren - The Winter (R3dub Remix) 7:35(   Читать дальше...   )Жанр: Uplifting, Vocal, Progressive, Emotional, MelodicПродолжительность: 07:36:08
+01.  Fisher  -  Losing It
+02.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
+03.  Axwell - Nobody Else
+04.  Denis First & Reznikov & Bright Sparks - Shameless(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:47:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:636854DA400720FCFFEDA648ACACEDD3874ADEAA
+magnet:?xt=urn:btih:14D8276C1FB2BA1A5996349BDA9B24C8E7A863BA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203400   (788201) от 02.02.2018
+###  Публикация: 1277411   (785418) от 20.01.2019
 
-Ammouri - Dare To Be Happy (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+Омела - Тайная Тропа (2019) [MP3|320 Kbps] <Folk Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788201.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AFill Your Heart With Love (4:18)
-02. Monsters Of Your Own Creation (4:28)
-03. Starlight-Metal Version (4:08)
-04. Dare To Be Happy (3:34)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:36:55
+01. Тайная Тропа
+02. Игра
+03. Другая Жизнь
+04. Отпускаю(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:08:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E498036982884A1369A922DF3925A80F381B950
+magnet:?xt=urn:btih:426BF5A8EEF87F2218B616D35CEA6AE67C9D3E63
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203452   (788202) от 02.02.2018
+###  Публикация: 1277312   (785419) от 20.01.2019
 
-DGM - 9 Albums, 1 Compilation, 1 Live, 1 EP (1996-2017) 15CD [FLAC|Lossless|image + .cue] <Power Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Итальянская команда DGM (Diego Gianfranco Maurizio) была создана в 1994 году, и поначалу представляла собой чисто инструментальный бэнд, состоявший из Диего Реали (гитара), Маурицио Париотти (клавишные) и Джанфранко Тасселлы (ударные). Спустя несколько месяцев к ним присоединился басист Марко Марчиори. Теперь коллектив мог давать полноценные концерты, чем не преминул (   Читать дальше...   )Список альбомов:
-1996 - Random Access Zone
-1997 - Change Direction
-1999 - Wings Of Time(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 13:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC3ACBB36335F78202FB23B9718FDA8563F4722
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203462   (788203) от 02.02.2018
-
-Beata Przybytek - Today Girls Don't Cry (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Female Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Can Come To Me (4:15)
-02. Priceless Cure (4:09)
-03. Z Rozpaczy Blues (4:54)
-04. Nie Wiadomo (4:14)(   Читать дальше...   )Жанр: Jazz, Female VocalПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13654127960FADF1D97F98569BC76B8A68C632E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203539   (788204) от 02.02.2018
-
-PicturesToExe Deluxe 9.0.16 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788204.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используя PicturesToExe вы сможете легко и быстро создать фотоальбом (слайд-шоу в виде единого самозапускаемого .exe файла), скринсейвер или видео файл из ваших фотографий, удобный для отправки по e-mail или записи на диск. К каждому слайду можно добавить текстовый и звуковой комментарий (wav, mp3, wma), а также фоновую музыку (mp3, wma, wav, midi) для всей презентации. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF76EF7C739BAF3DD288A52071DABF76B932FE80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203392   (788205) от 02.02.2018
-
-World Party - Bang! (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kingdom Come (05:27)
-02. Is It Like Today? (05:12)
-03. What Is Love All About? (04:07)
-04. And God Said... (00:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7B602EFE2EF98A58988768CCD1488D9F877038D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203439   (788206) от 02.02.2018
-
-iFinance 4.4 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788206.jpg" />
-</div>
-
-
-###  Подробнее
-
-iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.01.2018Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D210ECD373EBE04E2C9F51584E34537DCFC357
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203430   (788207) от 02.02.2018
-
-VA - Arabian Shisha Lounge Vol.3 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Christos Fourkis  -  Summer Escape (Original Mix)  6:44
-02.  Dormidontov  -  Love You (Original Mix)  7:10
-03.  Dany Cohiba  -  Afro Civilization (Original Mix)  5:56
-04.  Urban Phunk Society  -  Night Train (Original Mix)  3:21(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC20E7C37303D5D2CCA7E23B9492168AF345C34B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203488   (788208) от 02.02.2018
-
-Carbon Copy Cloner 5.0.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Carbon Copy Cloner –  утилита для резервного копирования данных.
-Carbon Copy Cloner - утилита для клонирования дисков и резервирования данных, пользующаяся заслуженной популярностью у пользователей Mac OS X, благодаря высокой скорости работы и простому интерфейсу.
-
-Новая версия может похвастаться абсолютно новым пользовательским интерфейсом, а также рядом добавленных (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Bombich Software, IncПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25585BE4A3EDDA26AC3CF93E9DB71A92DFEB550F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203438   (788209) от 02.02.2018
-
-Эрик Ломакс | Возмездие (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поражает искренностью — все, что в ней написано, правда. Во время Второй мировой войны британский офицер Эрик Ломакс попадает в плен. После страшных пыток и унижений в японском концлагере он уже не может вернуться к прежней жизни. Мысль о возмездии не покидает его. Он уверен, что его мучители заслуживают самого страшного наказания, и особенную ненависть (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 12:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0937E6E6DF2F30B623B97E308AB03FD9CE5791D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203390   (788210) от 02.02.2018
-
-Troum & raison d'être - De Aeris In Sublunaria Influxu (2015) Essence Music [FLAC|Lossless|tracks+.cue] <Dark Ambient, Drone, Experimental, Tribal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788210.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
- 01. Folia (03:01)
- 02. Alio Tempore (10:05)
- 03. Oculum Mundi (15:15)(   Читать дальше...   )Жанр: Dark Ambient, Drone, Experimental, TribalПродолжительность: 01:08:34+00:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78ACD91A27300314C662A15AB870F80642592CA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203453   (788211) от 02.02.2018
-
-VA - Markus Schulz - Global DJ Broadcast 2 Hour Mix (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevation presents Elara - Meridian (World Premiere)
-02. Markus Schulz presents Dakota - Cafe Del Mar
-03. Stoneface & Terminal - Covenant
-04. Giuseppe Ottaviani - Till the Sunrise (Global Selection)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8179E870BB0496E6141C5389920D90201B306C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203140   (788212) от 02.02.2018
-
-А. И. Новиков | Заговор справедливых (1977) [DJVU, PDF, FB2]
+Х. Рейхель | Русские придут наверняка: Антикоммунистические вымыслы и фальсификации (1987) [DJVU]
 
 >>Разное (категория книг)
 >>Публицистика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788212.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785419.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга о мужественных и самоотверженных людях, осмелившихся мечтать об обществе, в котором все будут равны и свободны. Юный читатель узнает о том, как жили и боролись против мира насилия Мор, Кампанелла, Фурье, Сен-Симон и многие другие провозвестники светлого будущего человечества.Жанр: История, политология, философия, биография, публицистикаФормат: DJVU, PDF, FB2
+В книге прогрессивного западногерманского публициста рассказывается о том, как западные спецслужбы и средства массовой информации фабрикуют и активно используют фальшивки о «советской угрозе». Временные рамки книги охватывают период с 20-х гг. по настоящее время.
+
+Показаны укрывательство и использование нацистских преступников и изменников Родины для борьбы против (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, психологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABADEACE6B77976E594A0E8F69D148436482B5B3
+magnet:?xt=urn:btih:D871A8E699EED07B0EDD34F8F124C249B12B9CA0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203448   (788213) от 02.02.2018
+###  Публикация: 1277060   (785420) от 20.01.2019
 
-Serial Box 02.2018 [En]
+Inkubus Sukkubus - Beltaine (Original Recordings 1990/91) (1996) Reissue, 2006, CD-Maximum [FLAC|Lossless|tracks + .cue] <Pagan Rock, Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785420.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Beltaine" – такое название носит дебютный альбом культовой британской pagan gothic rock группы Inkubus Sukkubus, изначально изданный на кассетах, но, позднее в 1996 году, по многочисленным просьбам поклонников, переизданный в виде компакт-диска компанией Resurrection Records.
+
+"Beltaine" содержит много песен, впоследствии вошедших в другие диски (   Читать дальше...   )01.Beltaine (4:31)
+02.Wytches I (3:26)
+03.Pagan Born (3:25)
+04.Song To Pan (2:59)(   Читать дальше...   )Жанр: Pagan Rock, Gothic RockПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:487CD6FDFA6536BE21F941F9E6E1E8C85DD78D9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204014   (785421) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Touch (1987) Atlantic, 81747-1, US [MP3|320 Kbps] <Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785421.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Over Love 3:50
+02. Shadow Of Love 5:05
+03. Angels Calling 3:48
+04. Meaning Of The Word 5:42(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:53:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9CC91549D2F9FAC604D01910111A9837D0A290
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204000   (785422) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Branigan 2 (1983) Atlantic, 78 0066-1, UK & Europe [MP3|320 Kbps] <Ballad, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Solitaire 4:05
+02. Deep In The Dark 3:51
+03. Close Enough 3:42
+04. Lucky 3:57(   Читать дальше...   )Жанр: Ballad, DiscoПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23F59F323D36F758ED4FC31D9E40E463565F8013
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204048   (785423) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Remember Me (2005) Dance Street, DST 75080-2, Russia [MP3|320 Kbps] <Trance, House>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788213.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785423.jpg" />
 </div>
 
 
 ###  Подробнее
 
-База серийных номеров проекта iSerial по состоянию на 2 февраля 2018 года.
-В ней содержится информация по активации (серийные номера,информация о других методах активации) как для программ платформы PowerPC, так и Intel.
-
-База достаточно объемная и регулярно обновляется, так что Вы, наверняка, найдете в ней то, что ищете!Тип издания: macOS SoftwareРелиз состоялся: 01.02.2018Разработчик: iSerialПоддерживаемая ОС: OS X 10.3.9 или более новаяЯзык интерфейса: Английский
+01. The Challenge 5:08
+02. If That's What It Takes 4:41
+03. I Can See Again 3:59
+04. The Winner Takes It All 5:21(   Читать дальше...   )Жанр: Trance, HouseПродолжительность: 00:30:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DD5AAD426AECA546F1A3413FC63B0C1E8A5D202
+magnet:?xt=urn:btih:D72D3D00C2698C63F8D56EFCDEBA7822E814A75B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203442   (788214) от 02.02.2018
+###  Публикация: 1203974   (785424) от 04.02.2018
 
-Григорий Ряжский | Подмены (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь семьи Грузиновых-Дворкиных складывалась вполне респектабельно: глава семьи – герой Отечественной войны, дошедший с батальоном до Праги, профессор, заведующий кафедрой; жена, красавица княжеских кровей; подающий надежды сын; просторная квартира в центре Москвы… Но ветры перемен не минуют в российской истории никого, и вот, уже в послевоенные годы, семейная идиллия (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 16:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F86F696F2E0D02182F24B5491E6FF9FCFD8551BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203533   (788215) от 02.02.2018
-
-Dana Dawson (Дана Доусон) - Paris New-York And Me (1991) Columbia, COL 481568 2, Europe [MP3|320 Kbps] <Electronic, Pop>
+VA - Pool Party Hits (2018) [MP3|320 Kbps] <Pop, R&B>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788215.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785424.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Romantic World 4:44
-02. Tell Me Bonita 5:01
-03. Survival 3:45
-04. I'm A Singer 4:03(   Читать дальше...   )Жанр: Electronic, Pop, R&BПродолжительность: 00:52:09
+CD1
+01. Selena Gomez Feat Gucci Mane - Fetish
+02. Demi Lovato - Sorry Not Sorry
+03. Shawn Mendes - There's Nothing Holdin' Me Back(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 02:24:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A45D6EF7A68776B5FDE9D489F20DE6A6D0D2B0E2
+magnet:?xt=urn:btih:50606048222B7B9777AA669345AE59F156FB436A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203216   (788216) от 02.02.2018
+###  Публикация: 1204129   (785425) от 04.02.2018
 
-С. Моносов | Очерки истории революционного движения (1933) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий учебник предназначается для обслуживания слушателей совпартшкол, рабфаков, техникумов и для самообразования.
-
-Первоначально предполагалось, что учебник будет переработан самим автором С. Моносовым, но преждевременная смерть автора поставила Партиздат пред необходимостью привлечь ряд товарищей для коренной переработки этого учебника.
-(   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC0803F7EC6CC1B3FB96D7E0E208BAA32694C2F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203405   (788217) от 02.02.2018
-
-VA - Big Party: EDM Anthems (2018) [MP3|320 Kbps] <House, Melbourne Bounce, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Turbotronic  -  JOA (Original Mix)  4:30
-02.  Maarten Van Larsen, Harlie & Charper  -  Woodoorave (Extended Mix)  4:24
-03.  DJ MNS vs. E-Maxx  -  Night Train (Harlie & Charper Remix)  3:48
-04.  Turbotronic  -  Show Me The Money (Original Mix)  4:13(   Читать дальше...   )Жанр: House, Melbourne Bounce, ClubПродолжительность: 02:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BBA4124C9C61FDD70136447BA963C291B389F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203540   (788218) от 02.02.2018
-
-Dana Dawson (Дана Доусон) - Black Butterfly (1995) EMI, TOCP-8648, Japan [MP3|320 Kbps] <Contemporary R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Да́на До́усон (англ. Dana Dawson; 7 августа 1974, Ямайка (англ.) русск., Куинс, Нью-Йорк, США - 10 августа 2010, Нью-Йорк, США) - американская актриса и певица. Как певица, Дана выпустила свой первый сингл в 1988 году - «Ready To Follow You». Песня была написана французской певицей Жаклин Тайеб (англ.)русск., записана во Франции и достигла Top 20 во французском (   Читать дальше...   )01. Interlude 'Black Butterfly' 0:39
-02. 3 Is Family 3:39
-03. Got To Give Me Love 4:10
-04. Show Me 4:03(   Читать дальше...   )Жанр: Contemporary R&B, SoulПродолжительность: 01:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CAE5890999212FF326A144ACE94F1A5727F2678
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276410   (788219) от 16.01.2019
-
-VA - New Music Releases Week 1 of 2019 (2019) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788219.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dzeko, Riggi & Piros, Veronica - Heaven (Feat. Veronica)
-002. Lost Kings, Wiz Khalifa, Social House - Don't Kill My High
-003. The Regrettes - Don't Stop Me Now
-004. Artlec - Void(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 06:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B053F683AE5FE28629CD6E72DB00B0F29A15756D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276401   (788220) от 16.01.2019
-
-Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|Lossless|tracks] <Vocal Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ma Mama
-02. Naleki
-03. Youwile
-04. Je Kango(   Читать дальше...   )Жанр: Vocal Jazz, World FusionПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE94040FC36A8E72DC5A420BA3D4B2647E8A5B74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276592   (788221) от 16.01.2019
-
-VA - Markus Schulz - Global DJ Broadcast - New Year's Rehab (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tim Green - Her Future Ghost
-02. Tonal Axis - Rainfall (Monoverse Remix)
-03. Louis Botella - Sueno Latino (Paradise Slave Mix)
-04. Hernan Cattaneo & Lonya - Confession(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5390D1CC956E686A832D9AB180A3E36A44A35659
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276413   (788222) от 16.01.2019
-
-VA - Die Offiziellen Deutschen Party & Schlager Charts 14.01.2019 (2019) [MP3|320 Kbps] <Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maite Kelly - Die Liebe Siegt Sowieso
-02. Thomas Anders feat. Florian Silbereisen - Sie Sagte Doch Sie Liebt Mich
-03. Andrea Berg - Ja Ich Will (DJ Edition)
-04. De Lancaster feat. Kay Doerfel - Rosenzeit(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99A916888A751DC84BF3398420590BF2151C5591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276610   (788223) от 16.01.2019
-
-VA - Best Of Trancer 2018 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance>
+VA - Silk Music Pres. Talamanca 01 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788223.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785425.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. David Surok & AirLab7 – Urabe Mikoto (Original Mix)
-02. Varsente – Athena (Original Mix)
-03. Blue Moon & DreamLife – Last Farewell (George Crossfield Emotional Remix)
-04. Sothzanne String – Live Your Dreams (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:29
+01. Talamanca – Departure (Extended Mix)
+02. Roald Velden, Talamanca & Morrison Kiers – Savannah (Original Mix)
+03. Shingo Nakamura – Sapporo (Talamanca Remix)
+04. Talamanca – A Day At The Beach (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:11:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF9EDA52421DA856201AF053E0279FD0E27CB73C
+magnet:?xt=urn:btih:5B3A8F5761965524C1CF4F62652C564ED0E264E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203926   (785426) от 04.02.2018
+
+В. Г. Трухановский (отв. ред.) | Против фальсификации истории (1959) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник статей подготовлен коллективом сотрудни­ков Института истории Академии наук СССР. На основе большого фактического материала авторы статей опровергают антинаучные концепции буржуазных истори­ков по некоторым основным проблемам всемирной истории. В статьях сборника дается марксистское освещение поставленных проблем, вскрывается ложный путь, по которому развивается (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7715BC83AD832F4BC5DCCE5C5E5C154F5A2DB9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203968   (785427) от 04.02.2018
+
+David Myles - Real Love (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Night & Day
+02 – Real Love
+03 – Night After Night
+04 – Knockout(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3FEC15C3A9F2BE73DD40DBB860D55F6A509C5B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204050   (785428) от 04.02.2018
+
+CoolUtils PDF Combine 6.1.0.117 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785428.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Combine - надежный инструмент и незаменимая программа для быстрого склеивания нескольких файлов PDF в один. Утилита работает с любыми типами PDF файлов очень быстро и качественно, что позволяет в считанные секунды получить нужный нам результат. Результат работы всегда точен и аккуратен, что важно для инвойсов, контрактов, банковских указов и других документов. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C7966507E164C1EFD9796C3AF14C6DBD547D35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204025   (785429) от 04.02.2018
+
+Laura Branigan (Лора Брэниган) - Laura Branigan (1990) Atlantic, 7567-82086-2, Europe [MP3|320 Kbps] <House, Pop Rock, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785429.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Moonlight On Water 4:40
+02. Bad Attitude 4:03
+03. Never In A Million Years 4:11
+04. Smoke Screen 4:07(   Читать дальше...   )Жанр: House, Pop Rock, Synth-popПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B3C65F83176000D0EF146E9F8DCCB1737944CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203988   (785430) от 04.02.2018
+
+Елена Чижова | Планета грибов (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785430.jpg" />
+</div>
+
+
+###  Подробнее
+
+Елена Чижова – автор романов «Время женщин», премия «РУССКИЙ БУКЕР», «Орест и сын», «Терракотовая старуха», «Лавра», «Крошки Цахес», «Полукровка».
+Как гриб не растет без грибницы, так и человек вырастает из прошлого: страны, города, семьи. Но что делать, если связь с родительским домом принимает болезненные формы? Не лучше ли ее разорвать, тем самым изменив свою (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 13:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B8F3C3FCB67673BBE2B8CE353CD55D7C1EAD81
 ```
 
 

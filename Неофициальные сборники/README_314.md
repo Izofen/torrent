@@ -1,3 +1,30 @@
+###  Публикация: 1156189   (528493) от 06.08.2017
+
+VA - Золотые семидесятые vol. 7-9 (2017) [MP3|192-320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alvin Stardust - You, You, You
+02. Andrea True Connection - More, More, More
+03. Baccara - The Devil Send You To Lorado
+04. Georges Garvarentz - Woman Is Free (Blonde On Blonde)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 05:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0ECCE13392376BF27F2B1F48BEED65ECBAB65D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156143   (528500) от 06.08.2017
 
 VA - Летний Хаус Калейдоскоп Топ 50 (Соmріled bу ZеBуte) (2017) [MP3|320 Kbps] <House, Deep House, Nu Disco>
@@ -672,33 +699,6 @@ Bombay Lounge - Sexy Lounge Music Sensuality Chill Songs Summer Collection (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3FA62118110A28A1B8D9D1304E8EA5F9EF27751
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558649   (529983) от 21.06.2022
-
-VA - Download Now (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_529983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Easy On Me (5:31)
-002. Ed Sheeran - Overpass Graffiti (4:46)
-003. Coldplay - My Universe (4:39)
-004. Michael Patrick Kelly - Blurry Eyes (4:18)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3540E0246A761BB83F57F16EDFD91E7FEF17AB0A
 ```
 
 

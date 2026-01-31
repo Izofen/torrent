@@ -1,3 +1,30 @@
+###  Публикация: 1461283   (1022048) от 08.04.2021
+
+Jean-Michel Jarre - Amazonia & "Binaural Audio - Headphones Only" Version (2021) Columbia Local [FLAC|Lossless|WEB-DL|tracks] <Ambient, Field Recording, Tribal, Experimental>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonia, Pt. 1 (07:42)
+ 02. Amazonia, Pt. 2 (10:00)
+ 03. Amazonia, Pt. 3 (08:10)
+ 04. Amazonia, Pt. 4 (03:17)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Field Recording, Tribal, Experimental •Продолжительность: 01:45:47 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C19FEFDE6E6E87B967B0A695A12B24E96C9CC984
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346757   (1022053) от 08.04.2021
 
 Thierry David - Discography 32 Releases (1988-2021) [MP3|320 Kbps] <New Age, Lounge, Ambient, World>
@@ -665,33 +692,6 @@ Infinite Scale - Discography 11 Releases (2005-2021) [FLAC|Lossless|tracks+.cue,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA14560B678A9DCE203FA61C6E1D0BF77DCDC5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391455   (1023090) от 02.04.2021
-
-Gold Lounge - Discography: 9 Releases (2011-2021) [MP3|320 Kbps] <Chillout, Electronic, Lounge, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023090.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - Spirals
-2012 - Double Life
-2015 - Livin' In A Golden State (Single)
-2018 - Floating(   Читать дальше...   )Жанр: Chillout, Electronic, Lounge, AmbientПродолжительность: 05:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C32B04713FA17861EA7F13E177F03487A8577BE
 ```
 
 

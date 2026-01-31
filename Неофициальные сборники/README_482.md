@@ -1,3 +1,30 @@
+###  Публикация: 1280754   (758721) от 04.02.2019
+
+VA - Heavy Metal Collections Vol. 8 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758721.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+
+01. Grave Digger - The Commandments Of Metal (2017) (3:28)
+02. Visions of Atlantis - Winternight (2016) (5:37)(   Читать дальше...   )Жанр: Heavy, Power, Symphonic MetalПродолжительность: 03:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3B06992971D17C9B9BC942CFE1CC3E9F34F175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280780   (758729) от 04.02.2019
 
 VA - New Music Releases Week 5 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
@@ -665,33 +692,6 @@ Giusy Ferreri - Compilation (2018) [MP3|320 Kbps] <Pop, Pop-rock, Italo-pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:191115488191F92CD9BB6808218A623B75F7A31F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522160   (760241) от 06.01.2022
-
-VA - National Pop Dance Music (Vol.30) (2021) [MP3|320 Kbps] <Pop, Dance, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_760241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие помимо музыки родной нации предпочитают слушать композиции и других народов, в том числе и зарубежных. И если Вы именно тот меломан, которому нравятся зарубежные песни, предлагаем Вам обширный сборник популярно - танцевального жанра представляющий песни со всего мира.001. Gebrueder Doof - Tanzen
-002. Kevin Johnson - You Light My Fire
-003. Niemann - Im Osten
-004. Jagermeister DJ Alex - Auffe Aufn Berg(   Читать дальше...   )Жанр: Pop, Dance, SchlagerПродолжительность: 09:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79467F78D16A884D28E079E63E1C285C0BE893C
 ```
 
 

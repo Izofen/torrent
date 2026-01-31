@@ -1,3 +1,30 @@
+###  Публикация: 1299958   (594723) от 04.05.2019
+
+VA - Pleasant Evening CD 01-22 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Selena Gomez & The Scene - Love You Like a Love Song 03:11
+02. Harriet - Temple Of Love 03:47
+03. Dede - Get To You 03:30
+04. Charlie Puth - River 03:11(   Читать дальше...   )Жанр: PopПродолжительность: 24:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6066F1CABEFA13EF24BDC0321350AD7ACFD42FD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914926   (594771) от 04.07.2015
 
 VA - Шансон года (2015) [MP3|320 кб/с]<Шансон>
@@ -694,33 +721,6 @@ VA - Crystal Bowl Music: Chakra Sound (2016) [MP3|320 Kbps] <Downtempo, Chillout
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9AD4787C7A8EB8D7DC6FF41BD250BE55CEAEBC4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232533   (596012) от 26.06.2018
-
-VA - Deep House Collection Vol.176 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596012.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 7even (GR) - Just a Fool (Original Mix)
-002. Ahmet Kilic & Stoto & Adeba - Stumblin' In (feat. Adeba) (Original Mix)
-003. Ahmet Kilic, DJ Tarkan - We Still Alive  (DJ Tarkan Remix)
-004. Aimo & Chaos feat. Pearl - Just Like Music  (Tswex Malabola Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C189966DFA2254B892D9ABFAA1F6E604D16028
 ```
 
 

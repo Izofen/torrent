@@ -1,3 +1,57 @@
+###  Публикация: 944693   (440378) от 07.10.2015
+
+Максим Леонидов и Hippoband - Hippopotazm (2003) [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диск получил название благодаря смешной опечатке: "Когда название песни "Гиппопотам" вводили в компьютер, случилась опечатка - появилась буковка "з". А мы решили все так и оставить. Hippopotazm - это некий термин философский, а философские термины всегда пишутся латинскими буквами. Что он означает, я пока не знаю. Но в этой песне выражен (   Читать дальше...   )01. Красотка Нева
+02. Духовная жажда
+03. Гиппопотам
+04. Пепел(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:432CB46AB083DFE46E80AA987B6A6886E7577E8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409847   (440445) от 19.09.2020
+
+The Last Reign - Evolution (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_440445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genesis [00:03:21]
+02. Evolution of a Decaying Race [00:04:45]
+03. Annihilation of the Ancients [00:05:34]
+04. Ironclad Torment [00:05:00](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6CD28B1FB5462E772E47445DB8E7134F6CF217
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570554   (440494) от 18.08.2022
 
 Mithotyn - Carved in Stone - The Discography (2013) 3CD [FLAC|Lossless|image + .cue] <Viking, Black Metal>
@@ -637,57 +691,6 @@ Voyage In Solitude - Through the Mist with Courage and Sorrow (2020) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7668BD2FCBD95683378CB7D0EECBD55E5F67466C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164430   (441297) от 09.09.2017
-
-Би-2 feat. John Grant - Виски (2017) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ВискиЖанр: RockПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D9008A9DF64C765BBF7233EC39BCA9AED49045
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164433   (441311) от 09.09.2017
-
-Tori Amos - Native Invader (2017) Deluxe Edition [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reindeer King
-02. Wings
-03. Broken Arrow
-04. Cloud Riders(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAFA157DF9171D008B875C934374B73F5C850959
 ```
 
 

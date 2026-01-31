@@ -1,3 +1,30 @@
+###  Публикация: 1507477   (798470) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 3 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Z U R E - The Future Is Now (4:06)
+02. Blaze of Gunfire - We Were So Young (Gertrudda Edit) (4:26)
+03. STARLANDER - One Last Thing (6:18)
+04. Diamond Ace - Vulnerable Now (5:21)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C010FB89EA8017F0D27E2959EAEC5413A9FC9820
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507510   (798471) от 04.11.2021
 
 VA - A Synthwave Panorama Vol. 7 (2019) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
@@ -668,33 +695,6 @@ VA - ЕвроХит Топ 40 Europa Plus Итоги Года 2018 [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0085C539BDDAE0B6DCED6E1CC5AB95F0B40BD86A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273701   (799367) от 03.01.2019
-
-VA - Blues Night: Coctail For The Soul (2019) [MP3|320 Kbps] <Blues, Rock, Soul>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799367.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aynsley Lister - What's It All About
-002. Bart Walker Band - Right Side Up
-003. Billy D & The Hoodoos - Whyya Do It
-004. Boogie Stuff - Missing You(   Читать дальше...   )Жанр: Blues, Rock, SoulПродолжительность: 11:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FDF664390E8899E21A62D8D4A205615A105679E
 ```
 
 

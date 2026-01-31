@@ -1,3 +1,30 @@
+###  Публикация: 945325   (433976) от 10.10.2015
+
+Seasons Of The Wolf - Lost In Hell (1999) [FLAC|Lossless]<Progressive Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost In Hell
+02. Abandoned City
+03. S.O.S.
+04. Communion(   Читать дальше...   )Жанр: Progressive Heavy MetalПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12D60B43C8F1503C4018C694B590F90EC73AE2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571243   (434032) от 21.08.2022
 
 Bill Champlin - Livin' For Love (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
@@ -669,33 +696,6 @@ Symphorce - Unresticted (2010) [FLAC|Lossless|image + .cue] <Heavy-Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D6EBEB1AC540B25788DF6812DFDD12DE7A30E37
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323540   (435632) от 04.09.2019
-
-Status Quo - Backbone (2019) Limited Edition [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting For A Woman
-02. Cut Me Some Slack
-03. Liberty Lane
-04. I See You're In Some Trouble(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A9EDB6DC0BF01C54323C348DA0B43DD3E11FBD1
 ```
 
 

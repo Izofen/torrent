@@ -1,3 +1,30 @@
+###  Публикация: 975475   (971922) от 15.01.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 21 ) (2016) [MP3|203 - 320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danuta - Touch My Heart ( Nigvo`s Remix ) (05:09)
+02. Blue System - Dirty Money (Efimenko Remiх ) (03:13)
+03. Fancy - Flames Of Love (Multi Extended Version) (08:08)
+04. Kate Ryan - Voyage, Voyage (George Airbullet Remix) (06:30)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20910AAC2558C521C9FC0815EEE7A12B5B709F5A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975490   (971931) от 15.01.2016
 
 VA - 100 Fitness (2016) [MP3|320 кб/с] <Latin Urban, Salsa, Bouyon Soca, Kuduro, Ringbang>
@@ -704,33 +731,6 @@ VA - Старое по новому 2 (2016) [MP3|320 кб/с] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:718C2C12B54698BC64FFDD34C73795E71AC88BDC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974918   (974402) от 13.01.2016
-
-VA - Жажда скорости танцевальный ритм (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_974402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Lambert - Ghost Town
-02. Emin - Одна На Миллион
-03. Таня Дяченко - Пять Минут Счастья
-04. Алена Высотская - Спасибо Мама(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5265360A324746B431744284DD075FAFED11C20D
 ```
 
 

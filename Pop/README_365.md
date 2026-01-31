@@ -1,3 +1,84 @@
+###  Публикация: 1607972   (1043794) от 28.01.2023
+
+Аида Ведищева - Звёзды советской эстрады. Хиты 60-70-х (2011) [MP3|320 Kbps] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Помоги мне
+02. Дорожная песня
+03. Песенка о медведях
+04. Песенка вполголоса(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:05:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B331CC9B50275D699C22B9B3E4C832831AF667
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607900   (1043849) от 28.01.2023
+
+VA - Best Of Nu Disco 2022, Vol. 1-2 (2022-2023) Disco Balls Records [MP3|320 Kbps] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefan Torres, Alex Djette - Can't Help Me No More (Harvey Ross Remix) (05:22)
+02. Franco Sciampli - It's Falling (Frank Virgilio Rethink) (06:40)
+03. Rawkey - Like You Love Me (05:37)
+04. Umby - Call This Number (05:31)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 03:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8996F95E23E6BE52327323C0C41F8727C0B7176
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607683   (1043897) от 27.01.2023
+
+VA - Старые песни о главном 2 (1996) [MP3|320 Kbps] <Рор>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В. Сюткин - Как провожают пароходы
+02. Л. Долина - Стоят девчонки
+03. И. Аллегрова - Белый свет
+04. В. Меладзе - Ямайка(   Читать дальше...   )Жанр: РорПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B35BACC95B401A52AFA821CC462A16FDAC2BBF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606840   (1043920) от 27.01.2023
 
 Patricia Kaas - Rien Ne S'Arrete (Best Of 1987 - 2001) (2001) [OGG Vorbis|500 Kbps] <Pop, Chanson>
@@ -614,87 +695,6 @@ CD - 1 - Get Down:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72690CB817AD2E76521C69E752B1015A3D4DFA46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605408   (1044846) от 18.01.2023
-
-Rüdiger Meng (Roger Meno) - Disco Groovin' (1988) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synchronity (3:22)
-02. Turbolights (2:10)
-03. Its Just Illusion (4:04)
-04. Disco Groovin' (3:10)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6716BBA7A86A9B79DD5C78CEC28789D87AE0470
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605410   (1044851) от 18.01.2023
-
-Rüdiger Meng (Roger Meno) - Rhythm And Energy (1991) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm And Energy (3:04)
-02. Blanch A Voil (3:20)
-03. Aspects Of Sport (3:23)
-04. Speed Up (3:42)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B654D47A2EAE7BFB3A79F71F2DF7640F8B5CC9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605355   (1044882) от 18.01.2023
-
-Elton John - Elton John (1970) Reissue, 2011, Mercury [OGG Vorbis|430 Kbps] <Rock, Pop, Symphonic Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Song
-02. I Need You To Turn To
-03. Take Me To The Pilot
-04. No Shoe Strings On Louise(   Читать дальше...   )Жанр: Rock, Pop, Symphonic RockПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1954BF87A8E320649DFD242C31F4EDA402C90CC0
 ```
 
 

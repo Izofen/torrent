@@ -1,3 +1,165 @@
+###  Публикация: 945685   (431909) от 11.10.2015
+
+Oliver Lake Steel Quartet - Dat Love (2003) [FLAC|image+.cue]<Post-Bop, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stolen Moments
+02. Double Space
+03. Venus
+04. Dat Love(   Читать дальше...   )Жанр: Post-Bop, Free JazzПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246A1B1814A9D2A9ACEB7C1422C2E2DB17F76B1F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410887   (431926) от 23.09.2020
+
+Wes Montgomery - The Remasters (All Tracks Remastered) (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monk's Shop (Remastered 2017) (03:52)
+02. 'Round Midnight (Remastered 2015) (04:53
+03. One for My Baby (And One More for the Road) (Remastered) (07:41)
+04. Falling in Love With Love (Remastered 2017) (06:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F58B2EC8C3E359C46719DAA476E748D9CD19E9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410842   (431931) от 23.09.2020
+
+Louis Armstrong - Highlights from His Decca Years (1924 - 1958) 1994, 2CD, GRP [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431931.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Wild Man Blues [3:06]
+02. Weary Blues [2:48]
+03. Georgia Bo Bo [3:06](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 02:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F558B3DE88F10B62FEF638571DE2C38D06A8480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410841   (431933) от 23.09.2020
+
+Nat King Cole - Spotlight on Nat King Cole (1944 - 1960) 1995, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Funny that Way [3:04]
+02. Sunday, Monday or Always [2:21]
+03. Crazy She Calls Me [2:36]
+04. Spring Is Here [2:34](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6744B37D9FCED6664CA5340861D7E044D19EE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410875   (431979) от 23.09.2020
+
+New York Jazz Quartet - Blues For Sarka (1978) 1998, Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blues [15:29]
+02. Rodney Round Robin [5:45]
+03. I'll Tell You Tonite [7:15]
+04. Blues For Sarka [7:11](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC2F96B1AA6C6B606A47FFDA1496E8B5EFF1BD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410835   (431982) от 23.09.2020
+
+Slide Hampton - Drum Suite (1962) 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fump [5:21]
+02. Lover [5:10]
+03. Like Someone in Love [8:27]
+04. Gallery Groove [4:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DB3AE148C39FCBF3C4C8AF0020B7A6E46F4BEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410876   (431983) от 23.09.2020
 
 Joe Gordon - Social Call (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
@@ -533,168 +695,6 @@ Willie May - Blues Mona (2015) [MP3|320 кб/с]<Blues, Country Blues, Funky>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1956004CF7C4F1AA9AD389DDBBD943DD2A51E6D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410575   (433957) от 22.09.2020
-
-John Legend - Bigger Love (2020) [FLAC|Lossless|tracks + .cue] <R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ooh Laa (02:59)
-02. Actions (02:54)
-03. I Do (02:47)
-04. One Life (03:14)(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A4375F8888D116700BAB46AE8347B65754F348
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410591   (433969) от 22.09.2020
-
-The Orchestra Of Mirrored Reflections - Frequency Jazz (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Noir Jazz, Ambient Jazz, Post Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving Big Sigh Of City Behind... (7:20)
-02. ...Rowing Your Boat-on In The Myst (6:34)
-03. Lemon Tea For My Voodoo Doll (feat. Sergiy "AbsurdMaers" Yagoda) (5:48)
-04. Gravity Means Love (6:17)(   Читать дальше...   )Производство: Petroglyph Music - petroglyph308Жанр: Dark Jazz, Noir Jazz, Ambient Jazz, Post Jazz, Trip HopПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3907FCC083883A4D1543B89D3FF05279ACDB8C25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410667   (433974) от 22.09.2020
-
-Louis Armstrong - The Great Jazz Collection (50-e - 60-e) 1995, Scana [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Wonderful World [2:15]
-02. Black and Blue [4:36]
-03. Struttin' with Some Barbecue [5:55]
-04. West End Blues [4:12](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F8AEA5E7438AB71FE746273A23088DBBA83F02
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945477   (433975) от 10.10.2015
-
-Odelia Dahan and the Yellow Submarine Ensemble - Solika (2008) [FLAC|tracks + .cue]<Nu-Jazz, World Music, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ay mansevo - excerpt - 0:28
-2. Ah sinyora novia (Kantiga de boda) - 7:18
-3. Bre Sarika - 6:53
-4. Si la mar era de leche - 5:15(   Читать дальше...   )Жанр: Nu-Jazz, World Music, FusionПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0767ACB9316DADA7D1CF67DF8A20903DA0CF8AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945482   (433977) от 10.10.2015
-
-Odyssey Trio - Pictures (2014) [FLAC|tracks+.cue]<Contemporary Jazz, Piano>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песнь Песни / The Song of a Song
-02. Доброе утро / Good Morning
-03. Карусель / Carousel
-04. Прощальная песня / Farewell Song(   Читать дальше...   )Жанр: Contemporary Jazz, PianoПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD7CE14ED0169113A22A32F8485D210EDC1F67F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945486   (433978) от 10.10.2015
-
-Ofer Shapiro Quintet - Two Views (2010) [FLAC|image+.cue]<Post-Bop, Ethnic Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_433978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Views (tribute to Wayne Shorter)
-02. Dancing Spirit
-03. The Sea
-04. Minor Blues(   Читать дальше...   )Жанр: Post-Bop, Ethnic FusionПродолжительность: 01:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C533C86292D99FB66F5F661C90CA86F9664616
 ```
 
 

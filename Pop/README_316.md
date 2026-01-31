@@ -1,3 +1,84 @@
+###  Публикация: 1103328   (887235) от 11.02.2017
+
+Алиса Вокс - Звёзды (2017) EP [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887235.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Звезды
+2. Мечтать (feat. Феликс Бондарев)
+3. Зал ожидания
+4. Ноль (feat. Феликс Бондарев)Жанр: PopПродолжительность: 00:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F193FB83EB5BA91328EFED558630AE95F63E39C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103125   (887313) от 11.02.2017
+
+Владимир Захаров и Рок-Острова - Арлекин (песни на стихи Александра Блока) (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Балаган
+02. Явился он на стройном бале
+03. Свет в окошке шатался
+04. В углу дивана(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82FD0878FBC49D070E816FF0EA0D466808AF7395
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103005   (887480) от 11.02.2017
+
+Frederic Mirage - Timemachine (1980) LP, Released 2014, Private Records [MP3|320 Kbps] <Electronic, Synth-pop, Ambient, Space-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starship (4:21)
+02. From Time (4:20)
+03. Der Computer (6:01)
+04. Blizzard (3:18)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Ambient, Space-DiscoПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB57CF3F46C440A0FD1A18EC0E5F7C4A9632D779
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494694   (887537) от 08.09.2021
 
 VA - 100 Greatest ’60s Rock Songs (2021) [MP3|320 Kbps] <Pop, Rock>
@@ -612,87 +693,6 @@ Milk & Coffee - Indianapolis (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE8EAFDB6F4357543840D3B79C284EB5AA464D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102199   (891165) от 09.02.2017
-
-Patrick Remy - Constellations (1981) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quasar 3c 273 (3:44)
-02. Berenice (3:45)
-03. Magellan (6:25)
-04. Zeta (3:40)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:351B7355A153CDE54B4238DC24F1C4323368538C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994008   (891310) от 07.03.2016
-
-VA - All Time Joy Classics Volume 1-3 (2011-2015) [MP3|320 кб/с] <Pop, Soul, Jazz>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891310.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bob Dylan - One More Cup of Coffee (3:42)
- 2. Joan Baez - Diamonds and Rust (4:45)
- 3. Simon & Garfunkel - The Sound of Silence (3:04)
- 4. Bill Withers - Ain't No Sunshine (2:02)(   Читать дальше...   )Жанр: Pop, Soul, JazzПродолжительность: 08:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD28080385108B79521961FF15A36A61AFE525F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994417   (891322) от 07.03.2016
-
-VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как видите стараниями коллег по клубу серия немецкого подразделения Sony Music продолжает жить на нашем трекере (ссылка на все релизы серии внизу поста). Пожалуй, именно у нас на трекере самое полное собрание этой серии. В данном боксете представлены хиты мира диско. Вспомним как это было!CD1:
-01. Boney M. - Daddy Cool  (3:28)
-02. Baccara - Yes Sir, I Can Boogie  (4:29)
-03. Patrick Hernandez - Born to Be Alive  (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 03:59:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B89879A135FB66087933FA1A38E3CA8D84E5FFA0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1543796   (625410) от 13.04.2022
+
+Buck 69 - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_625410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead End Road
+02. All Night Long
+03. Sometimes
+04. When She Whispers Your Name(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF452CE18A5C86E01401D11AF27260AF6A8676B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543725   (625418) от 13.04.2022
 
 VA - Громкие новинки Апреля (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -671,33 +698,6 @@ VA - Dance Premium (2015) [MP3|320 кб/с]<Progressive, Club, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72FB26AE3EC5BEF1ED12BCF4FECD6AF97D8C3B63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229463   (626460) от 06.06.2018
-
-VA - Caramel Masquerade (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626460.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Walk The Moon - One Foot
-002. Dua Lipa - IDGAF
-003. MAX - Lights Down Low
-004. Matami - Get Lost(   Читать дальше...   )Жанр: PopПродолжительность: 08:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD469876AAB6400272065ACA42785D0C51B964BD
 ```
 
 

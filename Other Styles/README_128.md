@@ -1,3 +1,192 @@
+###  Публикация: 1214833   (763074) от 23.03.2018
+
+Oscar Javelot - Inner Presence (2018) [MP3|320 Kbps] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Naher zu mir (To be one) (03:53)
+ 02. So sicher wie im Himmel (04:42)
+ 03. Good Time (04:19)
+ 04. Segel im Wind (03:17)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64233814E65B5814DDB35E8D9A79E2CC237BEAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017271   (763124) от 16.05.2016
+
+2002 - Believe (2012) [FLAC|Lossless|tracks + .cue] <NewAge, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Believe.
+02 - A Dream Creation.
+03 - Chain of Life.
+04 - We Meet Again.(   Читать дальше...   )Жанр: NewAge, RelaxПродолжительность: 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F86DA092D0753515235B091C21F6226B9F838119
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214625   (763173) от 23.03.2018
+
+David Wright & Carys - Prophecy (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watching for Nephele 3:55
+02. Serinus Rising 5:07
+03. Night Tide 6:29
+04. Diving Skywards 3:44(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:18:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB1F9E576903B49C49E1D8D2B58348413ADF59D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521752   (763444) от 04.01.2022
+
+VA - Dark Country 1-5 (2012-2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Saraceno - Evil Ways (Justice Mix) (3:27)
+02. Robin Loxley & Jay Hawke - Crop Won't Ever Come (3:52)
+03. Blues Saraceno - Judgement Day (4:26)
+04. Blues Saraceno - Run On (3:29)(   Читать дальше...   )Жанр: Rock, Folk, World, & CountryПродолжительность: 03:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F99BA3F465FD3835A9AD8C7627ADA42FB858DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 316806   (763488) от 06.04.2011
+
+Тролль Гнёт Ель - Хмъёльнир (2011) [MP3|320 kbps]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хмъёльнир (04:06)
+02. Beer Mantra (04:40)
+03. Ave Celia! (04:28)
+04. Камаринская (03:34)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89D710CAA4C6CDB01DB3E31C69878D6C0011FC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521639   (763533) от 04.01.2022
+
+Claudio Simonetti - Стальные руки / Hands of Steel - Vendetta dal Futuro (1986) 2021 [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hands Of Steel
+02. Paco Querak
+03. Atomic Cyborg
+04. Arms Of Steel(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C094E9C8BFFB71343956594022A59C54913FA45F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394455   (763716) от 05.07.2020
+
+VA - Sons of Anarchy - The Complete Fantasy Playlist (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Stage & Screen, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voidoid - Sons of Anarchy Theme (2:19)
+ 02. Tim Barton - Personal Jesus (3:47)
+ 03. Top Guns - Born to Lose (2:52)
+ 04. Calli Malpas - Titanium (3:22)(   Читать дальше...   )Жанр: Rock, Stage & Screen, SoundtrackПродолжительность: 01:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D710452ED138D03B69F5B1360D9BCDB2BEDEFFD6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394272   (763729) от 05.07.2020
 
 Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
@@ -506,195 +695,6 @@ Vangelis - Vangelis Nocturne-the Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:966263B0B4AA15E184745362DC147EA3F1414169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278809   (768467) от 26.01.2019
-
-Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classical, Instrumental, Cello>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Hour Story (12:16)
-02. Imbalance (04:14)
-03. Conditional Futures (04:02)
-04. Floating City (03:38)(   Читать дальше...   )Жанр: Contemporary Classical, Instrumental, CelloПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8A49DA98E482CBFD0859F9879444B5A65B75FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278546   (768468) от 26.01.2019
-
-The Shadows - The Best Of The Shadows (1999) Unofficial Release [FLAC|Lossless|image + .cue] <Pop Rock, Rock-n-Roll>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadowmix
-02. I Just Called To Say I Love You
-03. Apache
-04. Riders In The Sky(   Читать дальше...   )Жанр: Pop Rock, Rock-n-RollПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE60287C4E440B65FFFB29D26E80B1F9DE75BD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278581   (768471) от 26.01.2019
-
-Really Slow Motion - Miraculum (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Dreams [04:28]
-02. Century [03:07]
-03. Galaxy Falling [03:55]
-04. Tell the World [03:09](   Читать дальше...   )Жанр: Soundtrack, Instrumental, ScoreПродолжительность: 01:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7CB0DDFDA3391577FF3D201D9EC3BF6D40C800F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278574   (768475) от 26.01.2019
-
-Atom Music Audio - EON (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Across the Universe [03:13]
-02. Stellarium [03:37]
-03. Gauntlet [03:29]
-04. Beyond the Horizon [02:45](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8C9F7B278BF9B9B8CFFBA7EC6A30FA2684A565
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278573   (768478) от 26.01.2019
-
-Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mistake [02:33]
-02. In the Dark Rise [02:29]
-03. Vortex [02:05]
-04. Eternity [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0C7C4E896D58F9D3BF4B6015463AF86D86E7F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125287   (768590) от 14.04.2017
-
-VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/с]<Soundtrack, Hip-Hop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Thug, 2 Chainz, Wiz Khalifa & PnB Rock - Gang Up (03:52)
-02. Lil Uzi Vert, Quavo & Travis Scott - Go Off (03:38)
-03. G-Eazy & Kehlan - Good Life (03:46)
-04. PnB Rock, Kodak Black & A Boogie Wit da Hoodie - Horses (04:09)(   Читать дальше...   )Жанр: Soundtrack, Hip-HopПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208FB825F5C00E334256B41DC93FDC1435C30043
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125286   (768654) от 14.04.2017
-
-VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Hip-Hop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_768654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Thug, 2 Chainz, Wiz Khalifa & PnB Rock - Gang Up (03:52)
-02. Lil Uzi Vert, Quavo & Travis Scott - Go Off (03:38)
-03. G-Eazy & Kehlan - Good Life (03:46)
-04. PnB Rock, Kodak Black & A Boogie Wit da Hoodie - Horses (04:09)(   Читать дальше...   )Жанр: Soundtrack, Hip-HopПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907020AECF82FCB1184DA0D968CE46F776DC0065
 ```
 
 

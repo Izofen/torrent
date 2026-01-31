@@ -1,3 +1,30 @@
+###  Публикация: 903677   (656659) от 01.06.2015
+
+VA - TOP May (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656659.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Set Mo feat. Deutsch Duke - White Dress (Satin Jackets Remix) (06:54)
+002. Sante Cruze - Get So High (Original Mix) (06:51)
+003. Rameses B - Spirit Walk (05:58)
+004. Kwabs - Walk (03:35)(   Читать дальше...   )Жанр: Electronic, Lounge, Pop, DeepПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CCFBAF6CB77AFCCD449E80EAB34C1429F7A70D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140289   (656682) от 05.06.2017
 
 VA - Воодушевляющий Мелодичный Транс [Sound Clinic - Special Edition] (2017)  [MP3|320 Kbps] <Uplifting Trance, Melodic Trance, Vocal Trance>
@@ -707,33 +734,6 @@ VA - Dawn Of The Replicant: Synthwave Electronic (2022) [MP3|320 Kbps] <Synthwav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBA469CEEC946D1877853A4698701304BA591837
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225912   (657551) от 18.05.2018
-
-VA - Дискотека Популярных Хитов (2018) [MP3|320 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_657551.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сати Казанова - Спасибо Тебе (Акустика)
-002. HammAli & Navai - Ноты
-003. Ирина Билык - А мне бы в небо
-004. Алёна Апина - Девушка Бонда(   Читать дальше...   )Жанр: ПопПродолжительность: 05:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2AF484A26F40D7F11CB59445BA5552AECAECECF
 ```
 
 

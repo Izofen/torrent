@@ -1,3 +1,30 @@
+###  Публикация: 1039928   (593652) от 03.08.2016
+
+VA - Transparent World Melodies (2016) [MP3|320 Kbps] <Trance, Progressive, Energy>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John 00 Fleming -  Altered Senses 7:06
+02. A.R.D.I -  Silicon Society (Original Mix) 7:08
+03. Richard Durand Ft. Simon -  Always The Sun (Ahmet Atasever Remix) 7:20
+04. Alex M.O.R.P.H -  Not All Superheroes Wear Capes (Radio Edit) 3:14(   Читать дальше...   )Жанр: Trance, Progressive, EnergyПродолжительность: 08:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01AB9DE14E1CC3F29757E0C916477B06A39CEC2D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039982   (593655) от 03.08.2016
 
 VA - Beatport Trance Pack 02.08. (2016) [MP3|320 Kbps] <Trance, Progressive, Energy>
@@ -667,33 +694,6 @@ VA - Sunshine Disco (Summer Moods & Grooves) (2016) [MP3|320 Kbps] <Chillout, Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8364B73DF346C8BC551D8533D32AE00EC18503FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299958   (594723) от 04.05.2019
-
-VA - Pleasant Evening CD 01-22 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selena Gomez & The Scene - Love You Like a Love Song 03:11
-02. Harriet - Temple Of Love 03:47
-03. Dede - Get To You 03:30
-04. Charlie Puth - River 03:11(   Читать дальше...   )Жанр: PopПродолжительность: 24:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6066F1CABEFA13EF24BDC0321350AD7ACFD42FD3
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1368197   (912270) от 18.03.2020
+
+VA - Sunset Moods: Tulum (A Selection of Finest Sundowner Island Moods & Grooves) (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Afro House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_912270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arco – Touch the Sun (06:40)
+02. Karol XVII & MB Valence & Lazarusman – Whispers | Gorge Extended Remix (07:04)
+03. Mika Olson – Drift Away (06:54)
+04. Matthew1626 – Don't Give Up (06:42)(   Читать дальше...   )Жанр: EDM, Deep House, Afro House, Nu DiscoПродолжительность: 01:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D517AF5D27C490F032CEB1BAB96D31648DE4E193
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368140   (912279) от 18.03.2020
 
 VA - Faze #28: Adriatique (2014) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Tech House, Minimal>
@@ -674,33 +701,6 @@ VA - Buddha-Bar XXII (by Ravin) (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D7462D5D92EDB2F59A7C3BEFD207A1523A68860
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367684   (915551) от 16.03.2020
-
-VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legal - Holding Back [04:19]
-02. BK - Sleeper Cell [04:30]
-03. Jake Robertz - Guest List [04:37]
-04. B1tyze - International Clash [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
 ```
 
 

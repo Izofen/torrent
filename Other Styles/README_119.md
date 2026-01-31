@@ -1,3 +1,192 @@
+###  Публикация: 1401021   (713039) от 08.08.2020
+
+Native Spirit - Pow Wow Dance (2008) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ethnic, Folk, New AgeПродолжительность: 01:09:12Трэклист: 01. Coyote Dream
+02. The Wolf Dance
+03. Fire
+04. Rainbow Canyon(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83354461561B3DB9DB55BAABAAC4EB53A173A1FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401024   (713041) от 08.08.2020
+
+Ikaiki Taky - Inka Llacta (2009) [FLAC|Lossless|tracks + .cue]<Ethnic, Folk, New Age>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Qarwa Yaku
+02. Ruminahu
+03. Akuchimay
+04. Sumac Llacta(   Читать дальше...   )Жанр: Ethnic, Folk, New AgeПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EF7B6D8B27487DBC54C46680ED2094C28BDC42
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219499   (713353) от 14.04.2018
+
+Danheim - Herja (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atgeir 3:04
+02. Berserkir 3:55
+03. Feigr 3:30
+04. Fimbulvetr 4:25(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:53:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFC0BBF078B654067DEB5089B428FD73B921112
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025047   (713796) от 10.06.2016
+
+Nature Sounds & Yoga Tribe - The Natural Orchestra (2016) [MP3|320 кб/с] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazing
+02. Evening Music
+03. Unforeseen Adventure
+04. Call to Play(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:10:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0D959E4A1B1609B7C8FBFE50E8EB78A496D3FB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024576   (713962) от 10.06.2016
+
+VA - Are Lonesome Tonight. 23 Romantic Instrumentals (UY) Unofficial Release [APE|Lossless|image + .cue] <Jaz, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Camels Pick-Nick
+02.  Linger A While
+03.  Concerto D'Aranjuez
+04.  Plaisir D'Amour(   Читать дальше...   )Жанр: Jaz, Easy ListeningПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3C4862E1DA82FC36E73A9F7FE6805B8F4A032D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024907   (713994) от 10.06.2016
+
+Terry Oldfield & Soraya - Namaste (2016) [MP3|320 кб/с] <New age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Namaste
+02. Always Perfect
+03. Celtic Blessing
+04. Into Your Hands(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E05642D49AFD8356637C38F406939B3BA4F067
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024741   (714075) от 10.06.2016
+
+Hans Zimmer - Kung Fu Panda 3 / Кунг-фу Панда 3 (Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer & Lang Lang – Oogway's Legacy (02:00)
+02. Hans Zimmer - Hungry for Lunch (01:15)
+03. Hans Zimmer – The Power of Chi (04:12)
+04. Hans Zimmer – The Arrival of Kai (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:967182C7E7560018639B9076FC23D30BA6FD7527
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024868   (714083) от 10.06.2016
 
 Liquid Mind - Relaxing Rain & Ocean Mixes (2014) [FLAC|Lossless|tracks] <New Age, Ambient>
@@ -506,192 +695,6 @@ Midori - Mellow - Relaxation Piano (2014) [FLAC|Lossless|tracks] <New Age, Instr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E45EB9B8D0CECCAC04381966207FF7F7B93FF69F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023598   (716127) от 09.06.2016
-
-Giga Wing 2 (Yasushi Kaminishi) (DC) (2001) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип основан на оригинальном дискеЖанр: ScoreПродолжительность: 01:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1FAC99EE515C5EECF9D1CF644B8215BB76EA02D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285352   (716679) от 28.02.2019
-
-Moreza - Fragrance (2019) [MP3|320 Kbps] <New age, Nuevo Flamenco, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fragrance (5:28)
-02.King Of Guitarras (feat. Lorenzo De Medici) (4:44)
-03.Love Story (4:29)
-04.Miss Guitar (5:42)(   Читать дальше...   )Жанр: New age. Nuevo Flamenco, ChilloutПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:797DCAF72F5D0FA2A4E5DBE4E6947405FC56E3D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285121   (716811) от 28.02.2019
-
-Kitaro - Tenku (1986) Remastered, 1997, DOMO [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_716811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Tenku 4:14
- 02 - Romance 4:41
- 03 - Wings 5:20
- 04 - Aura 7:24(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3F4DBA4E106D0389388AA5DB6C1B54BBF75115
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 892940   (717091) от 27.04.2015
-
-V.A. - Die Hit-Giganten Best Of Ballads (2011) 3CD [FLAC|Lossless]<Pop, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717091.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - 01:19:56 | CD2 - 01:19:21 | CD3 - 01:19:54Треклист CD1:
-01. Seal - Dont Cry
-02. Chicago - Hard to Say Im Sorry
-03. Percy Sledge - When A Man Lovers A Woman(   Читать дальше...   )Жанр: Pop, Rock |Продолжительность: 03:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9520A6FA9789EBE829EAFCBCD7A5F24EC499CF68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 669753   (717501) от 18.06.2013
-
-Thomas Newman - Зеленая миля / The Green Mile (1999) [MP3|320 kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Alabama [00:00:59]
-02. Monstrous Big [00:01:50]
-03. The Two Dead Girls [00:03:02]
-04. The Mouse On The Mile [00:01:30](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C01B78C3A18B4920C1CCF980E1B5256E5634C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024352   (717903) от 08.06.2016
-
-VA - Unwind Piano Music (2016) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delilah Gutman - Purple (4:02)
-02. Frank Glazer - Gnossiennes No. 1 (2:51)
-03. Seby Burgio - Biphasic Sleep (5:55)
-04. Delilah Gutman - Dell'inconscio l'istinto (1:19)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:56:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE9492F99E16BD99632939E601A29301DDC1577
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024307   (717914) от 08.06.2016
-
-Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Revenant Main Theme (02:41)
-02. Hawk Punished (02:14)
-03. Carrying Glass (03:07)
-04. First Dream (03:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FBD64A16D359348D07EA3088B9489677AE035FC
 ```
 
 

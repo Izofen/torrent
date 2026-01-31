@@ -1,3 +1,30 @@
+###  Публикация: 1132368   (701018) от 09.05.2017
+
+VA - Club Dance Ambience Vol.108 (2017) [MP3|320 Kbps] <Club House, Vocal House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_701018.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 20 Fingers Ft. Roula - Lick It (Block & Crown & Mike Ferullo Remix) 5:26
+002. Alaia & Gallo, Kevin Haden - Go (Original mix) 5:56
+003. AlexEnn - Come In Time  (Original mix) 3:20
+004. Alok - Never Let Me Go (Extended Mix) 4:14(   Читать дальше...   )Жанр: Club House, Vocal House, HouseПродолжительность: 07:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A99340F0DE0391B1DA2AE12ECFAC04127AEFBAF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132634   (701118) от 09.05.2017
 
 VA - Deep Sourge: Beach Edition (2017) [MP3|320 Kbps] <Deep, Chill House>
@@ -667,33 +694,6 @@ Nazareth - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38DAE6E9141586C6A1837DC4D0E3B7AE5F5C94AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026666   (702504) от 16.06.2016
-
-VA - Trip to Ibiza 2014. Chill Out (2016) [MP3|320 кб/с] <Chill Out, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_702504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Antica Fabbrica Del Suono - La Demografia Dell'intellett (D-Soriani chilly mix)  04:54min
-02. Innate Joy - Morning Instinct  06:05min
-03. Chillwalker - Dancing in the Sunrise (Bossa Beach cut)  05:21min
-04. Living Room - Urbanism  04:06min(   Читать дальше...   )Жанр: Chill Out, DowntempoПродолжительность: 04:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8FA7ADCA3CCD134BDFFC919FF356169D0C7F254
 ```
 
 

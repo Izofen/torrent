@@ -1,3 +1,30 @@
+###  Публикация: 1354655   (987044) от 23.01.2020
+
+VA - Valentine's Day House (2020) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Groove - Taken (Root Edit)
+02. Purity Of Soul - Start Me Up (Purity Mix)
+03. French Kiss Lovers - Deep Colour (French Edit)
+04. 6ex - Shaft (Nineteen Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49BA0B9D6534DC2D287F0703962726E40A02139B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609031   (987104) от 01.02.2013
 
 VA - Cafe Bossa Brazil Vol. 2 - Bossa Nova Lounge Compilation (2012) [MP3|320 кб/с]<Lounge, Easy Listening, Bossa Nova>
@@ -711,32 +738,6 @@ VA - Cafe Bossa Brazil Vol. 1 - Bossa Nova Lounge Compilation (2012) [MP3|320 к
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D41B776E0E3501DF5C9AA1C0680F580E879328
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 606654   (995263) от 21.01.2013
-
-Cathy Battistessa - Une Nouvelle Humanite (2012) [FLAC|Lossless]<Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Une Nouvelle Humanite (The Rurals Remix) 7:54
-02. Une Nouvelle Humanite (Andy Compton's PENG Mix) 7:08
-03. Une Nouvelle Humanite (Da Capo's Touch) 7:29Жанр: Deep HouseПродолжительность: 00:22:30
-
-## Скачать торент
-```bash
-нет
 ```
 
 

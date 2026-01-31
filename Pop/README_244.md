@@ -1,3 +1,84 @@
+###  Публикация: 1030005   (676104) от 29.06.2016
+
+Ирина Аллегрова - Grand Collection (2002) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "День рождения "
+02. "Угонщица  "
+03. "Мой ласковый и нежный зверь  "
+04. "Младший лейтенант  "(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD5810EB6207EDD50ACD537D3DCB055E1D1D476
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290662   (676200) от 21.03.2019
+
+VA - Eurodance Club Vol. 1 (Back2Basic) (2017) Compilation [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GTS Project - Disco (Radio Edit) (3:39)
+02. Lyane Leigh - Sexy Boy (S.E.X. Appeal Radio Edit) (3:31)
+03. A.Voltage feat. Elaine Winter - Try to Find (Radio Edit) (2:59)
+04. Michael Marin - Tonight (Radio Edit) (3:09)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62D126CD19B09E7AED103C29656D2DD165CCB6BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290666   (676205) от 21.03.2019
+
+VA - N'Dance Vol. 1 (2004) [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_676205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Narcotic Thrust - I Like It (Sinewave Surfers 2am rmx) (5:26)
+02. Shana Vanguarde - Gimme! Gimme! Gimme! (Midnight radio edit) (3:24)
+03. Boomfunk MC's - No Way In Hell (Royal Gigolos rmx) (5:19)
+04. Prodigy - Girls (4:06)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9857005E4D5F762DAB0AAC8AAC14E999ED47D879
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290668   (676301) от 21.03.2019
 
 VA - N'Dance Vol. 2 (2005) [MP3|320 Kbps] <Eurodance, Euro-House>
@@ -608,87 +689,6 @@ The Teens - One More Chance (1999) [FLAC|Lossless|image + .cue] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE0F4C82FB0A506CBD60BE3B221B466F5D8F1F58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222927   (680784) от 01.05.2018
-
-Kylie Minogue - Golden (2018) Deluxe [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing
-02. Stop Me From Falling
-03. Golden
-04. A Lifetime To Repair(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6480251E79EB406E8FD0B6F17B2F20E4C6268B46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222978   (680920) от 01.05.2018
-
-Leroy Gomez & Santa Esmeralda - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_680920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Родился в городе Cape Cod, штат Массачусетс. В возрасте 14 лет уже сформировал свою собственную группу. После работы с местными группами и освоив вокал и саксофон был привлечен на тур с Tavares по США, Канаде и Европе, где влюбился в Париж и решил сделать его своим домом. Первый солист группы Santa Esmeralda. Альбом "Don`t Let Me Be Misunderstood" получил (   Читать дальше...   )Список альбомов:
-1977 - Santa Esmeralda Starring Leroy Gomez - Don't Let Me Be Misunderstood
-1978 - Leroy Gomes - Gipsy Woman
-1978 - Leroy Gomez - Number One Man(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 02:28:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B90F3C18214810AD9E34CDF5954CC927ACF43E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222862   (681081) от 01.05.2018
-
-VA - Ultimate... Party Anthems (2018) 4CD [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Ronson Feat. Bruno Mars - Uptown Funk
-02. R. Kelly - Ignition (Remix)
-03. Meghan Trainor - All About That Bass
-04. P!nk - Get The Party Started(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B9F532DCCF7E24D2363472E5E232B422074110
 ```
 
 

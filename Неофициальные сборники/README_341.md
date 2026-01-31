@@ -1,3 +1,30 @@
+###  Публикация: 1554759   (571810) от 02.06.2022
+
+VA - Hit Music: лето (2022) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vlad Brisby - Cause I'm in Luv
+002. DNCE - Move
+003. Filatov & Karas feat. Лигалайз - Будущие Мамы 2.0
+004. Parov Stelar feat. Anduze - Lights Off(   Читать дальше...   )Жанр: PopПродолжительность: 15:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0F72098ADEF64536A3C48ADE06CC4318DDC057
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043378   (571863) от 16.08.2016
 
 VA - Клубная Молодёжная Вечеринка (2016) [MP3|269-320 Kbps] <Dance, Club, Pop>
@@ -666,33 +693,6 @@ VA - Lounge Cafe: Music for Relaxation (2016) [MP3|320 Kbps] <Downtempo, Chillou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBFB56248C10ADA92D40E8B22533D79916A58587
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043323   (572841) от 16.08.2016
-
-VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Аркадиас - Здравствуй Любовь Моя
-002. Slider & Magnit Feat. Penny Foster - Another Day In Paradise
-003. Агонь - Отпусти
-004. Karen Туз Feat. Gaya Khan - Сеньорита(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5AA5FC35BCA0664A2A363C4FE6F1ACED119D32
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1227246   (648588) от 25.05.2018
+
+VA - House Summerlove 2018 [MP3|320 Kbps] <House, Dance, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Schulz Marc Scibilia - Unforgettable
+02. Lost Frequencies Zonderling - Crazy
+03. Ofenbach Nick Waterhouse - Katchi (Ofenbach Vs. Nick Waterhouse)
+04. James Hype feat. Kelli-Leigh - More Than Friends(   Читать дальше...   )Жанр: House, Dance, Electro HouseПродолжительность: 02:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA8430D632E4B84B6A17371186B98764CB4AE87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141889   (648621) от 11.06.2017
 
 VA - Chilling Saturday Nightlife (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -667,30 +694,6 @@ Norihito Suda, Stijn Huwels - Sansui (2019) [FLAC|Lossless|tracks + .cue] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:643490024393D05578FA612EA6CC4DD8A71AECEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517072   (648992) от 30.06.2012
-
-David Wright - 21 albums (1991 - 2011) [MP3|128-320 кб/с]<Progressive Electronic, Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Electronic, AmbientПродолжительность: 01:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFB35C35F46E71EFC93EEC12A31D535BB9E2EEA
 ```
 
 

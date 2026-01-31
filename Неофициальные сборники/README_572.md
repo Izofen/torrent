@@ -1,3 +1,30 @@
+###  Публикация: 1108540   (862581) от 25.02.2017
+
+Livin' Blues - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shylina
+02. I Came Home At Night
+03. One Night Blues
+04. Sunrise(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:28:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE51AA87096C13B03C9E5B35F23127CF44FA4CAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999631   (862670) от 23.03.2016
 
 VA - 200 Tracks for Running & Jogging (2016) [MP3|320 кб/с] <Fitness & Workout>
@@ -668,33 +695,6 @@ VA - Pool Party Techno (2020) [MP3|320 Kbps] <Techno, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250EE5AEAC3FF350446056C23E7D9AE0D789434D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375759   (864011) от 15.04.2020
-
-VA - Beatport Psychedelic Trance: Sound Pack #59 (2020) [MP3|320 Kbps] <Psy Trance, Goa>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864011.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Antaluk - Gita Sun
-002. Estefano Haze - Spirituality In Action
-003. Sunrazers - Karma
-004. Eguana - Holographic Artifact(   Читать дальше...   )Жанр: Psy Trance, GoaПродолжительность: 12:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9681D94A4E025174A62800FDF68A0DF095079D0E
 ```
 
 

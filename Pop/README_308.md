@@ -1,3 +1,84 @@
+###  Публикация: 1498493   (856047) от 27.09.2021
+
+Papaya -  Pink (1999) [FLAC|Lossless|tracks + .cue] <Bubblegum>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Operator 3:42
+02. Hero 3:34
+03. Pink Dinosaur 3:10
+04. Supergirl (Original Single Version) 3:38(   Читать дальше...   )Жанр: BubblegumПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE72DC4C6A4FE797986DAA34196DDA07E94EEC3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376916   (856668) от 19.04.2020
+
+VA - 100 Ballads (2020) [MP3|320 Kbps] <Pop, Ballads>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_856668.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rod Stewart - Have I Told You Lately 4:02
+002. Tina Turner - What's Love Got To Do With It 3:47
+003. Seal - Kiss From A Rose 4:48
+004. Whitesnake - Is This Love 4:45(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 06:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2B255FFF9CF8D5B7D73D792E009420589AC171
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109728   (857062) от 28.02.2017
+
+Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857062.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Atmosphere
+2. I Got You
+3. Small Doses
+4. Fuck Fake Friends (feat. G-Eazy)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109789   (857233) от 28.02.2017
 
 Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
@@ -620,87 +701,6 @@ Sea Cruise - Sea Cruise (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47860F4EFDE25203394FAF40389C84A7F2BC89D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000136   (860648) от 24.03.2016
-
-AURORA (Aksnes) - All My Demons Greeting Me As A Friend (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Alternative Art Pop, Indie Pop, Synthpop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway
-02. Conqueror
-03. Running with the Wolves
-04. Lucky(   Читать дальше...   )Жанр: Alternative Art Pop, Indie Pop, SynthpopПродолжительность: 01:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B514FA7E571CC8D1979F2723C9710A2112FF918B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999824   (860719) от 24.03.2016
-
-Валерий Меладзе - Всё Так И Было (1999) [FLAC|Lossless|tracks + .cue] <Schlager, Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мечта (3:02)
-02. Всё так и было (3:28)
-03. Красиво (4:45)
-04. Рассветная (3:41)(   Читать дальше...   )Жанр: Schlager, PopПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B4406AFA9C0836FD62698EFC3AB8EB0F15A757
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109094   (860750) от 26.02.2017
-
-Sandra - Paintings In Yellow (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hiroshima (6:52)
- 02. ( Life may be ) A big insanity (4:30)
- 03. Johnny wanna live (4:29)
- 04. Lovelight in your eyes (5:29)(   Читать дальше...   )Жанр: Pop, EuropopПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBA509042102224CDFFDFB04591B8A5EB0A4AAA
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1035090   (630039) от 15.07.2016
+
+VA - American Road Blues (2016) [MP3|192-320 Kbps] <Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_630039.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Barbara Paul - Women Be Wise
+002. Big Boy Bloater & The Limits - I Love You
+003. Irma Thomas - Time Is on My Side
+004. Vargas Blues Band - Space Jam(   Читать дальше...   )Жанр: Blues RockПродолжительность: 07:15:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF39C854959FE9497F706F0FF07A71C67138969
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035071   (630057) от 15.07.2016
 
 VA - Зайцев.Нет - Лучшие Новинки Июля (2016) [MP3|188-320 Kbps] <Рор>
@@ -728,39 +755,6 @@ VA - Good To Be Alive (2019) [MP3|320 Kbps] <Blues, Rock Blues, Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C449DBE0A652F2420DE51F9009725C80A4CEFC07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518398   (631726) от 09.07.2012
-
-VA - Furious Dubstep Attacks From Evolinte (2012) [MP3|320 кб/с]<Dubstep, Drumstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631726.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 1Up - Thundergun
-2. Bare - The Gate
-3. Barron - Bambatta
-4. Bratkilla - Betrayal
-5. Bratkilla - Prepare For Annihilation
-6. Cenobite - Onslaught
-7. Chrispy & Point.Blank - Move Bitch
-8. Downlink - Station Seven
-9. Figure - God Slay The Fiend
-10. Friction & Nu Balance - Robocop (Taxman Robostep VIP)(   Читать дальше...   )Жанр: Dubstep, DrumstepПродолжительность: 02:17:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C9FEEA1F36E57AED5E938B7D3BED986EF19DF8
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 976148   (969841) от 17.01.2016
+
+VA - Super Bomb Electro 54 (2015) [MP3|320 кб/с] <Electro House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_969841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 22Bullets - It's Time (Original Mix) (4:33)
+02. Alvaro & D-Wayne - Take U (Original Mix) (4:20)
+03. Apashe, Sway - I'm a Dragon (Jaycen A'mour Remix) (5:18)
+04. Apster - Get Down Like That (Original Mix) (4:09)(   Читать дальше...   )Жанр: Electro House, ElectroПродолжительность: 03:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0286981BE50AFD711C1F090A07F4F240BC65119E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976486   (969844) от 17.01.2016
 
 VA - Winter Chill Essentials (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -672,33 +699,6 @@ VA - Catalyst: Basslife DnB (2020) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubs
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0963CC3D9F66D7AA471B9782368D2CE87D599CB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975475   (971922) от 15.01.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 21 ) (2016) [MP3|203 - 320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danuta - Touch My Heart ( Nigvo`s Remix ) (05:09)
-02. Blue System - Dirty Money (Efimenko Remiх ) (03:13)
-03. Fancy - Flames Of Love (Multi Extended Version) (08:08)
-04. Kate Ryan - Voyage, Voyage (George Airbullet Remix) (06:30)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20910AAC2558C521C9FC0815EEE7A12B5B709F5A
 ```
 
 

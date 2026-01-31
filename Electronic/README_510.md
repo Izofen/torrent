@@ -1,3 +1,30 @@
+###  Публикация: 1391455   (1023090) от 02.04.2021
+
+Gold Lounge - Discography: 9 Releases (2011-2021) [MP3|320 Kbps] <Chillout, Electronic, Lounge, Ambient>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023090.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - Spirals
+2012 - Double Life
+2015 - Livin' In A Golden State (Single)
+2018 - Floating(   Читать дальше...   )Жанр: Chillout, Electronic, Lounge, AmbientПродолжительность: 05:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C32B04713FA17861EA7F13E177F03487A8577BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366701   (1023101) от 02.04.2021
 
 nthng | Trancemaster  - Discography 13 Releases (2014-2021) Lobster Theremin, Mörk [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
@@ -657,33 +684,6 @@ Dunaewsky69 - Discography 13 Releases (2004-2020) Kvitnu, Section 27, DUN69 [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C01839C36D71877AEFEF3C890902F1E85D7147F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457460   (1024433) от 26.03.2021
-
-VA - Midnight Walk: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1024433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup - Something to Say (04:18)
-02. Chris Le Blanc - Debussy En Es Vedra (Salinas Mix) (04:22)
-03. Marie Therese - Massive in My Head (03:58)
-04. Pier-O - Midnight Walking at Le Pont Des Arts (05:03)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACCE35ADAC6FB496B2E3D9B1A3148C912B63D71
 ```
 
 

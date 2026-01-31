@@ -1,3 +1,30 @@
+###  Публикация: 1047393   (550250) от 29.08.2016
+
+VA - 150 Cross Amsterdam: Summer Dance Party (2016) [MP3|~270-320 Kbps] <Dance, Club, House, Electro, Funky, Hands Up>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_550250.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sia - Cheap Thrills (Feat. Sean Paul)
+002. Avicii Vs Conrad Sewell - Taste The Feeling
+003. Birdy - Keeping Your Head Up (Don Diablo Remix) (Radio Edit)
+004. Mike Posner - I Took A Pill In Ibiza (Seeb Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro, Funky, Hands UpПродолжительность: 09:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877711257348CD568F2006E171E502192A1D537D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047389   (550256) от 29.08.2016
 
 VA - Body Control: Fitness Mix (2016) [MP3|320 Kbps] <Dance, Club, Pop, House>
@@ -668,33 +695,6 @@ VA - Deep House Collection Vol.180 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:749191056227BA6D6371E9DC86A0D57CFAF2B220
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237330   (552095) от 23.07.2018
-
-VA - Club Dance Ambience Vol.157 (2018) [MP3|320 Kbps] <Dance, Club, House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_552095.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 0045  &  El Niño  - Act Like Ya Know (Justin James (Chicago) Remix)
-002. Adri Block - Be Good (Original Mix)
-003. al l bo & Victoria Romanova feat. DJ Alex N-Ice - We Are Winners (Original Mix)
-004. al l bo - Thriller (Hopeful Peace Instrumental Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D87918721DFF3BFBA1A049A318DBE3404C456DA5
 ```
 
 

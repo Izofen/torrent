@@ -1,3 +1,30 @@
+###  Публикация: 1210052   (778823) от 02.03.2018
+
+Moby - Everything Was Beautiful And Nothing Hurt (2018) [MP3|320 Kbps] <Downtempo, Electronic, Trip Hop>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mere Anarchy  5:15
+02.  The Waste Of Suns  4:45
+03.  Like A Motherless Child  4:37
+04.  The Last Of Goodbyes  4:24(   Читать дальше...   )Жанр: Downtempo, Electronic, Trip HopПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C23983080B733DD163F81776E49AA394C6247A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210392   (778869) от 02.03.2018
 
 VA - Armada Miami (2018) [MP3|320 Kbps] <House, Progressive, Trance>
@@ -668,33 +695,6 @@ VA - Ambient-E: Chapter 6 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DACFE5677DFE1860236A0394A377205AF9727FCE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209044   (779501) от 25.02.2018
-
-VA - Ladies Of Synth Vol.2 (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synthpop, Synthwave, Retrosynth>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ships In The Night  -  Myriologues  3:30
-02.  Roxi Drive & Neon Black  -  Behind The Mask  4:40
-03.  The Van Dammage  -  Two Sides  5:22
-04.  From Apes To Angels  -  New Skin  3:54(   Читать дальше...   )Жанр: Synthpop, Synthwave, RetrosynthПродолжительность: 03:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C254C4F9CED0AF9350876EE3F7EE2DE02DA7D0D
 ```
 
 

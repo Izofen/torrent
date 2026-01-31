@@ -1,3 +1,30 @@
+###  Публикация: 1092246   (940247) от 11.01.2017
+
+VA - Music for Pregnant Women: Soft Relaxing Chill for those expecting a baby (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_940247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.I.B. - Games Rain - Chillout Mix
+02. Georgy Om - Ocean
+03. The Orange - Anywhere Anytime Is You - Chillout Mix
+04. Tony Sit - Expectation - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A1A4A36F7A8D446F4EBF6F8860D354DABBFE08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092076   (940302) от 11.01.2017
 
 VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
@@ -672,33 +699,6 @@ VA - Best Remixes, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5606FDB5B16A091CD0D91F97B4F817085E35AF15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363647   (941890) от 28.02.2020
-
-VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eddie Bitz - Believe (Sincere Sound Remix) (6:34)
-02. Phillipo Blake - Ripples (Zmey Remix) (6:34)
-03. Nikk Nova - 4 Seasons (Alexey Sorokin Remix) (5:53)
-04. Briana - Life Keeps On Going (Goldhands Remix) (6:36)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C82FA1C355E70C2E6F9FD4F77E68D29A5FFECA9E
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1208027   (780298) от 20.02.2018
+
+Schwefelgelb - Den Umgekehrten Atem (2017) Fleisch [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro, Industrial>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_780298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Im Wasser (04:42)
+ 02. Das Armellose Hemd (05:32)
+ 03. Stillhalten (05:59)
+ 04. Um Meine Haut (05:34)Жанр: Techno, Electro, IndustrialПродолжительность: 00:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4407FC220F134324528604A283D319FEA29AC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207705   (780302) от 20.02.2018
 
 VA - Fresh Squeezed Chillout (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -663,33 +690,6 @@ Phon.O - Collection 16 Releases (2005-2020) 50Weapons, Shitkatapult, BPitch Cont
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D8D3DB53245626772D5BA846F5033936F4B4BA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391190   (781404) от 19.06.2020
-
-Boris Brejcha - Cocoloco (Live Stream Part 2) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocoloco (8:02)
- 02. Eternity (7:12)
- 03. Ducktape (7:35)
- 04. Heaven Trip (6:57)(   Читать дальше...   )Жанр: Electronic, Tech House, MinimalПродолжительность: 00:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983D6DF90A93D7A4ADCF5F56873D8086D3EB329A
 ```
 
 

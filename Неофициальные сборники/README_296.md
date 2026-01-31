@@ -1,3 +1,30 @@
+###  Публикация: 935894   (497581) от 10.09.2015
+
+VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_497581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoboken - Loungin it
+02. Il Greco - Nippon Horn
+03. Belloq - Naples Bay
+04. Sabado Playground - Ipanema Beach(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A73FD401B4026DA6AF0307348DB86C0A58FB29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564925   (497637) от 21.07.2022
 
 VA - Italo Disco & Old Funky (2022) [MP3|320 Kbps] <Disco, Dance, Remixes>
@@ -709,37 +736,6 @@ VA - Подарок любимой женщине / Подарунок коха�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D044D677F54F9B262E263925CAA4826AB93BF5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541104   (499178) от 02.09.2012
-
-VA - Enigmatic History (2010) [MP3|256 кб/с]<World music, World beat, New Age, Ethnic Fusion>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_499178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wychazel
-
-01. Rite of the Rainmaker
-02. The Heart of the Cloudforest
-03. The Lost Path
-04. Tears from the Moon
-05. The Soulfinder's Quest
-06. After the RainЖанр: World music, World beat, New Age, Ethnic FusionПродолжительность: 05:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF282E04BE84C9D6C549C477EFA0E30367DC6DD4
 ```
 
 

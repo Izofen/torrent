@@ -1,3 +1,84 @@
+###  Публикация: 1622813   (1029794) от 30.03.2023
+
+VA - Pop Classics (2023) [MP3|320 Kbps] <Disco, Funk, R&B, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - About Damn Time
+02. Ed Sheeran - Shivers
+03. Bruno Mars - Locked Out of Heaven
+04. Ava Max - Maybe You're the Problem(   Читать дальше...   )Жанр: Disco, Funk, R&B, Synth-popПродолжительность: 02:37:15 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:640CCB1835784D858A5D55929EE6CC6EA8AF2624
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622877   (1029799) от 30.03.2023
+
+VA - Party Mix (2023) [MP3|320 Kbps] <Electropop, Dance, Future House, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KXXMA - Herz an Herz
+02. Drenchill, Jorik Burema - Starlight
+03. nullzwei, Chris Sigl, BERTHAJU - JESUS IN BERLIN
+04. Felix Jaehn - Wishlist(   Читать дальше...   )Жанр: Electropop, Dance, Future House, SynthpopПродолжительность: 02:30:53 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5BFC4D2B1C0C261421EF8B7359025AA899AD73A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449366   (1029966) от 21.02.2021
+
+Ariana Grande - Positions (2021) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. shut up
+02. 34+35
+03. motive (feat. Doja Cat)
+04. just like magic(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3AC11FADF02F66E2C4D44B651E7E2893806EB57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449337   (1029993) от 21.02.2021
 
 Каста & Runawaymuzic - Ремиксы Дроп 1 (2021) [MP3|320 Kbps] <Dance, Electronic, Rap>
@@ -614,87 +695,6 @@ Pentatonix - The Lucky Ones (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90FD2381D6D787FDA34F29BF284F75566FB8077E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447994   (1031389) от 15.02.2021
-
-Roxy Robinson - Silence And Other Sounds (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On (5:14)
-02. Let The Love Like Shine (3:09)
-03. Lonely Is The Night (4:12)
-04. Nice And Easy (4:02)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC26119A8F8D237D12526341DD1F442B6DDC7459
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447797   (1031544) от 14.02.2021
-
-Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (3:04)
-02. Don't Start Now (3:03)
-03. Cool (3:29)
-04. Physical (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F94B268CCA8F6FAB69CE555063C6AFA8D33169
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447693   (1031624) от 14.02.2021
-
-VA - The Best Love Songs Album In the World...Ever! (2021) [MP3|320 Kbps] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Someone You Loved (3:02)
-02. Calum Scott - Dancing On My Own (4:20)
-03. Justin Bieber - Love Yourself (3:52)
-04. Alessia Cara - Scars To Your Beautiful (3:50)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:40:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE821D9FE66A493A7D183864ABBB73E862F9DD9
 ```
 
 

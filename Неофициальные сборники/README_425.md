@@ -1,3 +1,30 @@
+###  Публикация: 1135735   (679383) от 20.05.2017
+
+VA - Драйвовый весенний музон. Часть № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679383.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Scarlett - Дистанция 3:23
+002. Алиса Вокс & Феликс Бондарев - Зал Ожидания 3:22
+003. Ужезима - Города 3:20
+004. Дмитрий Первушин - Ты Меня Не Любишь Не Жалеешь 3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297B8E847A14719656D29D72B06DD2A1D0671F83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135816   (679420) от 20.05.2017
 
 VA - Microversion Live To Exist: Psy Trance (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
@@ -681,39 +708,6 @@ VA - The Official UK Top 40 Singles Chart (15-06-2014) [MP3|320 кб/с]<Pop, Da
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B11CD5AC4977A3CD3C4D2C796C4C407CF7B515E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508117   (681751) от 09.06.2012
-
-VA - Trance Mixtape (Flaming June) (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rank 1 & Jochen Miller Feat. Sarah Bettens - Wild And Perfect Day (Darwin & Backwall Remix) [4:59]
- 02. Evol Waves - Nobody Knows (Original Mix) [5:15]
- 03. Marcus Schossow - Never Say Never (Original Mix) [6:03]
- 04. Sean Tyas - Lekta (Original Mix) [6:09]
- 05. Ashley Wallbridge - Zorro (Club Mix) [5:41]
- 06. Xtigma Feat. Sarah Russell - Take Your Hand (Michael Badal Remix) [5:36]
- 07. Ferry Corsten - Live Forever (Shogun Remix) [6:49]
- 08. Maarten De Jong - Messier (Extended Mix) [5:38]
- 09. Poshout Feat. Ange - Beside (Extended Mix) [6:52]
- 10. Simon Patterson - Northern Lights (Original Mix) [7:04](   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C51E5F3B7159461EE3FF4BF059ABF96266784A2
 ```
 
 

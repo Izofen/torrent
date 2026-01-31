@@ -1,3 +1,30 @@
+###  Публикация: 1276408   (787973) от 16.01.2019
+
+Pill-Oh (Zinovia) - Vanishing Mirror (2012) Kitchen. Label [FLAC|Lossless|WEB-DL|tracks] <Ambient, Modern Classical>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_787973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. February Tale (03:40)
+ 02. Notebook (04:00)
+ 03. Stolen Moments (03:24)
+ 04. Fields of Yellow Leaves (02:34)(   Читать дальше...   )Жанр: Ambient, Modern ClassicalПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39DDA510D45ED231C11389F5318B06924C21AD6C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203374   (788127) от 02.02.2018
 
 François X (Francois X) - Irregular Passion (2017) Dement3d [FLAC 2.0|44.1/24|tracks|WEB-DL] <Techno, Ambient, Experimental>
@@ -668,33 +695,6 @@ VA - Deep House | Odyssey, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D93FF85C07A9CE6BE205C8253F9094F010AB6D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203256   (788669) от 01.02.2018
-
-Lostly - Outburst presents Spotlight (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_788669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lostly – Since (Album Mix)
-02. Lostly – The Art of Acid (Album Mix)
-03. Lostly & Emma Gillespie – Nightwalker feat. Emma Gillespie (Album Mix)
-04. Lostly – Rage at the Stars (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EF9F4766BFDEB6EA8E6012858A61D4D8004437
 ```
 
 

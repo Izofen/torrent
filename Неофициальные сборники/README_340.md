@@ -1,3 +1,30 @@
+###  Публикация: 922323   (569817) от 28.07.2015
+
+VA - Летние super новинки. Часть 3 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_569817.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eduard De Costa - Summer Time
+002. Валенсия И Андрей Гражданкин - Лепестки Белых Роз
+003. Lx24 - Когда Ты Рядом Со Мной
+004. Dami Im - One More Time(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98B1C9CA852A5EC1C12E41946162B11A0090264
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922352   (569878) от 28.07.2015
 
 VA - House Progressive: Dance Everybody (2015) [MP3|320 кб/с]<Progressive House>
@@ -685,33 +712,6 @@ VA - Dont Stop A Sexy Lounge Collection Bonus Version (2015) [MP3|320 кб/с]<D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB1EC93DA2BA35B10464E535E979A91C18C65229
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554759   (571810) от 02.06.2022
-
-VA - Hit Music: лето (2022) от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_571810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vlad Brisby - Cause I'm in Luv
-002. DNCE - Move
-003. Filatov & Karas feat. Лигалайз - Будущие Мамы 2.0
-004. Parov Stelar feat. Anduze - Lights Off(   Читать дальше...   )Жанр: PopПродолжительность: 15:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0F72098ADEF64536A3C48ADE06CC4318DDC057
 ```
 
 

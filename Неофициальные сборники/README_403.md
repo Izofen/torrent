@@ -1,3 +1,30 @@
+###  Публикация: 1031538   (652153) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 58 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bay City Rollers - Give A Little Love ( 1975 )
+02. Paul Parker - Too Much To Dream ( 1983 )
+03. Europe - Carrie ( 1986 )
+04. Mozzart - Devil's Rendezvous ( 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A33188B044E81201803B2DD49B170910A757790
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031508   (652155) от 04.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 53 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -689,39 +716,6 @@ VA - A State Of Vocal Trance Volume 01 - 50 (2012-2015) [MP3|320 кб/с]<Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E934F6E8B2974580BC7453C7C118361E2E7455E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516283   (653109) от 28.06.2012
-
-VA - Радио Чарт Energy - Жгучий Танцевальный Сборник 50/50 (2012) [MP3|256 kbps]<Pop|Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_653109.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Bad Boys Blue - I'll Be Good
-002 Группа Red Energy - Capital Nigt
-003 Mayari Project - Hayati
-004 Ольга Lucky - Последний Поцелуй (Руки Вверх)
-005 Itaka - La Danza De Ibiza (Zumpa Remix Radio Edit)
-006 Дискотека Авария и Нюша - Moscow Never Sleeps
-007 Demi Lovato - All Night Long (Feat. Missy Elliott & Timbaland)
-008 Тимур Темиров - Лето Жаркое
-009 Radio Killer - Is It Love Out There (Radio Edit)
-010 Vilana - Море(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 05:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5446CC9046D3254DD93AD633D2281AF0271A7B9F
 ```
 
 

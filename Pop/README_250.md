@@ -1,3 +1,84 @@
+###  Публикация: 211566   (696215) от 19.06.2010
+
+Блестящие - 7 альбомов (1997-2006) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_696215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:07:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221281   (696611) от 23.04.2018
+
+ВИА Песняры - Продолжнение (2018) [MP3|320 Kbps] <Retro, Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696611.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Я лiцвiн
+3. Разам быць
+4. Сокал(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35AE5B68DE0EDA524A4EC9BC208A8B0C0CC298E7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221171   (696729) от 23.04.2018
+
+VA - Ultimate Disco (4CD) (2018) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_696729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Earth, Wind & Fire - September
+02. The Jacksons - Blame It On The Boogie
+03. Heatwave - Boogie Nights(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:16:17
+
+01. The Jacksons - Shake Your Body (Down to the Ground)
+02. Luther Vandross - Never Too Much(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1F2CAFFC13364462AE2CF3436A8CF781C31213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133044   (696782) от 11.05.2017
 
 Leftfield - Leftism 22 (1995) Remastered & Remixed, 2017, Sony Music, 2CD [MP3|320 Kbps] <Electronic, Leftfield, Progressive House, Breaks>
@@ -611,87 +692,6 @@ magnet:?xt=urn:btih:14DA341A61B196129A837087CD314797E396F3E6
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C5485B197787513B8E4C1D472B8A738D51C9652
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027127   (699963) от 17.06.2016
-
-VA - 100% Hits Vol. 1 (2016) Box Set [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редко выходят такие хорошо сбалансированные сборники. Каждый найдет в нём треки по своему вкусу. Все три жанра, вынесенные в заголовок оформления раздачи реально соответствуют содержанию. Слушайте в удовольствие...01. Charlie Puth - One Call Away  (3:10)
-02. Twenty One Pilots - Stressed Out  (3:22)
-03. Kiiara - Gold  (3:39)
-04. Rudimental feat. Ed Sheeran - Lay It All On Me  (3:31)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E43E1F2E32F0B59314AA36FA1C783FA2826A3E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026855   (700199) от 17.06.2016
-
-Kim & Buran - Orbita (2016) [MP3|320 кб/с] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delayed Flight (5:54)
-02. Breeze (4:15)
-03. Jet Disco (4:28)
-04. Voyager (4:29)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A236856141D3C4A9BBDAD1999A98D319406108B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027002   (700337) от 17.06.2016
-
-The Cascades - Hits And Rarities (1993) [MP3|320 кб/с] <60's Pop, Oldies>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm Of The Rain
-02. Let It Be Me
-03. There’s A Reason
-04. Second Chance(   Читать дальше...   )Жанр: 60's Pop, OldiesПродолжительность: 00:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0B9EADA1C5BE8562EB70CF86FE802C5F2D5894A
 ```
 
 

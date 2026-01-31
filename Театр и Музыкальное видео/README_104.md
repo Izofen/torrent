@@ -1,3 +1,51 @@
+###  Публикация: 1300917   (585992) от 10.05.2019
+
+Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) BDRemux [H.264/1080p] [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585992.jpg" />
+</div>
+
+
+###  Подробнее
+
+The iconic duo's acclaimed production, first presented at the Royal Opera House in 2016 over four sold-out shows, was reprised at the venue for a further four nights in July 2018 as part of their 'Super' tour. Staged by long-term PSB designer Es Devlin and choreographer/director Lynne Page, the show was filmed by director David Barnard. Filmed on 27 and 28 July 2018, (   Читать дальше...   )Производство: Великобритания, Pet Shop Boys Partnership LimitedЖанр: Synth-pop, Dance-pop, New waveРежиссер: David BarnardПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF83C61444553C30D48F430539D4999A5C657B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300929   (586050) от 10.05.2019
+
+Pet Shop Boys ‎– Inner Sanctum (Live At The Royal Opera House, 2018) (2019) Blu-ray [H.264/1080p] [EN]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586050.jpg" />
+</div>
+
+
+###  Подробнее
+
+The iconic duo's acclaimed production, first presented at the Royal Opera House in 2016 over four sold-out shows, was reprised at the venue for a further four nights in July 2018 as part of their 'Super' tour. Staged by long-term PSB designer Es Devlin and choreographer/director Lynne Page, the show was filmed by director David Barnard. Filmed on 27 and 28 July 2018, (   Читать дальше...   )Производство: Великобритания, Pet Shop Boys Partnership LimitedЖанр: Synth-pop, Dance-pop, New waveРежиссер: David BarnardПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:15 + 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21BCEB820F947EC0F658BF8B6BDE79D310B957C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584615   (586673) от 15.07.2015
 
 Linkin Park - Rock in Rio (2012) HDTVRip 720p
@@ -635,61 +683,6 @@ magnet:?xt=urn:btih:CE2CA22BD76157A5B482A930471C39EE7D28FEA7
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2884C1FF8078C5BB25C245F61E97F71B62A87559
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926343   (594951) от 14.07.2017
-
-Золотая коллекция ретро Тамара Миансарова (2007) DVDRip [H.264] [hand made colored]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594951.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 редчайших высокохудожественных видеоклипов производства 60-х-70-х годов, плюс дополнительный материал, содержащий запись концерта 2005 года, посвященного юбилею исполнительницы - все эти записи не могут оставить равнодушным ни одного человека, знакомого с творчеством Тамары Миансаровой.
-Черно-белые кадры первых 7 клипов раскрашены методом цветного компьютерного (   Читать дальше...   )01. Парасольки
-02. Сказка о любви
-03. Рыжик (Руды рыдз)
-04. Еду я(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 02:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06ABEA830672DEEF1CD459A40E98EB9E18EB4817
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526904   (595317) от 25.07.2012
-
-Григорий Лепс. Концерт в день рождения (2012) DVB
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Григорий Лепс один из немногих исполнителей, кто может позволить себе любой творческий эксперимент. Лепс представляет собой удивительный сплав всех музыкальных направлений, и именно в этом уникальность этого артиста, принесшая ему без преувеличения всенародную любовь и бешеную популярность. За рюмкой водки мы либо поем лихие "кабацкие" песни, либо философствуем (   Читать дальше...   )01. Приказ
- 02. Вьюга
- 03. Крыса-ревность
- 04. Настоящая женщина(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:21:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA76ED68E2C59DC61B52F8B63A1B5BF33326C487
 ```
 
 

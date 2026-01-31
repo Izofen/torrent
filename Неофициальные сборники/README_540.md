@@ -1,3 +1,30 @@
+###  Публикация: 1118717   (811659) от 26.03.2017
+
+VA - The Fourth Dimension: Psy Trance (2017) [MP3|320 Kbps] <Psychedelic, Psy Trance, Goa Trance, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811659.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Static Movement Vs. Impact - Atlantic Spirit (Vertex Rmx) 07:29
+002. Bionic Delay - Increasing Scale Factor (feat. Alternate Side) 08:17
+003. Electronic Traffic Feat. Tikki Masala - Nomad 13:31
+004. Imba - Cosmos In Her Eyes 08:08(   Читать дальше...   )Жанр: Psychedelic, Psy Trance, Goa Trance, Full OnПродолжительность: 12:58:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A975854E7F57AE5FAE1C6CF772903DD6E65391F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1118709   (811676) от 26.03.2017
 
 VA - Hedkandi: 100 European EDM (2017) [MP3|320 Kbps] <Club, Dance, House, Electro>
@@ -668,33 +695,6 @@ VA - Classic Latin (2020) [MP3|320 Kbps] <Latin, Salsa, Rumba>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CCE5D340061D9F9171AD9D99C42462B81E9B515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383074   (813738) от 14.05.2020
-
-VA - Pop Jam Vol.03 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_813738.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Banks feat. Francis - Look What You're Doing To Me
-002. Ehla - On Me Dit Ehla
-003. Inna - Fuego
-004. Grand Palladium - Into Limbo(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964CF629CB84780B72E636B9E17B9DE616D3ECE8
 ```
 
 

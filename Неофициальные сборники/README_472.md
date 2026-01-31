@@ -1,3 +1,30 @@
+###  Публикация: 1217320   (743478) от 04.04.2018
+
+VA - Deep Inspirational Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_743478.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daniel Mayk - Best Jump (Quiteland Piano Mix)
+002. Kite Lost - Popular Odor
+003. Tony Ramblin - Ferries (Ron Morrison's Deephouse Mix)
+004. DJ Mr Gogo - The Cellar of the Secrets(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A09690B5EFEFE26FD8946F70F7B6A5A70E2A55F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020575   (743570) от 27.05.2016
 
 VA - Зарубежная Дискотека ХХ Века - 16 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
@@ -668,33 +695,6 @@ VA - 70s Disco Classics Reloaded (2016) [MP3|320 кб/с] <Pop, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C79442B267C430F292B902EF1E6E41B6C836FC72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020878   (743810) от 27.05.2016
-
-VA - Party Hits Summer Editions (3 CD) (2016) [MP3|241-320 кб/с] <Disco, Club, Bigroom, Nu-Funk, Grime, Big Beat>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743810.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 House:
-01. Air-Lines - New Game (Original Mix) 07:46
-02. Arno Cost & Norman Doray - Apocalypse 2014 (Kryder & Tom Staar Remix) 05:42
-03. Audien & Matthew Koma - Serotonin (Original Mix) 05:08(   Читать дальше...   )Жанр: Disco, Club, Bigroom, Nu-Funk, Grime, Big BeatПродолжительность: 12:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6452D34D41B18EBD8B27CBF7804F17552F64CBFC
 ```
 
 

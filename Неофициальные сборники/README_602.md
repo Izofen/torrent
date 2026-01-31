@@ -1,3 +1,30 @@
+###  Публикация: 991451   (906316) от 28.02.2016
+
+VA - LUXEmusic Топ Февраль (2016) [MP3|320 кб/с] <Club House, Dance, Electro House, House Music, Mash Up, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_906316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Hello (DJ PitkiN Remix)
+02. Alekseev - Пьяное Солнце (OlegPerets & Ivan Flash Remix)
+03. Alex Kafer - Так говорят во сне (DJ Denis Rublev Remix)
+04. Anthony El Mejor pres. Мурат Насыров Cover - Я Это Ты (DJ Denis Rublev & DJ Anton Cover Mix)(   Читать дальше...   )Жанр: Club House, Dance, Electro House, House Music, Mash Up, PopПродолжительность: 03:21:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937B7E0E5E8EB82FAA65D29AC62B64AFB2E86C53
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 991476   (906325) от 28.02.2016
 
 VA - Auto Dance Party Vol.2 (2016) [MP3|320 кб/с] <Dance>
@@ -668,33 +695,6 @@ VA - Nude Mix #1 (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7737B75BA67700818EEF842C370C1F81D4BA9A75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991054   (907824) от 27.02.2016
-
-VA - Auto Dance Party N1 (2016) [MP3|320 кб/с] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907824.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adele - Hello (Ryan Kenney Remix).mp3
-002. Afrojack Ft. Pitbull & Mike Taylor & Gumanev & Shishkov - Summer Thing  (ATOM MIX MASH UP).mp3
-003. Agua Sin Gas By Antoine Clamaran - Oh Yeah (Original Mix).mp3
-004. Alex Hill - Regen The Sky (Original Mix).mp3(   Читать дальше...   )Жанр: HouseПродолжительность: 08:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB5C3F1CF03B14174D74D4E3E27236A037E1AC2
 ```
 
 

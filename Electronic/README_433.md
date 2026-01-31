@@ -1,3 +1,30 @@
+###  Публикация: 1007457   (821703) от 15.04.2016
+
+VA - The Big Ones Vol.8 (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_821703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johan Purl - Riba Noche (Stereosoulz Remix) 07:23
+02. Nico Heinz, Max Kuhn & Fabio de Magistris - Sounds of Island (Robert Fell Remix) 06:23
+03. Jaques Le Noir - Gold Coast (Morsy Remix) 04:57
+04. Nic & Peter - Shakin' (Kevin Prise Remix) 06:52(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93758F9C92D7E307ACEC42D43BF287EDFC9758C2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381898   (822190) от 09.05.2020
 
 Ludovico Einaudi - 12 Songs From Home (2020) [FLAC 2.0|96.0/24|tracks|WEB-DL] <Modern Classical, Ambient, Piano>
@@ -670,33 +697,6 @@ Gabriel and Dresden - Toolroom Knights Mix2 (2007 original) [MP3|256 kbps]<House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC319C0877BFF87E5635294468B80416E29F4610
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007178   (823389) от 14.04.2016
-
-VA - Psychedelic Goa Trance 2016 Vol 1 (40 Best Of Top Hits) (2016) [MP3|320 кб/с] <Psy, Goa Trance>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trinodia - Brutus Softus [06:55]
-02. Declaration of Unity - Prime Consciousness [07:27]
-03. Rony Melo - Let's Go [07:55]
-04. Elegy - Strangers [08:08](   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 05:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D575985807B2943C02664C4B604809D2B5E6ABD0
 ```
 
 

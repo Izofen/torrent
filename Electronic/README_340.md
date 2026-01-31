@@ -1,3 +1,28 @@
+###  Публикация: 1291338   (670569) от 24.03.2019
+
+Ben Gold & Sivan - Stay (Sneijder Remix) (2019) [MP3|320 Kbps] <Trance, Uplifting>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670569.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stay (Sneijder Remix) [03:34]
+2. Stay (Sneijder Extended Remix) [07:52]Жанр: Trance, UpliftingПродолжительность: 00:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560266DAF7EB882B34497FF50375256DE556848F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291432   (670573) от 24.03.2019
 
 VA - Miami Sessions 2019 (Mixed by Milk & Sugar) (2019) [MP3|320 Kbps] <House, Progressive House, Afro House>
@@ -666,33 +691,6 @@ VA - Dance Essentials Vol.10 (2019) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A942A76133FDE7937B9153E9659F8760EC1C4D79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136732   (672648) от 23.05.2017
-
-Hugo Kant - OUT OF TIME (2017) [FLAC|Lossless|tracks] <Downtempo, Trip-Hop, Instrumental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entering the Black Hole
-02. The Earth Dance
-03. Clouds (feat. Astrid Engberg)
-04. The Meeting(   Читать дальше...   )Жанр: Downtempo, Trip-Hop, InstrumentalПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FB51AEF40576B31D52CE2D42F5A77988304CD34
 ```
 
 

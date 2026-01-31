@@ -1,3 +1,30 @@
+###  Публикация: 1021990   (729382) от 01.06.2016
+
+VA - Top 100 Зайцев Нет Май 2016 (2016) [MP3|192-320 кб/с] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729382.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Потап и Настя – Умамы
+2. Светлана Лобода – К Чёрту Любовь!
+3. Alekseev – Пьяное Солнце
+4. Sia – Unstoppable(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 05:58:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF377EE91A16E01DA38DD5516A0AB61DFF3A3614
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022318   (729509) от 01.06.2016
 
 VA - 50 оттенков музыки 18+ (05.2016) [MP3|128-320 кб/с] <Pop, Dance, Electronic, Dubstep, Other, Rock>
@@ -674,33 +701,6 @@ VA - 100% House Music: Top Dance (2019) [MP3|320 Kbps] <House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3B186A275738B48FC1B914F4C7F33D515715322
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530112   (730527) от 09.02.2022
-
-VA - Approaches & Tribute To JJ Cale Compilation (2022) [MP3|320 Kbps] <Rock, Blues,>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_730527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loopahead - Jailer
-02. Loopahead - Lou-Easy-Ann
-03. John Mayer & Eric Clapton - Don't Wait
-04. Dixie Tabernacle - Anyway The Wind Blows(   Читать дальше...   )Жанр: Rock, Blues,Продолжительность: 01:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DEAA4EE337ABF377CAA26733A0886EC4C0F56FA
 ```
 
 

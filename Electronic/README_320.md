@@ -1,3 +1,30 @@
+###  Публикация: 1543134   (631680) от 10.04.2022
+
+VA - Coffee Break Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska - Special (5:26)
+02. M-Sol Project Marga Sol - Silent Traveler (3:57)
+03. Beamy - Sierra De La Plata (4:51)
+04. James Butler - Dinner for Two (Original Mix) (3:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4CD93846646749E3B6813E7DF2E750581B75AF0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952030   (631812) от 03.06.2018
 
 VA - Dream Injection Vol. 1-6 (1995-1998) [FLAC|Lossless]<IDM, Ambient, Downtempo, Trip Hop, Techno, DnB, Trance>
@@ -667,33 +694,6 @@ VA - Boys & Girls Want to Workout (2017) [MP3|320 Kbps] <Electronic, Dance, Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:539F7742EAD935BA8DB0A3EC7C48B1B2621D9B60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293768   (633628) от 05.04.2019
-
-Prins Thomas - Ambitions (2019) [FLAC|Lossless|WEB-DL|tracks] <Techno, Funk, Nu-Disco>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreplay (03:27)
-02. XSB (05:31)
-03. Feel The Love (04:25)
-04. Ambitions (12:08)(   Читать дальше...   )Жанр: Techno, Funk, Nu-DiscoПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB6C6C6549EED4BC633301096B9261D686AABE7
 ```
 
 

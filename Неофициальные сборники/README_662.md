@@ -1,3 +1,30 @@
+###  Публикация: 1472875   (1014049) от 27.05.2021
+
+VA - The Flower Of Love 12 (2021) [MP3|320 Kbps] <Electronic, House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1014049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stil & Bense - Here Be Dragons (Original Mix)
+02. Ron Flatter - Dragoon (Original Mix)
+03. Boss Axis & Label Mou - Meant To Be (Ben Ashton Remix)
+04. Dompe - Boogie (Original Mix)(   Читать дальше...   )Жанр: Electronic, House, Progressive HouseПродолжительность: 02:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73A1EB115E6F8ACC67DFD9DD7C527DF2B0D9A3ED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472570   (1014057) от 27.05.2021
 
 VA - Trance Hypnotica (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
@@ -668,33 +695,6 @@ VA - Зайцев.нет Лучшие новинки Мая (2021) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F62E742444FF39295DF38F692AF6B326B04C395C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471098   (1015299) от 19.05.2021
-
-VA - Music News vol.101 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1015299.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cher - Walls (03:32)
- 002. Aespa - Next Level (03:42)
- 003. Amorphous & Kehlani - Back Together (04:09)
- 004. Anton Lacosta - Back (02:05)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25F12ECBD9C129B75990C94E07BF177C8D9EA957
 ```
 
 

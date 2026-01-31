@@ -1,3 +1,30 @@
+###  Публикация: 1380202   (834793) от 02.05.2020
+
+VA - Padla (2020) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Emotion - Horseman [05:01]
+02. Bad Massa - Malfunction [05:06]
+03. X Company - Labyrinth [03:41]
+04. Oxit - Attack [03:23](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AECB4F29775F4D697D76835C29377207CF4EE6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380204   (834892) от 02.05.2020
 
 VA - Nothing But... Drum & Bass Anthems, Vol. 08 (2020) [MP3|320 Kbps] <Drum & Bass>
@@ -668,33 +695,6 @@ VA - Serenity Sexy Lounge & Chill out Pearls Vol 4 (2016) [MP3|320 кб/с] <Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3012ECD9672DD6E821B49D1F5702AAF912388E82
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113595   (836820) от 12.03.2017
-
-VA - WMC Miami Pool Beats 2017 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acoustic Novels – Everybody’s Got To Learn Sometime
-02. Soul Chap – Letting Go
-03. Akjela – Steh Auf
-04. Race Corner – Floating Tank(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:31:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2234B4CA285BC6DC4EB360F881287A4051EE11
 ```
 
 

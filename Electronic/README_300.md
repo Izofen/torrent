@@ -1,3 +1,30 @@
+###  Публикация: 1550871   (591212) от 13.05.2022
+
+Alternate High - Emotional Music on VERSE (2022) [FLAC|Lossless|WEB|tracks] <Uplifting Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alternate High - Strings of Destiny (Emotional Mix) (8:52)
+02. Alternate High - Far Away (Original Mix) (7:49)
+03. Alternate High - On My Mind (Original Mix) (8:50)
+04. Alternate High - Strings of Destiny (Original Mix) (8:33)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F783682AE8CE818DB324DC57B1C2C0C226084146
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550907   (591223) от 13.05.2022
 
 Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
@@ -665,33 +692,6 @@ VA - Meditation Music For Inner Peace Vol.3 Beautiful Ambient And Chillout Music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B1ABA9FCA35084014F574C448358603CF686228
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233582   (592990) от 30.06.2018
-
-VA - Meditation Music for Inner Peace Vol.2 (Beautiful Ambient and Chillout Music (2018) [MP3|320 Kbps] <Ambient, Chillout, New Age>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Northern Lights (Original Mix) - Elmara 03:38
-02. Origenes (Original Mix) - La EstaciГіn Del Mar 03:45
-03. Mystic Traveller (Eskadet Remix) - Velvet Dreamer 06:01
-04. Yanaras Light (Original Mix) - Der WaldlГ¤ufer 04:34(   Читать дальше...   )Жанр: Ambient, Chillout, New AgeПродолжительность: 01:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D280167B470BF312E1D1CD82EFE8E0F256506C
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 1295510   (618799) от 13.04.2019
+
+Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J'trouve ça beau (3:26)
+02. Les pieds dans le vide (3:09)
+03. Mon âme soeur est ailleurs (3:26)
+04. Années lumière (4:05)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2C2F652E878C8B0E819734A91D278B08F215DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036606   (618992) от 21.07.2016
+
+Saint-Preux - Odyssee (1986) [FLAC|Lossless|image + .cue] <Instrumental, Neoclassical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Profondeurs
+02 - Le Royaume de Neptune
+03 - Symphonie du temps perdu
+04 - Fantasme(   Читать дальше...   )Жанр: Instrumental, NeoclassicalПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4F26F72B510B1B5DE9000200B56EDD63A90338
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230092   (619064) от 10.06.2018
+
+Paul Sills - Universe Within (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Emptiness
+02 – The First Heartbeat
+03 – Twin Worlds
+04 – Endless(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08406FDA36671600D17A0E1117A887882752166
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230108   (619070) от 10.06.2018
+
+Paul Sills - Aniem (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond Forever (6:45)
+02. Sea of Mountains (8:10)
+03. Aniem (8:25)
+04. Forever Together (6:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F661F0F326440AD8A83B0718A253AFE53EEBD5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036710   (619137) от 21.07.2016
+
+VA - Celtic Collection 1 (2016) [MP3|320 Kbps] <New Age, World, Celtic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gandalf - Love is the Answer
+02. Paul Machlis - Greenwoods
+03. Ceredwen - Morwyn y Blodau (Lady of the Flowers)
+04. Eamonn Karran - Distant Sun(   Читать дальше...   )Жанр: New Age, World, CelticПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B959054252280DA631B11BC9C66AC18D25114A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683411   (619656) от 28.07.2013
+
+Vangelis - Light And Shadow: The Best Of Vangelis (2013) [MP3|320 Kbps] <Electronic, New Age, Ambient>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Conquest Of Paradise (4:48)
+2.  Voices (6:52)
+3.  Blade Runner (Main Titles) (3:35)
+4.  Tears In Rain (2:54)(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1BA9FF71774FAC21E5DF3F78A2B92B7D2D000F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145054   (619710) от 26.06.2017
+
+David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fidei Defensor (4:56)
+02. Siempre Fidelis (4:08)
+03. In Hoc Signo Vinces (4:06)
+04. Domine Dirige Nos (3:44)(   Читать дальше...   )Жанр: Epic, New Age, EnigmaticПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCCDDBD69A164C7E86B5C649CE1C96B7BA416A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145819   (619827) от 26.06.2017
 
 VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] <Chillout, Ambient, New Age>
@@ -530,207 +719,6 @@ magnet:?xt=urn:btih:F0659F225BADC950321FC635A61CFA0AAA8CEABD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7010CB4D2B0A2A14F64CEDBE87BB91C0410B382C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522235   (622863) от 13.07.2012
-
-Казачий ансамбль «Старина» - Казак по Дону гуляет... (2009) [MP3|320 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622863.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На речке Камышинке (4:57)
- 2. Вспомним, братцы, про былое (2:44)
- 3. Не в чистом поле злодеюшки живут (5:47)
- 4. Казак по Дону гуляет-протяжн (7:19)
- 5. Как при балке, при лощинке (3:42)
- 6. Вот уж полночь (4:22)
- 7. Два ангела парили (1:09)
- 8. По полку полковничек идёт (4:08)
- 9. Отойди-ка горечко на время (4:37)
- 10. Была весна (5:11)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A6353D8250F92BD2AC7CEE85FC8609096FA2F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522140   (623012) от 13.07.2012
-
-Большой Барабан - The Big Drum (Live) (2009) [MP3|64-160 кб/с]<Instrumental, World Music,>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_623012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Большой Барабан (1:29) 64 kbps
-02. Большой Барабан (1:42) 64 kbps
-03. Большой Барабан (3:16) 64 kbps
-04. Большой Барабан (3:57) 64 kbps
-05. выступление в Белых Облаках (9:06) 160 kbps
-06. выступление в Гавань Надежды (7:41) 160 kbps
-07. выступление в Картонии (11:02) 70 kbps (VBR)
-08. и Оркестр Интуитивной музыки (7:27) 160 kbps
-09. выступление на винзаводе (3:40) 89 kbps (VBR)
-10. выступление на Евроконе (7:16) 64 kbpsЖанр: Instrumental, World Music,Продолжительность: 02:37: 58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542817   (623568) от 14.04.2022
-
-James Asher - Return of the Tiger (2011) [FLAC|Lossless|tracks + .cue] <New Age, Tribal, World Beat>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gatekeeping
-02. Salute to Cuba
-03. Drum Dialogue
-04. Until the Ice Cracks(   Читать дальше...   )Жанр: New Age, Tribal, World BeatПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28AAEE5C545C4A029A5C9EB54E574C1B8DC35193
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294889   (623596) от 10.04.2019
-
-А.И.Жихарев - Поющая бронза (2008) [FLAC|Lossless|tracks + .cue] <Музыка на плоских колоколах (билах)>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Композиция 01 (5:12)
-02. Композиция 02 (3:53)
-03. Композиция 03 (4:00)
-04. Композиция 04 (5:36)(   Читать дальше...   )Жанр: Музыка на плоских колоколах (билах)Продолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F1A0736C6A8E43605B3FFF8E53746F7BE640F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351377   (623627) от 16.06.2011
-
-The London Studio Orchestra - The Love Themes (1991) [MP3|320 kbps]<Instrumental, Soundtrack>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Moonriver (From: Breakfast At Tiffany's)
-02 The Way We Were
-03 As Time Goes By (From: Casablanca)
-04 Love Theme (From: Romeo & Juliet)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE518609A405BDF6DE625F86AD1922368B38048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909676   (624070) от 19.06.2015
-
-David Wright - Beyond the Airwaves, Vol. 2 (2015) [MP3|320 кб/с]<Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. False Dawn [00:04:18]
-02. Sirens [00:03:11]
-03. Dreaming Desire [00:05:23]
-04. Remembering Where We Were [00:08:10](   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 01:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3767B632EA8C711DD831FF8C624597F552DAD33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295022   (624117) от 10.04.2019
-
-Bernward Koch - Walking through Clouds (2014) Real Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touched by Love (3:23)
- 02. Childhood Hour (4:31)
- 03. Walking through Clouds (2:40)
- 04. Deep Green Summer (2:57)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0DA8E97DF8FF2252DA8100750CB3CEE58A95C6D
 ```
 
 

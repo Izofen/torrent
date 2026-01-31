@@ -1,3 +1,30 @@
+###  Публикация: 936234   (496295) от 11.09.2015
+
+VA - Hi-NRG Dance Classics (2 CD) (2015) [MP3|320 кб/с]<Hi-NRG, Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Flirts - Passion (Special Remixed Disco Version) [09:01]
+02. Fancy - In Shock [05:40]
+03. Joe Yellow - Easy Lovers (Mix Edit) [05:42]
+04. Eartha Kitt & Bronski Beat - Cha Cha Heels (Extended Mix) [06:41](   Читать дальше...   )Жанр: Hi-NRG, Italo DiscoПродолжительность: 02:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA8F5D7058D10437054C6A19CCE591CC576ADC2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543415   (496323) от 05.09.2012
 
 VA - Лучшая 100ка Record: Взорви танцпол 5 (2012) [MP3|256 кб/с]<Club>
@@ -700,33 +727,6 @@ VA - Looking For The Summer (2015) [MP3|320 кб/с]<Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71D8449A456E9E97FDA123C3588204FE9A87AA64
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935894   (497581) от 10.09.2015
-
-VA - The Chillout Players - Music For Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoboken - Loungin it
-02. Il Greco - Nippon Horn
-03. Belloq - Naples Bay
-04. Sabado Playground - Ipanema Beach(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0A73FD401B4026DA6AF0307348DB86C0A58FB29
 ```
 
 

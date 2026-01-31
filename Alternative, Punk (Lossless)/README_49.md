@@ -1,3 +1,30 @@
+###  Публикация: 1291595   (652669) от 26.03.2019
+
+Wild Nothing - Indigo (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Letting Go (03:42)
+02. Oscillation (03:51)
+03. Partners in Motion (04:21)
+04. Wheel of Misfortune (04:16)(   Читать дальше...   )Жанр: Indie Rock, ShoegazeПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:906C83CBC5F5B2DB093F6797B3CFB4604D39248C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540483   (652718) от 30.03.2022
 
 The Fallen State - Between Hope & Disillusion (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Modern Rock>
@@ -666,48 +693,6 @@ Papa Roach - Crooked Teeth (2017) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4DB2BB41FA6EB3A2E5A944A371851E794F3EF1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473438   (676223) от 11.06.2012
-
-Nine Inch Nails - 17 Альбомов (1989 - 2007)  [FLAC|Lossless]<Alternative Rock, Industrial, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_676223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 		Hyperpower!  	1:42
-02. 		The Beginning Of The End 	2:47
-03. 		Survivalism  4:23
-04. 		The Good Soldier 	3:23
-05. 		Vessel 	4:52
-06. 		Me, I'm Not  	4:51
-07. 		Capital G  	3:50
-08. 		My Violent Heart 	4:13
-09. 		The Warning 	3:38
-10. 		God Given 	3:50(   Читать дальше...   )DVD-Rom contains the entire album Year Zero in the following multi-track formats:
--Garageband
--Ableton Live
--Generic wave files at 16 bit 44k
-
-Данный диск, больше подойдёт любителям соченять музыку......
-DVD-ROM включает в себя исходный материал всех композиций альбома «Year Zero» для ремикширования при помощи музыкального программного обеспечения  GarageBand  и Ableton Live . Также на диске представлены демоверсия Ableton Live и отдельные семплы в формате WAV (44100 Гц) для использования в других программах как Cakewalk Sonar  или  Pro Tools.
-
-Для любителей, это уникальный материал....
-(   Читать дальше...   )Жанр: Alternative Rock, Industrial, ExperimentalПродолжительность: 01:11:17 / DVD-Data 7,49гб
-
-## Скачать торент
-```bash
-нет
 ```
 
 

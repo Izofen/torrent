@@ -1,3 +1,28 @@
+###  Публикация: 1152521   (565552) от 23.07.2017
+
+Vasily Dvortsov - Белая Ночь (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Trance>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая ночь (feat. Boris Bredin) Radio Version (03:11)
+ 02. Белая ночь (feat. Boris Bredin) Extended Version (05:27)Жанр: TranceПродолжительность: 00:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26EF9C9078760A1958A9B43D425DC982EED0BDEE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044370   (565660) от 20.08.2016
 
 VA - Essential House Society Vol. 2 (2016) [MP3|320 Kbps] <House, Progressive>
@@ -668,33 +693,6 @@ VA - My Own Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0650FB8CB46FC4AD0934BF6C9FCE2400CFC0BD25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043935   (568545) от 18.08.2016
-
-Crystal Castles - Amnesty (I) (2016) [MP3|320 Kbps] <Experimental, Electronic>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Femen
-02. Fleece
-03. Char
-04. Enth(   Читать дальше...   )Жанр: Experimental, ElectronicПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638BC3B12838BC794272A8B087D84B845B7D7834
 ```
 
 

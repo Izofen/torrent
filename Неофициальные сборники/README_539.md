@@ -1,3 +1,30 @@
+###  Публикация: 1198035   (810133) от 10.01.2018
+
+VA - De Top 100 Aller Tijden 1975 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_810133.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. George Baker Selection - Paloma Blanca (3:28)
+002. Kamahl - The Elephant Song (3:30)
+003. Roger Glover & Guests - Love Is All (3:16)
+004. Johnny & Orquestra Rodriguez - Hey Mal Yo (3:10)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E90C533710BCB36201F3B7139C54A8359ACFC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009547   (810173) от 21.04.2016
 
 VA - Beatport Trancce 100 April (2016) [MP3|320 кб/с] <Trance>
@@ -668,33 +695,6 @@ VA - Ukrainian Hits - 33 Tracks (Volume 3) (2017) [MP3|320 Kbps] <Pop, Rock, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F3033C2D13B951B7AC7C7F904AEC5A0BE57CCB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118717   (811659) от 26.03.2017
-
-VA - The Fourth Dimension: Psy Trance (2017) [MP3|320 Kbps] <Psychedelic, Psy Trance, Goa Trance, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811659.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Static Movement Vs. Impact - Atlantic Spirit (Vertex Rmx) 07:29
-002. Bionic Delay - Increasing Scale Factor (feat. Alternate Side) 08:17
-003. Electronic Traffic Feat. Tikki Masala - Nomad 13:31
-004. Imba - Cosmos In Her Eyes 08:08(   Читать дальше...   )Жанр: Psychedelic, Psy Trance, Goa Trance, Full OnПродолжительность: 12:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A975854E7F57AE5FAE1C6CF772903DD6E65391F
 ```
 
 

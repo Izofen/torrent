@@ -1,3 +1,30 @@
+###  Публикация: 1364607   (935041) от 04.03.2020
+
+Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Further ahead of warp (06:51)
+02. Shield of selfishness (04:30)
+03. Scene (07:08)
+04. Crystallize (10:34)(   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE493C268B312350A779F01BF94044E58D35769
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364601   (935042) от 04.03.2020
 
 Envy - A Dead Sinking Story (2003) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
@@ -696,33 +723,6 @@ Anna Calvi - Hunted (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3B23401D5BBE5CF8E6D0E51AAB395951E8F058D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363012   (945317) от 26.02.2020
-
-Ash ‎ - Teenage Wildlife: 25 Years Of Ash (2020) 3 CD, Compilation, Limited Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Brit Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_945317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes the Music (03:11)
-02. Spellbound (03:17)
-03. Teenage Wildlife (06:01)
-04. I Shall Not Die (03:23)(   Читать дальше...   )Жанр: Alternative Rock, Brit PopПродолжительность: 03:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C5982E44B58D9A5FD0E4340B21024CEF4D913E
 ```
 
 

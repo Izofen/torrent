@@ -1,3 +1,30 @@
+###  Публикация: 1323540   (435632) от 04.09.2019
+
+Status Quo - Backbone (2019) Limited Edition [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting For A Woman
+02. Cut Me Some Slack
+03. Liberty Lane
+04. I See You're In Some Trouble(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A9EDB6DC0BF01C54323C348DA0B43DD3E11FBD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945200   (435678) от 09.10.2015
 
 Sweet - Action (The Ultimate Story) (2015) 2CD Deluxe Edition [OGG| 446-548 кб/с]<Classic Rock, Glam Rock, Hard Rock>
@@ -668,33 +695,6 @@ Lowrider - 2 Albums (2020) [FLAC|Lossless|WEB-DL|tracks] <Desert, Stoner Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A56D7A27B06AC9ADA13CE44B3BA03DE43A2BA070
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410431   (436225) от 21.09.2020
-
-Gwar - Blood Of Gods (2017) [FLAC|Lossless|image + .cue] <Thrash Metal, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War on GWAR (7:21)
-02. Viking Death Machine (4:16)
-03. El Presidente (4:21)
-04. IХll Be Your Monster (3:09)(   Читать дальше...   )Жанр: Thrash Metal, HardcoreПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96EE46A82EFD4242DC4706C1791C3A99BD07076A
 ```
 
 

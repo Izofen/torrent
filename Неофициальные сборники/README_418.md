@@ -1,3 +1,30 @@
+###  Публикация: 1223792   (671527) от 06.05.2018
+
+VA - Remember American Blues And Country (2018) [MP3|320 Kbps] <Blues, Country, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671527.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Justin Townes Earle - Champagne Corolla
+002. Kris Kristofferson & Willie Nelson - Forever I Still Miss Someone
+003. Florida Georgia Line - Smooth
+004. Ruston Kelly & Kacey Musgraves - To June This Morning(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 07:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D697456D3A3AE311CB9AC93FBF163A6A5227A4E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223571   (671639) от 06.05.2018
 
 VA - Red Rythm Evolution (2018) [MP3|320 Kbps] <Eurodance, Club, House>
@@ -677,39 +704,6 @@ VA - Beatport Synth Electronic: Sound Pack #502 (2022) [MP3|320 Kbps] <Synthwave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:534DFC6B17E2ED495EECF7B43BC6413994782779
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510121   (672692) от 13.06.2012
-
-VA - Deep Line. Erotic Lounge Vol. 2 (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_672692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bageri - Lady Of My Life
-02.Sawa Kobayashi - Patience
-03.Mooli - One Design
-04.The Perfect Backdrop - How Far, How Long
-05.Le Berry - Message In The Botte
-06.Sweet Velvet - Eres Tu - Ibiza Mix
-07.Crystin - Take Me Home
-08.B-Floor Feat. Hilary Costa & Vida Nova - Meu Amor
-09.Jaci Velasquez - Imagine Me Without You
-10.Sherrie Lea - No Ordinary Love (Arnold T Chill Mix)(   Читать дальше...   )2012Жанр: Downtempo|Lounge|ChilloutПродолжительность: 03:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8EF4647B78AAB822319BA647C60B327F7174B54
 ```
 
 

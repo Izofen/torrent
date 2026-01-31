@@ -1,3 +1,30 @@
+###  Публикация: 1496424   (872855) от 17.09.2021
+
+VA - RnB: Music Is My Life (2021) [MP3|320 Kbps] <Rnb, Soul, Funk>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872855.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Chantels - Never Let Go
+002. Pia Mia, Chris Brown - Do It Again
+003. Davide Shorty - Regina
+004. Sada Baby - Whole Lotta Choppas(   Читать дальше...   )Жанр: Rnb, Soul, FunkПродолжительность: 07:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADBA86CA6CB731382259F9CD0F81CE258A3A822
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496444   (872856) от 17.09.2021
 
 VA - The Deep Emotion: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Relax, Downtempo>
@@ -665,33 +692,6 @@ magnet:?xt=urn:btih:B1E1748728C2B4588263552370CE1250A843C9FD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53CA341C437E3D86A4BF2B866707C630D5DB77A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106289   (873636) от 19.02.2017
-
-VA - Empire Records - Club Hit 10 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hakan Akkus - I Can't Be (Eyup Celik Remix)
-02. Microwave Monkeys - Ive Been Thinking About You (feat. Nita)
-03. Danny Darko Ftjova Radevska - Butterfly (Grotesque Remix) Radiob.Mp3
-04. V.E.I feat. Metallica - Fade to Black (Deep House Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B14B45A5895706A89D68478231BB6579A87BE5C
 ```
 
 

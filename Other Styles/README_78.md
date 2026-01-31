@@ -1,3 +1,192 @@
+###  Публикация: 937379   (487953) от 15.09.2015
+
+Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [FLAC|WEB-DL|Lossless]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_487953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Hartnoll - Where Do You Want to Begin? (01:40)
+02. Marcelo Zarvos - Hawaii (01:29)
+03. Marcelo Zarvos - Rivalry Call (01:17)
+04. Paul Hartnoll - Killing Time (01:08)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89640AF4DE6BA94869AF10880847526F95522A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055340   (488259) от 22.09.2016
+
+Nicholas Gunn - Under the Influence of Music:The Complete Series (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inception (01:18)
+02. Beauty (04:24)
+03. Nature (06:08)
+04. Love (03:47)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95281207FBDE2B0C8EAD12EAD12FDE952CE095B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055451   (488360) от 22.09.2016
+
+David Hollandsworth - Edge of Forever (2016) [FLAC|Lossless|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_488360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Final Destination (02:20)
+02. A Road Called Hope (04:43)
+03. Calm Night (01:24)
+04. Edge of Forever (04:21)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:292B27CB2C48119AFBC4EA393D18556DA3381480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937275   (489897) от 14.09.2015
+
+Ernesto Cortazar - Memories Of The Fall (2010) [MP3|320 кб/с]<Instrumental, Neoclassical, New age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_489897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories Of The Fall
+02. Lady
+03. Living A Dream
+04. Falling Leaves(   Читать дальше...   )Жанр: Instrumental, Neoclassical, New ageПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5D20E0EF1BD519F926CB5E82690F2D82AEB4DD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937359   (490071) от 14.09.2015
+
+Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ultra (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Hartnoll - Where Do You Want to Begin? (01:40)
+02. Marcelo Zarvos - Hawaii (01:29)
+03. Marcelo Zarvos - Rivalry Call (01:17)
+04. Paul Hartnoll - Killing Time (01:08)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A264F9F7B544FB4CE42F3ECA50C6783AC2877486
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 937411   (490180) от 14.09.2015
+
+Neil Harvey - Beautiful Day (2010) [MP3|320 кб/с]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antigua
+02. Darkness Falls
+03. Dreamscape
+04. Renaissance(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56A55A26789CF15936A12849D23CB4877DEF318
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055033   (490338) от 21.09.2016
+
+Greg Joy - Light of Day (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journey to Camelot [00:04:06]
+02. Doreen's Tune [00:04:10]
+03. Lost Time [00:04:03]
+04. Hummingbird [00:04:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D26DA5569D51F18591DEA3DEBF4A269114725EA0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544424   (490629) от 07.09.2012
 
 VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audiophile Test>
@@ -542,219 +731,6 @@ Davis Mitchell - Drummer Boy (1996) [MP3|320 Kbps] <Native American>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3D3A48F1C5D6C2DE85C6D7F4C05387EC8430094
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542373   (498048) от 03.09.2012
-
-Микаэл Таривердиев - Ночные забавы тихая музыка (2004) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498048.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. музыка к к-ф ''Ночные забавы'' (4:16)
- 2. музыка к к-ф ''Летние люди'' (1:48)
- 3. музыка к к-ф ''Я обещала-я уйду'' (3:41)
- 4. музыка к к-ф ''Воровка'' (1:13)
- 5. музыка к к-ф ''Летние люди'' (5:20)
- 6. музыка к к-ф ''Я обещала-я уйду'' (4:38)
- 7. музыка к к-ф ''Ночные забавы'' (2:56)
- 8. музыка к к-ф ''Воровка'' (2:06)
- 9. музыка к к-ф ''Русский регтайм'' (1:23)
- 10. музыка к к-ф ''Русский регтайм'' (1:34)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24254D12651AC8D84477AC6071D43C413D7686D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 380943   (498067) от 29.08.2011
-
-Форсаж 5 Ремикс / Fast and Furious 5 Remix from AGR (2011) [MP3|320 kbps]<Dance>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Tyler - Assembling the Team (Short)
-02. Chiddy Bang - Under the Sheets (Chiddy Bang) Ellie Goulding
-03. Don Omar Feat. Lucenzo - Danza Kuduro (Blood Dance Project Electro Remix)
-04. Don Omar Feat. Lucenzo - Danza Kuduro (CJ LeRoY Remix)
-05. Don Omar Feat. Lucenzo - Danza Kuduro (club)
-06. Don Omar Feat. Lucenzo - Danza Kuduro (Dance remix)
-07. Don Omar Feat. Lucenzo - Danza Kuduro (Dave Dee! vs. DJ Harddanzor Bootleg Mix)
-08. Don Omar Feat. Lucenzo - Danza Kuduro (Dfm edit)
-09. Don Omar Feat. Lucenzo - Danza Kuduro (Dj Amor Remix)
-10. Don Omar Feat. Lucenzo - Danza Kuduro (Dj DupiC Mix)(   Читать дальше...   )2011Жанр: DanceПродолжительность: 05:50:40
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541284   (498090) от 03.09.2012
-
-Perry Wood - Chakra Balancing (2004) [MP3|320 кб/с]<New age, Meditative, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498090.jpg" />
-</div>
-
-
-###  Подробнее
-
-(9:48) 1. Root - Embodiment
-(9:21) 2. Sacral - Home of the Self
-(9:48) 3. Solar Plexus - Inner Sun
-(6:42) 4. Heart - Compassion
-(6:07) 5. Throath - Stillness
-(9:16) 6. Brow - Perception
-(7:20) 7. Crown - OnenessЖанр: New age, Meditative, RelaxПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B45B0D68A23EDF409BDA9AA5DDF3D5D57F96FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542568   (498148) от 03.09.2012
-
-VA - Music For Modern Yoga (2009) [MP3|320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498148.jpg" />
-</div>
-
-
-###  Подробнее
-
-(7:37) 01. Chinmaya Dunster - Moonsong
-(8:00) 02. Terry Oldfield & Soraya - Om Shanti
-(5:23) 03. Cybertribe - Across The Magic Mountains
-(8:18) 04. Terry Oldfield - Earth And Sky
-(6:48) 05. Chinmaya Dunster & Niladri Kumar - Innergy
-(7:12) 06. Terry Oldfield - Aum
-(7:32) 07. Rasa - He Krishna
-(8:16) 08. Rasa - Jaya Radha
-(6:33) 09. Chinmaya Dunster & Niladri Kumar - Arunavachana (Promise of the Dawn)
-(7:59) 10. Rasa - Gayatri Mantra(   Читать дальше...   )Жанр: New ageПродолжительность: 01:25:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22AE69FF159AACF83E31669AAE9387E7BB50B1CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540755   (498149) от 03.09.2012
-
-Shiva feat. Magdalena - Shivas Dance (1996) [MP3|320 кб/с]<New Age, Relax, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Ropes, Ribbons And A Ball
-02. Far Behind The Skies
-03. Fly Away
-04. Shiva's Dance
-05. White Flower, Blue Flower
-06. We'll Be With The Stars Tonight
-07. Brahmane's Prayer
-08. Miracle Of Love
-09. Take Me Higher
-10. Karma(   Читать дальше...   )Жанр: New Age, Relax, ElectronicПродолжительность: 00:59:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E78617A3E99144E58C9A0C04DF9B0B649AFB89F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935765   (498441) от 09.09.2015
-
-Divine Matrix - Atmospheric Variations (2012) [MP3|320 кб/с]<Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1000 Light Years
-02. Jigokudani Springs
-03. Magnetic Disturbance
-04. Marine Forcast(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:15:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D1082088CFC1BCAD4B122B9DC5BE8186962DDB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138501   (498763) от 04.09.2009
-
-Iasos - 9 albums (1975-2001) [MP3|256-320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New ageПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-нет
 ```
 
 

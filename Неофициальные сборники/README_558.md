@@ -1,3 +1,30 @@
+###  Публикация: 1112967   (839650) от 10.03.2017
+
+VA - Unknown 80's (part V) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B - Movie - Forever Running - 1985
+02. Luna Twist - Look Out (You're Falling In Love Again) - 1983
+03. The Explorers - Lorelei - 1985
+04. Re-Flex - Hurt - 1983(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2662983AEDFDB4AD8B15DBA998AD6C6A2E01577
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113131   (839869) от 10.03.2017
 
 Keb' Mo' - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -668,33 +695,6 @@ VA - Deep Love Session (Mixed By Mark Bonk) (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905D955E0579DCDD4FE437004015DF513BE32B92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004238   (840312) от 05.04.2016
-
-VA - Progressive Beats 008 (2016) [MP3|320 кб/с] <Trance, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_840312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexandr Zavesa - Dynamics (Original Mix) 04:52
-02. Arseny Jorgan - Weird Ball (Original Mix) 08:33
-03. BeppeMa - Progetto 5 (Original Mix) 08:07
-04. Bourne - Destroyer (Original Mix) 05:24(   Читать дальше...   )Жанр: Trance, Progressive House, Tech HouseПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D453D9ACAC42545A2ADC12B7C035D4ACC1DB7558
 ```
 
 

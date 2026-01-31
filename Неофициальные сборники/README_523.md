@@ -1,3 +1,30 @@
+###  Публикация: 1386509   (794555) от 29.05.2020
+
+VA - The Sound Of Fractal (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sneila - The Dreamer's Guide
+002. Ranji - Power Of Acid
+003. Deykin - In A Forest
+004. Ektoside - Conviction(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:940AA435AC36F91338690A094A264CC786F86510
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200892   (794662) от 22.01.2018
 
 VA - Music Collection - NewAge Enigmatic Meditation Ethnic Electronic (2018) [MP3|320 Kbps] <NewAge, Enigmatic, Ethnic, Electronic>
@@ -665,33 +692,6 @@ VA - Trance Collection Vol.67 (2018) [MP3|320 Kbps] <Vocal Trance, Uplifting Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A675334B81BFA9217622D0FFA11884D06ADA42C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200576   (795479) от 21.01.2018
-
-VA - Жестокий Романс: Лирика Шансона (2018) [MP3|256-320 Kbps] <Шансон, Авторская Песня>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795479.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Евгений Коновалов - А Куда Бежать
-002. Михаил Шуфутинский - Калина Красная
-003. Артур - Словно Не Были Знакомы
-004. Павел Филатов группа Вне зоны - Воля(   Читать дальше...   )Жанр: Шансон, Авторская ПесняПродолжительность: 12:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B78C442644C78639F74A51AD9432E546CC0D260B
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1005719   (830815) от 10.04.2016
+
+Digimortal - Дети галактики (2015) [FLAC|Lossless|tracks + .cue] <Industrial Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_830815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Матрица земли
+02. Добро пожаловать на бой
+03. Скорость (feat. Ольга Лаки)
+04. Дети галактики(   Читать дальше...   )Жанр: Industrial Metal, Modern MetalПродолжительность: 00:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C1EDE61FC6C34E34C4B906A5B969F88F3F48C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501782   (833650) от 11.10.2021
 
 Рондо - Добро пожаловать в «Рай» (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -674,33 +701,6 @@ Louna - Песни о мире (С симфоническим оркестром
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBF830D79864747E8FA115BA18EAEC0B318A5CE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001713   (850261) от 30.03.2016
-
-Мумий Тролль - Точно Ртуть Алоэ (2000) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карнавала.нет (3:11)
-02. Не очень (4:00)
-03. Скорее и быстро (3:08)
-04. Моя певица (4:10)(   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E21F8A1AA271DC5F2D25960A1451D42CA9BF7C
 ```
 
 

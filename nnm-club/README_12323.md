@@ -1,43 +1,44 @@
-###  Публикация: 1060698   (451275) от 09.10.2016
+###  Публикация: 1248072   (446742) от 18.09.2018
 
-Nelver - Last Challenger (2013) EP [MP3|320 Kbps] <Drum & Bass, Liquid Funk>
+GroupsPro 3.1.1 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451275.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back To The Past (5:54)
-02. Last Challenger (6:27)Жанр: Drum & Bass, Liquid FunkПродолжительность: 00:12:21
+Управляйте группами контактов и создавайте списки для массовых рассылок по эл. почте.
+GroupsPro позволяет создавать и упорядочивать группы контактов и создавать списки рассылки. Список рассылки состоит из членов групп или отдельных получателей.Тип издания: macOS SoftwareРелиз состоялся: 10.08.2018Разработчик: Demodit GmbHПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Русский, Английский, Немецкий, Итальянский, Французский и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76D76171482D7B06834C4AC4AC0DE822A3C8F7D9
+magnet:?xt=urn:btih:7950DF115856646B81B4EE7360C65DD1BE87EF78
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060737   (451276) от 09.10.2016
+###  Публикация: 1247950   (446743) от 18.09.2018
 
-Создана новая схема на основе мемристора, которая максимально точно имитирует работу синапса головного мозга
+JustBroadcaster for Facebook 2.1 [En]
 
->>Поговорим
->>DailyTechInfo
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451276.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Выбор одного определенного изображения из тысячи является достаточно простой задачей для мозга человека. Миллиарды нейронов, соединенные еще большим количеством синапсов, быстро обрабатывают поступающую информацию и принимают решения, используя принципы параллельной обработки информации. Стремясь повторить подобные принципы, инженеры и ученые некоторое время работают (   Читать дальше...   )
+Самый быстрый путь транслировать с вашего Mac на Facebook.
+Всё что вам нужно - это иметь Facebook-аккаунт.Идеально для тех у кого нет времени вникать в технические детали. Создайте профессиональную трансляцию в считанные минуты.Тип издания: macOS SoftwareРелиз состоялся: сентябрь 2018Разработчик: MacBroadcasterПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -47,387 +48,156 @@ magnet:?xt=urn:btih:76D76171482D7B06834C4AC4AC0DE822A3C8F7D9
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061086   (451277) от 09.10.2016
+###  Публикация: 1248135   (446744) от 18.09.2018
 
-Narnia - Narnia (2016) [FLAC|Lossless|image + .cue] <Neoclassical Power Metal>
+Harold Lopez-Nussa - Un Dia Cualquiera (2018) Mack Avenue [FLAC|Lossless|tracks + .cue] <Cuban Jazz, Piano Jazz>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451277.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reaching For The Top
-02. I Still Believe
-03. On The Highest Mountain
-04. Thank You(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 00:38:05
+01. Cimarron [3:52]
+02. Danza de los nanigos [4:30]
+03. Una tarde cualquiera en Paris (To Bebo Valdes) [4:49]
+04. Preludio (To Jose Juan) [3:29](   Читать дальше...   )Жанр: Cuban Jazz, Piano JazzПродолжительность: 00:47:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:013B4A57DF4394C524B1E9964B97E7147807B3A8
+magnet:?xt=urn:btih:547C74CDE46A84D254CBB9CE4872360C127FE179
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060969   (451278) от 09.10.2016
+###  Публикация: 1247956   (446746) от 18.09.2018
 
-В. Ф. Плетнев | Три точки зрения на пролетарскую культуру (1926) [PDF]
+MarsEdit 4.1.4 [En]
 
->>
->>
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451278.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-К настоящему времени наметились следующие точки зрения на пролетарскую культуру:
-
-1) точка зрения т. Троцкого,
-2) точка зрения А. Богданова,(   Читать дальше...   )Жанр: История, политологияФормат: PDF
+Первое, на что обычно обращаешь внимание, выбирая программу для написания в блог - это количество сервисов, которые она поддерживает, с этим параметром у MarsEdit все отлично. Клиент умеет работать с WordPress, Blogger, Tumblr, Squarespace, TypePad, Movable Type, LiveJournal, Drupal, Vox и еще с множеством менее популярных блог-платформ.Тип издания: macOS SoftwareРелиз состоялся: 10.09.2018Разработчик: Red SweaterПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CA9EA62D1669FECFC9017EFFA6780EF3B8DDE64B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061124   (451279) от 09.10.2016
+###  Публикация: 1061791   (446750) от 11.10.2016
 
-VA - Lullaby For The Sun (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Baleric>
+VA - Mystical n Sexy Lounge (2016) [MP3|256-320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451279.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. DJ Rostej - Reverie  5:39
-002. Seven24 - The Magic  4:54
-003. New Beginning - Free Your Spirit  5:08
-004. La Caina - Le Vent M'a Dit  5:38(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, BalericПродолжительность: 07:10:12
+01. Sofa Groovers - Voyageur - Russia 2 Ibiza Mix
+02. DJ Lounge Del Mar - Wonderful Life - Sometimes it Hurts Mix
+03. Noel - Hold me - Relax Lounge Cafe Chillout Mix
+04. Two Heroes - A Place and a History - Mystical Movie Voice Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43841B6245261C2480FE72F9B08E8A511C987E17
+magnet:?xt=urn:btih:937C49870A7F6D796A90D99F620E0E16ECACAEF0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408979   (451280) от 14.09.2020
+###  Публикация: 1061670   (446751) от 11.10.2016
 
-И.О. Пивень | Выращивание шампиньонов и вешенки (1988) [PDF]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451280.jpg" />
-</div>
-
-
-###  Подробнее
-
-В производственном издании освещается опыт промышленного выращивания высших съедобных грибов — шампиньонов и вешенки в условиях совхоза-комбината «Львовская овощная фабрика». Даны также рекомендации для начинающих грибоводов по выращиванию грибов в специально приспособленных помещениях, свежих вырубках, на садово-огородных участках. Приведены советы по хранению грибов, (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BC84F20E2350AB3E759484DFD764F837676718
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061042   (451281) от 09.10.2016
-
-TBC - The Rise (2012) [FLAC|Lossless|image + .cue] <Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rise 03:53
-02. Your Way 04:49
-03. Gnade 04:14
-04. Crystal Bride 03:35(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CED53D55E71A394E9915282CAC5A05A99DA824B3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408990   (451282) от 14.09.2020
-
-Auslogics Windows Slimmer 2.5.0.1 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Windows Slimmer предлагает быстрый и простой способ сделать Windows компактнее и эффективнее. Уменьшите размер системы для экономии дискового пространства и оптимизации производительности.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061104   (451283) от 09.10.2016
-
-VA - Trance Explorer Vol.3 (A Voyage Into High Rotation Master Club Experience) (2016) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LAJohnson - Never Forget  5:12
-02. Solid Sleep - Club Attack (Tpod Mix By Paul Van Dyk)  7:55
-03. Philips & Meijer - The Kade (Stephane Badey Remix)  7:40
-04. Wild Guess - Trysal 35 (Jakhira's Guess Again Remix)  9:16(   Читать дальше...   )Жанр: TranceПродолжительность: 03:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED761C04A7B951278CDA8DE3FE8AEB537E2ED5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408994   (451284) от 14.09.2020
-
-System Ninja 3.2.8 RePack (& Portable) by Dodakaedr [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451284.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Ninja - быстрое и эффективное решение для оптимизации компьютера под управлением ОС Microsoft Windows. Утилита предназначена для быстрого и аккуратного удаления разнообразного файлового "мусора" с жесткого диска, повышения скорости системы и устранения проблем. Одна из особенностей - поиск "мусора" не в определенных местах, а по всей файловой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE196EBB8121550B4F11357DBC44A52FCE557F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061049   (451285) от 09.10.2016
-
-Brutality - Sea of Ignorance (2016) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea of Ignorance 04:38
-02. 48 to 52 06:15
-03. Fatal Cure 03:00
-04. Tribute 03:44(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:39:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773AF8D000BDB798757E72D5C6E4498F125F3F72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408918   (451286) от 14.09.2020
-
-SolSuite Solitaire 2020 (2020) [Ru/En] (20.9) Repack/Portable TryRooM
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451286.jpg" />
-</div>
-
-
-###  Подробнее
-
-SolSuite Solitaire 2020 – высококачественная игра, которая собрала в себе огромную коллекцию из 740 карточных игр для пасьянсов. Здесь стразу воедино собрались несколько видов игр, поэтому скучать тебе точно не придется. Отдельно нужно отметить графическую составляющую, которая учла в себе все мельчайшие аспекты. Кроме того, анимация будет довольно приятной, а физика (   Читать дальше...   )Тип издания: Repack/PortableРазработчик: TreeCardGamesЖанр: Карточные игрыЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7ECF744E5B612AD509D85F8AF61A8D6B12D1A45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408933   (451287) от 14.09.2020
-
-Векторный клипарт - Watercolor illustrations cute cartoon animals with scarf [EPS]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Акварельные иллюстрации милых мультяшных животных
-10 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060989   (451288) от 09.10.2016
-
-Л. Л. Авербах | За пролетарскую литературу [о политике РКП(б) в области художественной литературы] (1926) [PDF]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451288.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора:
-
-Настоящая брошюра представляет собой доклад, прочитанный автором на общем собрании фракции РКП(б) правления Всесоюзной ассоциации пролетарских писателей и комколлектива Московской Ассоциации 11-го июля 1925 г.  Мы сочли необходимым дать вступительную статью, в которой остановились на некоторых вопросах и литературных фактах, вставших и имевших место за (   Читать дальше...   )Жанр: История, политология, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD755C3D23559AC61B3A409BA95F2F34286DF58
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061082   (451289) от 09.10.2016
-
-VA - Fantastic Ready Top 55 (2016) [MP3|320 Kbps] <House, Stadium Trance, Melodic Tech и другие>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Sixma & Jonathan Mendelsohn - Way To Happiness (Club Mix)  4:47
-02. Breathe Carolina & Husman Ft. Carah Faye - Giants (Extended Festival Mix)  4:58
-03. MNBT - Amethyst (Original Mix)  5:32
-04. Bassjackers & Joe Ghost Ft. Moti - On The Floor Like (Extended Mix)  4:08(   Читать дальше...   )Жанр: House, Stadium Trance, Melodic Tech и другиеПродолжительность: 04:22:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046067   (451290) от 14.09.2020
-
-Polynation - Discography 11 Releases (2015-2020) Atomnation [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Tech House, Downtempo>
+VA - Moods Of Spring (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451290.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wildeburg (08:20)
- 02. Coral (06:32)
- 03. Coral Pt. 2 (03:31)Тип издания: WebЖанр: Techno, Ambient, Tech House, Downtempo •Продолжительность: 03:19:41 •
+01. Van - Gentleman (06:48)
+02. Castlebed - Gravity (03:30)
+03. Stefan Reh - Way Out Here (06:48)
+04. Chris Le Blanc - Enjoy Your Life (Cafe Del Mar Edit) (04:11)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB509A26E75D03EFDDF3D8CCF1DFD80A31B1DCE0
+magnet:?xt=urn:btih:7AC2F9281CBC8C9E20DC4471530B1F7DD26453D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061161   (451291) от 09.10.2016
+###  Публикация: 1061629   (446752) от 11.10.2016
 
-Inner Odyssey - Ascension (2015) [FLAC|Lossless|image + .cue] <Heavy Progressive Rock, Progressive Metal>
+VA - No Need To Rush Vol.6: Sunday Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>
->>
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451291.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Why am I Here? (Ouverture) (5:42)
-02. Something More (4:32)
-03. A World of My Own (6:21)
-04. My Purpose (7:36)(   Читать дальше...   )Жанр: Heavy Progressive Rock, Progressive MetalПродолжительность: 01:09:05
+01. Lazy Hammock - Star (Original Mix) (04:06)
+02. Dave Ross - Sound Desire (Original Mix) (06:43)
+03. Grisha - Mir (Original Mix) (06:04)
+04. Xemplify - Twenty 11 (Original Mix) (06:26)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21C6BB9C72374C446D7245DE5B5AFCD34DD83348
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061657   (446753) от 11.10.2016
+
+VA - Hotel Wellness and Relax Chillout Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chillout Company - Miami Morning (06:17)
+02. Ice Pedestrian - Trust (Re:birth Mix by Masa) (08:57)
+03. Derek Lion - Frozen Lake (Meditation Edit) (08:17)
+04. Bertram Geck - Weekend (Live Piano Version) (05:38)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:31:37
 
 ## Скачать торент
 ```bash
@@ -437,207 +207,318 @@ Inner Odyssey - Ascension (2015) [FLAC|Lossless|image + .cue] <Heavy Progressive
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061036   (451292) от 09.10.2016
+###  Публикация: 1061615   (446754) от 11.10.2016
 
-TBC - 28 Days (2010) [FLAC|Lossless|image + .cue] <Gothic Metal>
+VA - The Lounge Hotel Vol.5 Royal Edition (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosarossa - Get Free (Soul Beats Mix) (03:34)
+02. Desert Groove - Beyond and Headlines (Orion Omega Mix) (03:34)
+03. Karmo - Push the Button (Carisma Mix) (03:23)
+04. Spherical Eyes - All Is Lost (Crystalline Mix) (03:56)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D564EF1DCE2A2EE2FAEF026C91205960FDC6679
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061796   (446755) от 11.10.2016
+
+Alberto Rionda Alquimia - Alquimia (2013) Japanese Ed.  2016 Reissue [FLAC|Lossless|image + .cue] <Melodic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451292.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 28 Days 04:00
-02. Fire, Wind, Steel 03:55
-03. Endless War 04:37
-04. Angelo Del Buio 05:38(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:50:48
+01. Mutus Liber
+02. El Lobo Y El Arca
+03. Dama Oscura
+04. La Cuna De Arce(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:16:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B431A5544263BC3AEB4DCDC00D10C35A63E229A
+magnet:?xt=urn:btih:BC746519CE224A0561CB388B8E65F4D33D6FE73B
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061274   (451293) от 09.10.2016
+###  Публикация: 1061664   (446756) от 11.10.2016
 
-Frank Rosolino - Thinking About You (1976) 2CD, 2001, Sackville Recordings[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+VA - First Class Lounge Vol. St Tropez (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451293.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01.Sweet And Lovely [14:03]
-02.Who Can I Turn To [09:21]
-03.Round Midnight [11:16](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 02:13:46
+01. Man In A Room - Something New (06:06)
+02. Weathertunes - My Night And Day (04:56)
+03. Newton - Just One Touch (04:55)
+04. Dave Ross - Break The Silence (08:03)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACFA97C8DCE43905ECA105FC43A3E6C5A5EBA124
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408821   (451294) от 14.09.2020
+###  Публикация: 1061644   (446757) от 11.10.2016
 
-Stand Up (13.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 8, выпуск 3)
+VA - Delicious Bar Tunes Vol.3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Юмор (ТВ)
->>ПостКВН
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451294.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Stand Up - это взгляд на наши жизненные повседневные ситуации. Это история, которую рассказывает человек на сцене, - обычно очень откровенную. Это правда жизни. Это что-то современное, что-то новое. Это что-то невообразимо оригинальное, яркое, интересное и обязательно смешное. Встречайте...Телекомпания: ТНТЖанр: ЮморАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр Шаляпин и др.Субтитры: ОтсутствуютПродолжительность: 00:46:25
+01. Guardner - with the flow (05:52)
+02. Jillene Luce - Magical Memories (05:16)
+03. The Lushlife Project - Soul Reservation Morning (06:57)
+04. Logic Moon - Load (04:09)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:12:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68F1545F6EE5C5369A311000894BD07B0693E4E9
+magnet:?xt=urn:btih:6C0C5E864F6460724F52C8A0F204201E81016D3C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061002   (451295) от 09.10.2016
+###  Публикация: 1061702   (446758) от 11.10.2016
 
-Frank Strozier - Long Night (1961, 1962) 2002, Milestone[FLAC|Lossless|tracks + .cue] <Hard Bop>
+Юрий Бриль | Рядом с зоопарком (1987) [FB2]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451295.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Long Night [04:35]
- 02.How Little We Know [05:58]
- 03.The Need For Love [04:41]
- 04.The Man That Got Away [04:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:18:55
+Новая книга свердловского литератора, известного читателю по книге «Не троньте лошадей», знакомит с миром подростка, с его увлечениями, интересами. Автор стремится помочь читателю определить грань, которая разделяет добро и зло, правду и неправду, творческое и потребительское отношение к жизни.Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DFEA8DFC37A88337405C1D6E5DEBD93FF19ECE3
+magnet:?xt=urn:btih:74F2E5C0B82A2454569504EFF35678039C7F64F5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408921   (451296) от 14.09.2020
+###  Публикация: 1061692   (446759) от 11.10.2016
 
-Джама Джурабаев | Введение в рабочий процесс в Blender 2.79 / Introduction to Blender Workflow (Part 1) (2018) PCRec [EN]
+Zuriaake - Afterimage of Autumn (2007) Digipak [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451296.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это первая часть серии учебных пособий по моему рабочему процессу Blender.
-Blender стал очень важной частью моего рабочего процесса, так как в этой программе есть все, что я искал в 3D-пакете. Он стабилен, быстр, интуитивно понятен, свободен и т. д.
-
-Этот пакет включает в себя:(   Читать дальше...   )Производство: GumroadЖанр: 3D моделированиеПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:50:17
+葬尸湖 Zuriaake - "弈秋 Afterimage of Autumn"
+01. 林語 - Whispering Woods 04:19
+02. 山神 - God of Scotch Mist 07:16
+03. 冥江 - River Metempsychosis 07:36(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:09:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1FAFC1C1E7D63C694EF744BD221D8AD6E586C44
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060818   (451297) от 09.10.2016
+###  Публикация: 1061524   (446760) от 11.10.2016
 
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа A. 2-й тур. Франция – Болгария (07.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+Aposento - Aposento (2014) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aliens - Seres del más allá 5:01
+02. Hijos del caos 3:51
+03. Muerte lenta 4:37
+04. La valla 4:30(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CDB5C13D2F8FC808573014FCF4B241811AE5ED5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061674   (446761) от 11.10.2016
+
+VA - Chilled Matters Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazygrooves - Walk With Me (05:21)
+02. Johannes Huppertz - Selflove (04:45)
+03. Billy Esteban - Springtime (04:35)
+04. Krystian Shek - Watching The Waves (03:31)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0166BC4DBB638B07EF02B3E5DA29BCE2E6C1DF80
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061678   (446762) от 11.10.2016
+
+Anthelion - Obsidian Plume (2014) Digipak [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446762.jpg" />
+</div>
+
+
+###  Подробнее
+
+幻日 Anthelion - "黑羽 Obsidian Plume"
+01. 朔時 - Scythe Returns at Dusk 02:22
+02. 黑羽 - Obsidian Plume 05:08
+03. 夏夜飛霜 - Ethereal Frost of the Darkness 05:25(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061722   (446763) от 11.10.2016
+
+VA - Trance Floor Astronomical (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Morris & Trance Arts - Innetic (Original Mix)  6:10
+02. Frainbreeze & Lucid Blue - Light My Way (Original Mix)  5:43
+03. Sean Tyas & Darren Porter - Relentless (Radio Edit)  3:40
+04. Binary Finary - The Annex (Original Mix)  7:50(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 05:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DFB38888B8C2F20BABCA8DABDDF16DA73C20EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061691   (446764) от 11.10.2016
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. 2-й тур. Обзор матчей 3-го дня (08.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451297.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-07 октября 2016, пятница. 21:45 МСК
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа.
-Группа A. 2-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Роман Гутцайт)Продолжительность: 01:55:25
+Обзор матчей отборочного турнира Чемпионата Мира 2018.
+Европа. 2-й тур. День № 3:
+
+Группа C(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: Русский (Сергей Дерябкин)Продолжительность: 00:49:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D68906FE12FF59D14BF11A756A8B476D768B93C4
+magnet:?xt=urn:btih:51D54101D232F28C309653C695CA618A56FF0A06
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408905   (451298) от 14.09.2020
+###  Публикация: 1061708   (446765) от 11.10.2016
 
-Sandboxie 5.43.5 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00A25A0C2B8079FADE6225F1786264AF66B3EF7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060686   (451299) от 09.10.2016
-
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа D. 2-й тур. Ирландия – Грузия (06.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+VA - Finding Around Happiness (Energy Tech Trance) 009 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_451299.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-06 октября 2016, четверг. 21:45 МСК
-Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа.
-Группа D. 2-й тур
-(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: Русский (Юрий Розанов)Продолжительность: 01:51:48
+01. Sunset & Myk Bee - Lost City (Original Mix)  8:41
+02. Willem De Roo - Hyperdrive (Extended Mix)  4:20
+03. Adrian Alexander & Skylane - Stratosphere (Quizzow Remix)  5:23
+04. Feel & Johnny Norberg - One Dream (original mix)  4:58(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 01:17:36
 
 ## Скачать торент
 ```bash
@@ -647,25 +528,151 @@ magnet:?xt=urn:btih:B00A25A0C2B8079FADE6225F1786264AF66B3EF7
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409011   (451300) от 14.09.2020
+###  Публикация: 1061340   (446766) от 11.10.2016
 
-ФотоКОЛЛАЖ 8.25 RePack (& Portable) by  Dodakaedr [Ru]
+Хоккей. КХЛ 2016-2017. Амур (Хабаровск) - Торпедо (Нижний Новгород) (06.10.2016) IPTV [H.264/1080i-LQ]
 
->>Архив торрентов
->>Архив Программ
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451300.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ФотоКОЛЛАЖ - поразительно удобная и легкая в работе программа от AMS Software для создания эффектных тематических коллажей, красочных поздравительных открыток, приглашений на свадьбу, постеров, стильных обоев для рабочего стола и даже оформления для вебсайта из Ваших фотографий. Множество доступных функций, богатейший выбор готовых вариантов оформления и клипарта, (   Читать дальше...   )Язык интерфейса: Русский
+06 октября 2016, четверг. 12:30 МСК
+КХЛ 2016-2017, Регулярный чемпионат
+
+Стадион: СЗК «Платинум Арена» (Хабаровск, Россия), 7000 зрителей (99 % при вместимости 7100)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 02:02:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE6312483E0A1BEABE712335275EDEA2E461758E
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061551   (446767) от 11.10.2016
+
+Футбол. Товарищеский матч 2016. Россия – Коста-Рика (09.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446767.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 октября 2016, воскресенье. 16:00 МСК
+Товарищеский матч 2016.
+
+Стадион: ФК Краснодар (Краснодар, Россия), 34200 зрителей (100 % при вместимости 34291)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Константин Генич, Роман Трушечкин)Продолжительность: 01:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:199B38D1883ADE6B16E752C5F8C2E82B1E87A4D1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 705915   (446776) от 01.10.2013
+
+Журнал | Тайны ХХ века [Украина] №38 (сентябрь 2013) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF1A0DA62D4D5F769746EE11F9A9D70C13A5027C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943556   (446788) от 04.10.2015
+
+Создан ионный двигатель нового типа, выигрывающий по эффективности у двигателя HiPEP НАСА
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_446788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Патрик Нойман из университета Сиднея в рамках своей докторской диссертации произвел разработку и изготовил экспериментальный ионный двигатель, который, согласно имеющейся информации, выигрывает по эффективности у лучшей разработки специалистов НАСА, у ионного двигателя High Power Electric Propulsion (HiPEP). И высокая эффективность этого нового двигателя позволит (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943601   (446789) от 04.10.2015
+
+Любовь на четырех колесах (2015) HDTVRip [H.264]
+
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейная жизнь Липы, работницы таксопарка, не задалась. Муж Костя давно потерял интерес к «рабочей пчелке» и почти не скрывает своих измен. Последней каплей становится известие о том, что любовница Кости ждет ребенка. Липа отпускает мужа и готовится начать новую жизнь. К несчастью, после развода Костя возвращается снова. Помыкавшись по съёмным квартирам, он намерен (   Читать дальше...   )Производство: Россия, РусскоеЖанр: МелодрамаРежиссер: Сергей ВладиАктеры: Евгения Лоза, Виктор Логинов, Кирилл Жандаров, Светлана Колпакова, Александр Никольский, Екатерина БольшаковаПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C005985E33142598E69E001EBE5D105668D042
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943665   (446790) от 04.10.2015
+
+Мир Юрского периода / Jurassic World (2015) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_446790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие происходит через 22 года после событий «Парка Юрского периода». На острове Нублар функционирует парк, задуманный Джоном Хэммондом. Но к этому времени посещаемость уже начинает падать, и компания — владелец парка решает открыть новый аттракцион, чтобы привлечь посетителей. И вот снова тысячи людей спешат увидеть Мир Юрского периода, но безопасное на первый (   Читать дальше...   )Производство: США, КитайЖанр: Фантастика, приключения, боевикРежиссер: Колин ТреворроуАктеры: Крис Пратт, Брайс Даллас Ховард, Ник Дж. Робинсон, Тай Симпкинс, Винсент Д’Онофрио, Ирфан Кхан, Омар Си, Б.Д. Вонг, Джейк Джонсон, Джуди ГрирПеревод: Дублированный (Лицензия)Субтитры: Русские форсированные, Русские, Английские, Украинские (полные, отключаемые)Продолжительность: 02:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8DE5B5334CC91FA8606A546AB35A6B95E12C9A
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 1063338   (435565) от 16.10.2016
+
+Mel Torme & Margaret Whiting - Broadway, Right Now! (1961) 2010, Flare Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fireworks [00:00]
+ 02.Make Someone Happy [02:12]
+ 03.Tall Hope [03:33]
+ 04.I Loved You Once In Silence [03:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16A867557361209EBA379C242E30999194226D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249093   (435842) от 23.09.2018
+
+Liz McComb - Soul, Peace & Love (2006) [FLAC|Lossless|image + .cue] <Blues, soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_435842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Peacemakers
+02.Oh When The Saints
+03.Come Back Lover
+04.God Made A Miracle(   Читать дальше...   )Жанр: Blues, soulПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78AAD29DAC946F385C6848224634A617B7039002
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249442   (436004) от 23.09.2018
+
+John Stevens - Red (2005) [FLAC|Lossless|tracks + .cue] <Jazz, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Fly With Me (3:24)
+ 02. My Blue Heaven (2:40)
+ 03. Someone to Watch Over Me (4:44)
+ 04. Here, There and Everywhere (3:02)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6DE890140894B357503A86AC0D583575CDE824
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249243   (436006) от 23.09.2018
+
+Jan Lundgren - Potsdamer Platz (2017) ACT Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Potsdamer Platz [5:19]
+02. No. 9 [4:43]
+03. Lycklig Resa [6:03]
+04. Bullet Train [5:23](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E192321B5E825CE1597CB1B123BD28BD8C806D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249248   (436017) от 23.09.2018
+
+JF Girard - Jazz Waves (2017) Productions Bros [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz Waves [6:21]
+02. Icarus [5:37]
+03. Jour de pluie a la Satie [4:34]
+04. Belle sauvageonne [4:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DB38D11350A12B2DBD36CE183C54FA3B15CABFC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571100   (436055) от 20.08.2022
+
+Lars Erstrand Trio & Quartet - The Complete Songs (2005) Opus 3 [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Nightingale Sang In Berkely Square [6:39]
+02. Let Me Call You Sweetheart [5:16]
+03. Life Can Be So Sweet [5:29]
+04. A Hunderd Years From Today [5:26](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B366C75C9314055CEC7FC73FE6A9AF0C48808AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249241   (436067) от 23.09.2018
+
+JF Girard - Clin d'oeil (2013) Les Disques Bros [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_436067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh rage et beau temps [5:14]
+02. Clin d'oeil [4:01]
+03. My Son Shines [5:06]
+04. Les vagues tranquilles [6:51](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BFB278001789498A2A2B68A9415F97FA6E8AB9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571094   (436113) от 20.08.2022
 
 Tete Montoliu - Montoliu Plays Tete (1971 - 1997) 2CD, 2006, DiscMedi Blau [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -506,195 +695,6 @@ Stan Getz Quartet 1960 - Live In Amsterdam, Dusseldorf & Zurich (1960) Remaster,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37A36308B60F7693C17715AE5A6F64FA593D69D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062995   (437836) от 15.10.2016
-
-Peggy Lee - Sings For You (1952-1955) 1992, Avid Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You Do Something To Me [01:40]
- 02.Almost Like Being In Love [01:59]
- 03.Just One Of Those Things [02:18]
- 04.That Old Black Magic [02:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C457C273BB3769877FB1B02F9FD2C4B81AC52A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062968   (437839) от 15.10.2016
-
-Peggy Lee - In Love Again! & In The Name Of Love (1964) 1999, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Lot Of Livin' To Do [02:37]
- 02.I've Got Your Number [02:00]
- 03.Little By Little [02:05]
- 04.Got That Magic [01:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AA8D71B7E404F7879DE04C30C61FD40825B987
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063003   (437840) от 15.10.2016
-
-Coleman Hawkins - April In Paris Featuring Body And Soul (1939-1956) 1992, BMG[FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Body And Soul [03:07]
- 02.When Day Is Done [03:22]
- 03.Bouncing With Bean [03:08]
- 04.April In Paris [03:11](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1056044F51DA7D1735F5B8A8A8DA7058C1429A4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062992   (437841) от 15.10.2016
-
-Peggy Lee - These Foolish Things & Other Great Standards (1945) 1995, Hallmark Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I'm Confessin' [02:41]
- 02.September In The Rain [03:11]
- 03.That Old Gang Of Mine [02:39]
- 04.If I Could Be With You [01:37](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A00439B543A017CF7435BD1A25474648793EFB36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062746   (437842) от 15.10.2016
-
-Mel Torme - Prelude To A Kiss (1958) 1996, Simitar Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dialogue [00:19]
- 02.Something To Live For [02:46]
- 03.Dialogue [00:12]
- 04.I'm Getting Sentimental Over You [02:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C08D8624FC1BE9E1CE2B18E8E35779B014177A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062982   (437843) от 15.10.2016
-
-Peggy Lee - Extra Special! & Somethin' Groovy! (1967) 1998, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hey, Look Me Over [01:56]
- 02.When He Makes Music [02:51]
- 03.Walking Happy [02:35]
- 04.Oh! You Crazy Moon [02:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:837059140396E77022605E59BE0E78BDAB940030
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323295   (437874) от 03.09.2019
-
-Dave P. Moore - Fort Necessity (2019) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fort Necessity (05:08)
-02. 420 Blues (05:48)
-03. Hank's Basement (04:54)
-04. Rainin' In The Delta (04:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588B6D6CEDAFDABBEFE0E7C7983ADFEC95D3510A
 ```
 
 

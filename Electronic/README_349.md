@@ -1,3 +1,30 @@
+###  Публикация: 1221619   (691469) от 26.04.2018
+
+VA - Solitudine / Faces / Atlantide / Oak Tree (2018) EP [MP3|320 Kbps] <Electronic, Melodic House & Techno, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691469.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Meastral - Solitudine (Original Mix) (08:37)
+2. Paradoks & Melody Stranger - Faces (Original Mix) (05:56)
+3. EarthLife - Atlantide (Original Mix) (06:14)
+4. Aguizi & Fahim - Oak Tree (Original Mix) (08:31)Жанр: Electronic, Melodic House & Techno, Progressive HouseПродолжительность: 00:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC11B98A17E8ADB29E888A7DF3D04D71B040CCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221711   (691532) от 26.04.2018
 
 Giriu Dvasios - Gaja (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
@@ -668,33 +695,6 @@ iVardensphere - Discography 15 Releases (2009-2017) [FLAC|Lossless|tracks+.cue, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53DE5A7E00551BF4CC2567C1A7452C882906239D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133773   (693023) от 13.05.2017
-
-Jean-Pierre Decerf - Space Oddities 1975-1979 (2015) CD, Compilations [MP3|320 Kbps] <Electronic, Space Rock, Experimental>
-
->>Electronic
->>Experimental Electronic
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_693023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surrounding Seas (3:12)
-02. Light Fligt (3:21)
-03. Blazing Skyline (3:27)
-04. Leavin' My Place (4:14)(   Читать дальше...   )Жанр: Electronic, Space Rock, Ambient, Synth-pop, ExperimentalПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:756EE74F9219C6B7D9B4DF588A10E42EAC284333
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1030684   (672294) от 01.07.2016
+
+VA - In The Loving Memory Of Diana, Princess Of Wales (1997) Unofficial Release [APE|Lossless|image + .cue] <Pop, Funk, Soul, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Candle In The Wind
+02. George Michael - You Have Been Loved
+03. Lisa Stansfield - Don't Cry For Me
+04. Seal - Kiss From A Rose(   Читать дальше...   )Продолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA8E0A187AA85849F6C23E1B126C9C873DC27C8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291054   (672320) от 23.03.2019
+
+Cappuccino - Cappuccino (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Dance With Me (6:01)
+02. San Francisco (5:18)
+03. Lucky Woman (5:54)
+04. Tomorrow (5:05)(   Читать дальше...   )Жанр: Electronic, Funk, DiscoПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA048B8D9984BF5F69A1986F15F4A2C7F9750648
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291072   (672456) от 23.03.2019
+
+Georges Rodi - Space (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boop Boopy Doo (2:24)
+02. Le Manteau D'Uranie (Uranus Mantel) (2:16)
+03. Space Flight Center (Space) (1:37)
+04. Moonshine's Magic (3:32)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F572E6536A8748BC088951B27F8322C33E81F94
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291286   (672460) от 23.03.2019
 
 VA - Miami Heat (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
@@ -618,87 +699,6 @@ Dschinghis Khan - Dschinghis Khan (1979) [FLAC|Lossless|image + .cue] <Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91B4456F4D62C71EA89C9725BE3998832EF3F328
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030005   (676104) от 29.06.2016
-
-Ирина Аллегрова - Grand Collection (2002) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "День рождения "
-02. "Угонщица  "
-03. "Мой ласковый и нежный зверь  "
-04. "Младший лейтенант  "(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD5810EB6207EDD50ACD537D3DCB055E1D1D476
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290662   (676200) от 21.03.2019
-
-VA - Eurodance Club Vol. 1 (Back2Basic) (2017) Compilation [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GTS Project - Disco (Radio Edit) (3:39)
-02. Lyane Leigh - Sexy Boy (S.E.X. Appeal Radio Edit) (3:31)
-03. A.Voltage feat. Elaine Winter - Try to Find (Radio Edit) (2:59)
-04. Michael Marin - Tonight (Radio Edit) (3:09)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D126CD19B09E7AED103C29656D2DD165CCB6BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290666   (676205) от 21.03.2019
-
-VA - N'Dance Vol. 1 (2004) [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narcotic Thrust - I Like It (Sinewave Surfers 2am rmx) (5:26)
-02. Shana Vanguarde - Gimme! Gimme! Gimme! (Midnight radio edit) (3:24)
-03. Boomfunk MC's - No Way In Hell (Royal Gigolos rmx) (5:19)
-04. Prodigy - Girls (4:06)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9857005E4D5F762DAB0AAC8AAC14E999ED47D879
 ```
 
 

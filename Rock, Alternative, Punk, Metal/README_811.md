@@ -1,3 +1,327 @@
+###  Публикация: 1307867   (554664) от 11.06.2019
+
+Tanzwut - Seemannsgarn (2019) [MP3|320 Kbps] <Folk Metal, NDH>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Seemannsgarn
+2. Galgenvögel
+3. Reden ist Silber
+4. Die letzte Schlacht(   Читать дальше...   )Жанр: Folk Metal, NDHПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA32D5BEBA18579A94C316E0D765E00581B1BBA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307795   (554673) от 11.06.2019
+
+St. Prostitute - Glorified (2015) [MP3|320 Kbps] <Hard Rock, Rock-n-Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Farewell & Goodbye
+02. Red Car
+03. City Lights
+04. All Mine(   Читать дальше...   )Жанр: Hard Rock, Rock-n-RollПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E255F97480D54FF1808675402EB6B20B74E666E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307792   (554682) от 11.06.2019
+
+St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 Kbps] <Hard Rock, Sleaze Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Come The Prostitutes
+02. Say When It's Over
+03. I'm Not Falling
+04. Dreaming Of You(   Читать дальше...   )Жанр: Hard Rock, Sleaze RockПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25415B906BE688C793CF86F6FD419D103612DC08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307841   (554684) от 11.06.2019
+
+Hardbone - Bone Hard (2014) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take It Off [00:03:41]
+02. Bad Boy [00:05:09]
+03. Sound Of The City [00:05:00]
+04. Move On [00:06:39](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D729975BCB334BF607E1E2DB0867589281EC7D87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307844   (554691) от 11.06.2019
+
+Hardbone - Tailor-Made (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Man's Land [0:03:06.25]
+02. It's A Man Thing [0:04:32.56]
+03. Tailor-Made Woman [0:04:48.23]
+04. Blood From Hell [0:03:27.14](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9A8764CF43F9811701DCA9C324F0A6A13B49B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236306   (554708) от 16.07.2018
+
+Bon Jovi (Jon Bongiovi) - Hollywood Dreams (2018) Scene [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Said It Would Last Forever
+02. Open Your Heart
+03. Stringin' A Line
+04. Don't Leave Me Tonight(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715B9790DA82B06357BA6BBFA202DE0914A3625B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236300   (554712) от 16.07.2018
+
+Santana - The Best Instrumentals (1997) [MP3|320 Kbps] <Blues-Rock, Latin Rock, Instrumental Guitar Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Pa Ti 4'34
+02. Europa (Earth's Cry Heaven's Smile) 5'01
+03. I Love You Much Too Much 4'41
+04. Aqua Marine 5'29(   Читать дальше...   )Жанр: Blues-Rock, Latin Rock, Instrumental Guitar RockПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A959429BB55D8C70850DC80DD2989971FC4FDCC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307719   (554721) от 11.06.2019
+
+Hollerado - Retaliation Vacation (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight to Hell (03:12)
+02. Speechless (04:11)
+03. Days Without Sugar (03:38)
+04. Time on Earth (03:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4201A7E41660C9698482DB0557AE7D5AEC6FD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307766   (554723) от 11.06.2019
+
+Inter Arma - Sulphur English (2019) [FLAC|Lossless|tracks + .cue] <Sludge Metal, Black Metal, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bumgardner (01:59)
+02. A Waxen Sea (07:24)
+03. Citadel (06:40)
+04. Howling Lands (06:59)(   Читать дальше...   )Жанр: Sludge Metal, Black Metal, DoomПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FCB932A1D1F52D812E834BE738EF6A49B907589
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236213   (554765) от 16.07.2018
+
+Alkoholizer - Drunk or Dead... (2009) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro #01:49
+02. Pay With Your Blood #03:42
+03. Sardinian Beer #03:18
+04. Age of Misery #02:58(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FAF235B2BC5887429B82F9373394466E38CCD00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307469   (554861) от 10.06.2019
+
+Mono Inc. - Symphonic: Live (2019) 2CD [FLAC|Lossless|image + .cue] <Gothic Rock, Darkwave, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to Hell [4:04]
+02. Kein Weg zu weit [4:43]
+03. Long live death [4:23]
+04. If i fail [6:02](   Читать дальше...   )Жанр: Gothic Rock, Darkwave, Alternative RockПродолжительность: 01:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289FD484201ECD3B3BC503E59B8077DF9ECBBEB4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1307062   (554878) от 10.06.2019
+
+Gloryhammer - Legends from Beyond the Galactic Terrorvortex (2019) 2CD, Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Into the Terrorvortex of Kor-Virliath
+  2. The Siege of Dunkeld (In Hoots We Trust)
+  3. Masters of the Galaxy
+  4. The Land of Unicorns(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FF7B6E43514F06138ABA8F3CA28784A5E1E5A4E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307083   (554882) от 10.06.2019
 
 Santana - Africa Speaks (2019) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Latin Rock>
@@ -371,330 +695,6 @@ Witchfinder General - Buried Amongst The Ruins (2007) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29FCCDA16CC19981F2133BEA3B059AEA5873A135
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306027   (555325) от 07.06.2019
-
-Phil Collins - Other Sides (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 - In the Air Tonight (Demo) [4:59]
- 2 - I Missed Again (Demo) [4:09]
- 3 - If Leaving Me Is Easy (Demo) [5:14]
- 4 - The Man with the Horn [3:59](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:26:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEED0917A41FAC3BFB27F582DB4B44656943843F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306510   (555353) от 07.06.2019
-
-Mike + The Mechanics - Out of the Blue (2019) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Way (04:00)
-02. Out of the Blue (03:38)
-03. What Would You Do (03:06)
-04. The Living Years (2019 Version) (06:24)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7752CA0D3E8002539D3EDA339C81638565CCCBD2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306903   (555359) от 07.06.2019
-
-Eyes Wide Open - The Upside Down (2019) [MP3|320 kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Disheartened Song (03:24)
-02. Black Clover (04:22)
-03. Solitude (03:54)
-04. Til The Day We Die (03:58)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841F29B2380CC4D8002EE38F7C9A9DF18F4A95CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306901   (555360) от 07.06.2019
-
-Awaken - Identity (2019) [MP3|320 kbps] <Modern Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Naive Voices (04:07)
-02. My Religion (03:42)
-03. Face of a Ghost (03:22)
-04. The Spiral (feat. Jenna Kate Brown) (03:51)(   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A2EAE4369E34F9649B77AD551DDEEDDC38D320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306514   (555374) от 07.06.2019
-
-Le Orme ‎ - Sulle Ali Di Un Sogno (2019) [FLAC|Lossless|tracks + .cue] <Prog Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Estratto Da Collage (03:06)
-02. Preludio (02:33)
-03. Gioco Di Bimba (03:49)
-04. Notturno (01:38)(   Читать дальше...   )Жанр: Prog Rock, Art RockПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2E068C5D3177BD9C252C751B6796A9973DCBE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306506   (555391) от 06.06.2019
-
-Rammstein - Rammstein (2019) [FLAC|Lossless|tracks + .cue] <Neue Deutsche Härte, Industrial Metal, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deutschland (5:23)
-02. Radio (4:37)
-03. Zeig Dich (4:16)
-04. Auslander (3:52)(   Читать дальше...   )Жанр: Neue Deutsche Härte, Industrial Metal, RockПродолжительность: 00:46:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99421619AC8D1A469DD659178706F48878F8C64A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306795   (555450) от 06.06.2019
-
-Santana - Africa Speaks (2019) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Africa Speaks (feat. Buika)
-02. Batonga (feat. Buika)
-03. Oye Este Mi Canto (feat. Buika)
-04. Yo Me Lo Merezco (feat. Buika)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020DFDE5E11D9C00A1A8FE168B9F2A3CD444AE7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306889   (555485) от 06.06.2019
-
-Texas Hippie Coalition - Peacemaker (2012) [FLAC|Lossless|tracks + .cue] <Southern Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hands Up (3:57)
- 02. Damn You To Hell (3:36)
- 03. 8 Seconds (4:02)
- 04. Outlaw (3:00)(   Читать дальше...   )Жанр: Southern Rock, Heavy MetalПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAAE354A55063237CB434D2F19D035B99C290F49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306882   (555490) от 06.06.2019
-
-Texas Hippie Coalition - Dark Side Of Black (2016) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Get It (3:43)
- 02. Angel Fall (4:16)
- 03. Shakin' Baby (3:15)
- 04. Knee Deep (4:24)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:953677557AE0B4F3E061BBD6A3545E369838EFE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306671   (555493) от 06.06.2019
-
-Genghis Tron - Triple Black Diamond (2007) EP, Limited Edition [FLAC|Lossless|tracks + .cue] <Grindcore, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride the Steambolt (Live) (2:41)
- 02. Chapels (Live) (1:56)
- 03. The Folding Road (Live) (3:09)
- 04. Rick Allen Mix by Vytear (4:19)(   Читать дальше...   )Жанр: Grindcore, ExperimentalПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7584ECE3F5D88B1447EB12494913E95F963B9433
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306498   (555570) от 05.06.2019
-
-The Hawkmen - The Hawkmen (2019) [MP3|320 Kbps] <Rhythm & Blues, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love is blind (02:53)
-02. Soulful dress (02:59)
-03. Acai (02:44)
-04. Chemistry of love (03:07)(   Читать дальше...   )Жанр: Rhythm & Blues, RockabillyПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D732793FF3E283EACE467C2656FB682EC64F827
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306552   (555580) от 05.06.2019
-
-Departure Chandelier - Antichrist Rise To Power (2019) [FLAC|Lossless|tracks + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro (Napoleon's Sword) (02:28)
-2. Life Escaping through the Candle's Smoke (04:22)
-3. Forever Faithful to the Emperor (04:54)
-4. Catacombs Beneath the Castle of the Marquis (04:58)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5015F2E150E8348B8D98DAC268EDDD75E2FD66FA
 ```
 
 

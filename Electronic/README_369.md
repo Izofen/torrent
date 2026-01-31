@@ -1,3 +1,30 @@
+###  Публикация: 1528379   (734964) от 01.02.2022
+
+VA - Lo-Fi Dose to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room – Holy Moly - That's A Groove (03:07)
+02. Digby Jones – Mr Big (04:39)
+03. Patiotic – Acoustic Brain (01:58)
+04. Dellasollounge – Don't Go (02:43)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506B1FB0EBBAB9716687F8E990B5E3446B05D027
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528279   (734972) от 01.02.2022
 
 TodoTodo - Tecnodelia-Tendencias 1980-1981 (2012) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop>
@@ -666,33 +693,6 @@ Lane 8 - Reviver (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8287BC34175A9FE7C363BA4D16F021A85629B0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526112   (738429) от 24.01.2022
-
-The Art Of Noise - Balance (Music For The Eye) (2022) 3CD [FLAC|Lossless|WEB-DL|tracks] <Synth Pop, Experimental, Ambient>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Definition Three) (0:15)
- 02. Driving Rain Plus (6:59)
- 03. The Case For A Complete Performance (3:08)
- 04. Blue Murder (1:23)(   Читать дальше...   )Жанр: Synth Pop, Experimental, AmbientПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E97AC45D5B88C0BA89AF9F8A40CE044D20BCFB7
 ```
 
 

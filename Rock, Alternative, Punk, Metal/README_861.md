@@ -1,3 +1,327 @@
+###  Публикация: 1297648   (603578) от 23.04.2019
+
+Queen - Hot Space (1982) Japanese Edition, 2019 [FLAC|lossless|image + .cue] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Staying Power (04:12)
+02. Dancer (03:50)
+03. Back Chat (04:35)
+04. Body Language (04:31)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D94DAE95F6F9F70C8051D96FD374C81BBD2C66
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297479   (603585) от 23.04.2019
+
+American Bombshell - Tattooed N' Bruised (2019) [MP3|320 Kbps] <Hard Rock , Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Money on the Liquor (3:32)
+ 02 - Faster (3:33)
+ 03 - Run Away (3:25)
+ 04 - Only Rock N Roll (3:23)(   Читать дальше...   )Жанр: Hard Rock , Rock'n'RollПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A21CDBC1B24BBE63EFE12FD936FF4BCCFA848C83
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297532   (603588) от 23.04.2019
+
+The Hillbilly Moon Explosion - The Sparky Sessions (2019) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Love (feat. Mark Phillips) (02:43)
+02. Queen of Hearts (feat. Mark Phillips) (03:15)
+03. Stumble Through the Darkness (feat. Mark Phillips) (03:28)
+04. Obsession (feat. Mark Phillips) (02:50)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E058EFABF556112BB1F3C697B17A0234DB8A58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297635   (603600) от 23.04.2019
+
+ОБЕ-РЕК - Сердце (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сердце (4:48)
+ 02. Мы поём (4:23)
+ 03. Другу (4:52)
+ 04. Доброго пути (3:45)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:89:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0672068BA313B1F8CBE3BE0BC8109DFC20F3D64A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297587   (603603) от 23.04.2019
+
+Trollfest - Norwegian Fairytales (2019) [FLAC|Lossless|tracks + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fjøsnissens Fjaseri (03:19)
+02. Kjettaren Mot Strømmen (03:51)
+03. Espen Bin Askeladden (04:05)
+04. Trine Reinlender (01:21)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E06192F03B7D872A813DE7F9AA1A54837432DF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231776   (603689) от 20.06.2018
+
+The White Stripes - Elephant (2003) [FLAC|Lossless|tracks + .cue] <Rock & Roll, Punk, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Nation Army (3:52)
+ 02. Black Math (3:04)
+ 03. There's No Home for You Here (3:44)
+ 04. I Just Don't Know What to Do With Myself (2:46)(   Читать дальше...   )Жанр: Rock & Roll, Punk, Indie RockПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55EEA8E64F9106118A27D013672C981FBEF03B39
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231779   (603697) от 20.06.2018
+
+The White Stripes - Icky Thump (2007) [FLAC|Lossless|tracks + .cue] <Blues Rock, Garage Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icky Thump (4:15)
+ 02. You Don't Know What Love Is (You Just Do as You're Told) (3:54)
+ 03. 300 M.P.H. Torrential Outpour Blues (5:29)
+ 04. Conquest (2:48)(   Читать дальше...   )Жанр: Blues Rock, Garage Rock, Indie RockПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4176810F10A77CFB894CAFC3D5B75B8C97F1F7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231886   (603706) от 20.06.2018
+
+Broken Teeth - Blood On The Radio (2004) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Gonna Blow  (2:59)
+ 02. Pull the Plug  (3:45)
+ 03. Stick it in  (3:48)
+ 04. Chaingang  (5:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECAE7720DE98919F4972878C41D157690C087C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231869   (603711) от 20.06.2018
+
+Suotana - Land Of The Ending Time (2018) [MP3|320 Kbps] <Melodic Black Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603711.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alku
+2. Troutrace
+3. Sorrowl
+4. Into The Ice(   Читать дальше...   )Жанр: Melodic Black Metal, Melodic Death MetalПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632AB7B330D4EF0D0C211E4DC43FC9A9CF3057AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231775   (603760) от 20.06.2018
+
+For The Fallen Dreams - Six (2018) Rise Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone (4:17)
+ 02. The Undertow (3:51)
+ 03. Unstoppable (4:05)
+ 04. Forever (3:32)(   Читать дальше...   )Жанр: Alternative Rock, MetalcoreПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DFD2352771657E5620CB9F31DA17789AD7D664
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546884   (603848) от 26.04.2022
+
+The White Buffalo - On The Widow's Walk (2022) Deluxe [FLAC 2.0|44.1/24|WEB-DL|tracks] <Country Rock, Blues Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Problem Solution (4:47)
+02. The Drifter (3:52)
+03. No History (4:01)
+04. Sycamore (3:53)(   Читать дальше...   )Жанр: Country Rock, Blues Rock, Folk RockПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057830D031FAF176FE7D3265A473D9257EE7552F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148489   (603910) от 06.07.2017
+
+Klabautermann - Innsia Ut (2017) [MP3|320 Kbps] <Norway Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hjertets Disiplin (03:48)
+02. 6 Strenga 1 Liv (04:19)
+03. Den Fortapte Sonn (03:37)
+04. Alltid Aleine (04:53)(   Читать дальше...   )Жанр: Norway RockПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94AAB6608C5AD164A8C05E0686B72D049A40EC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546888   (603956) от 26.04.2022
 
 Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD, The Complete Recordings [FLAC|Lossless|WEB-DL|tracks] <Glam, Pop Rock, Soft Rock>
@@ -372,328 +696,6 @@ Joe Satriani - The Elephants of Mars (2022) [FLAC|Lossless|image + .cue] <Instru
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA34C3F55D3023DDF9AF522925C22849F3350A71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1545811   (604299) от 25.04.2022
-
-Lovell's Blade - Deadly Nightshade (2022) [FLAC|Lossless|image + .cue] <NWOBHM, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604299.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Deadly Nightshade" - это снова альбом, полный классического пауэр-рока.
-Этот третий альбом закрепляет их позицию как одной из самых инновационных пауэр-рок групп современности.01. Running Out of Time
-02. Drivin' Me Crazy
-03. Mystery
-04. The Cries Go Unheard(   Читать дальше...   )Жанр: NWOBHM, Hard RockПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:746AC473CB3ACCAFA190A0A0F2FB62D4E931B577
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148003   (604303) от 05.07.2017
-
-Cheap Trick - We're All Alright! (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/13. You Got It Going On (3:11)
- 02/13. Long Time Coming (3:12)
- 03/13. Nowhere (2:45)
- 04/13. Radio Lover (2:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093597FCB76D11B4C05825CD7F9A3DBB924BD704
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148050   (604470) от 05.07.2017
-
-Cromonic  - Time (2017) [FLAC|lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another World (05:39)
-02. Time (05:48)
-03. Tale of Pain (05:20)
-04. Mental Cry (04:28)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B9E22539AEA1FCF5B941E12D2D465C2CA3666D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546733   (604481) от 25.04.2022
-
-Kill The Lights - The Sinner (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604481.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shed My Skin
-2. The Faceless
-3. Watch You Fall
-4. Through The Night(   Читать дальше...   )Жанр: Metalcore, Thrash MetalПродолжительность: 00:52:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC0AE3A65DF4FA612CC44F57B6C8B30E99B5138
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546642   (604482) от 25.04.2022
-
-Arjen Anthony Lucassen's Star One - Revel In Time (2022) Deluxe Edition, 3CD [FLAC|Lossless|tracks + .cue] <Prog Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604482.jpg" />
-</div>
-
-
-###  Подробнее
-
-(05:29) 01. Fate of Man (Instrumental)
-(07:20) 02. 28 Days (Till the End of Time) (Instrumental)
-(06:34) 03. Prescient (Instrumental)
-(04:50) 04. Back From the Past (Instrumental)(   Читать дальше...   )Жанр: Prog Rock, Progressive MetalПродолжительность: 03:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62EC74AA4E3E89F9B96254EC10BC863EF8D5B469
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546603   (604483) от 25.04.2022
-
-Нормы Морали - Сами по себе (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Велосипедист [00:03:10]
-02 - Просроченный герой [00:02:31]
-03 - Хулиганская [00:02:55]
-04 - Такого не бывает [00:01:32](   Читать дальше...   )Жанр: RockПродолжительность: 00:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B5F58C7F8790496BE2AFE00A681074FC655F19
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546699   (604485) от 25.04.2022
-
-Mirror - The Day Bastard Leaders Die (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infernal Deceiver (4:19)
-02. Souls of Megiddo (4:02)
-03. Savage Tales (5:52)
-04. All Streets Are Evil (4:48)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFA330431D181E269DB4A5F881CBD1ED3AA814A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546710   (604491) от 25.04.2022
-
-Destruction - Diabolical (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under The Spell
-02. Diabolical
-03. No Faith In Humanity
-04. Repent Your Sins(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77073F59F9784E386D6BE1FA3DEC8C70B803078F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546627   (604493) от 25.04.2022
-
-Riot Act - Closer To The Flame (2022) 2CD Digipack, Global Rock Records  [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604493.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rock City (03:43)
-2. 49er (05:40)
-3. Swords and Tequila (03:46)
-4. Overdrive (04:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 1:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EAD4FAF7352F2B56F1C83C98EA857A19140528
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546468   (604495) от 25.04.2022
-
-Ва-Банкъ - Tak Nado!! (1994) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра / Overture (02:05)
-02. Кудрявая (Песня о встречном) / The Curly (03:38)
-03. Бей их!! / Beat Them!! (02:08)
-04. Кислое вино / Acid Wine (02:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2992E50A63F92665E85D815D479D439E147FE46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546553   (604599) от 25.04.2022
-
-Drinking Pumpkins - 2 Albums, 2 Singles (2018-2022) [MP3|320 Kbps] <Celtic Punk, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Штопор (Single) [00:02:12]Жанр: Celtic Punk, FolkПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975D76136F082EEB260BC6D4ED949434451FBF5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546719   (604603) от 25.04.2022
-
-Ocean Grove - Up In The Air Forever (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Rapcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FLAVA [00:03:21]
-02. SEX DOPE GOLD [00:02:57]
-03. CALI SUN [00:03:47]
-04. BUSTIN [00:03:18](   Читать дальше...   )Жанр: Nu Metal, Rapcore, HardcoreПродолжительность: 00:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA30DECB2EF68B6F155E1248AA07088D7C7B912D
 ```
 
 

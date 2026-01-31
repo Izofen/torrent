@@ -1,3 +1,30 @@
+###  Публикация: 993049   (897525) от 04.03.2016
+
+VA - Dance Club Empire 100 hits (2016) [MP3|320 кб/с] <Club, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_897525.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Falency - In The Moonlight
+002. Frits Wentink - Blaise Montoya (Feat. Loes Jongerling)
+003. Dj Le-Roy - She's On Fire (Original Mix)
+004. Alfrenk - Big Up (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 08:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3479B389AB6D801E70F8A87B3FBC1089C066D21
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 868528   (897553) от 11.02.2015
 
 VA - Лирика шансона 2 (2014) [MP3|320 кб/с]<Шансон, поп>
@@ -662,33 +689,6 @@ VA - Beatport Trance: Electro Sound Pack #37 (2020) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96E221AD417171690B0DC331B38870EB7C2A892F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370147   (898331) от 26.03.2020
-
-VA - Native American & Lounge (2020) 2CD [MP3|320 Kbps] <Native American, New age, World music>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_898331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashley Serena - Lakota Lullaby
-02. Robert Tree Cody - Spring Song
-03. Robert Tree Cody - Kokopelli's Journey
-04. Robert Tree Cody - Brother Eagle(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 08:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DC0EA4EBB7FB5A3489F72850C89704537A22E4F
 ```
 
 

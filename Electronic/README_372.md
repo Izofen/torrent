@@ -1,3 +1,30 @@
+###  Публикация: 1126781   (741200) от 20.04.2017
+
+VA - Chillout AAA Vacation Time Real Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Neuroborus - Readout Output (Alternate Mix)  2:58
+02.  Green Grid - Reason Soul (Clip Version)  3:05
+03.  Sine Tunes - Tedium Street (Memo Export)  3:01
+04.  Keyright - Lakeside (Yellow Sun)  2:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54A5DEB6A9DEE74F92AB7097B1FF5A29F9F55C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126737   (741202) от 20.04.2017
 
 VA - Metropolitan Lounge Selection Amsterdam (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -663,33 +690,6 @@ VA - Suanda Music Radio Top 15 (April 2018) [MP3|320 Kbps] <Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69C217F905C8B9C2D416F26CD3AA9C2B51225B06
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217452   (743483) от 04.04.2018
-
-VA - Tech Trance Essentials Vol.12 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Van Orton - The Scarlet Flower  (Phase II) (original mix)
-02. Alex Van Orton - Le Projet De Janvier (original mix)
-03. 2Sher - Illustrator (Illustration 1)
-04. 3rd Planet - Planet Rock (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339BCE27E434F626BFCDCD65DD8B6E998AD63958
 ```
 
 

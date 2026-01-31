@@ -1,3 +1,30 @@
+###  Публикация: 1221437   (695107) от 24.04.2018
+
+Niklas Paschburg - Tuur mang Welten (2016) Unperceived Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Downtempo, Ambient, Contemporary>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulenflucht (03:59)
+ 02. Holtnevel (03:35)
+ 03. Tuur Mang Welten (04:38)
+ 04. Dawn (03:45)(   Читать дальше...   )Жанр: Modern Classical, Downtempo, Ambient, ContemporaryПродолжительность: 00:24:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA96E2645A41495E2C970C622B1C310DECB262F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133064   (695133) от 12.05.2017
 
 VA - Mood For Coffee Vol.1 (Wonderful Selection Of Modern Lounge Music) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -669,33 +696,6 @@ Frozen Starfall - Vibrant Dancefloor (2017) [MP3|320 Kbps] <Electro, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6123C28C04A928D8F735F69F3F0BD7ED51419AF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132912   (697118) от 11.05.2017
-
-VA - Late Night Vibes Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_697118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ray Castello - Cappuccino  5:04
-02.  Continental Rhythms - Konte (Jazz O Phonic Mix)  3:26
-03.  David Scott feat. Amanda Love - Softly Name  3:42
-04.  Deep City - Maybe Rice (Deep Fashion Mix)  3:50(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8986D3A1DFF10DAC1DD9C0EA60699F5B179D3DEB
 ```
 
 

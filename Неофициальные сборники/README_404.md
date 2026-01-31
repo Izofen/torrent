@@ -1,3 +1,36 @@
+###  Публикация: 516283   (653109) от 28.06.2012
+
+VA - Радио Чарт Energy - Жгучий Танцевальный Сборник 50/50 (2012) [MP3|256 kbps]<Pop|Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_653109.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bad Boys Blue - I'll Be Good
+002 Группа Red Energy - Capital Nigt
+003 Mayari Project - Hayati
+004 Ольга Lucky - Последний Поцелуй (Руки Вверх)
+005 Itaka - La Danza De Ibiza (Zumpa Remix Radio Edit)
+006 Дискотека Авария и Нюша - Moscow Never Sleeps
+007 Demi Lovato - All Night Long (Feat. Missy Elliott & Timbaland)
+008 Тимур Темиров - Лето Жаркое
+009 Radio Killer - Is It Love Out There (Radio Edit)
+010 Vilana - Море(   Читать дальше...   )Жанр: Pop|DanceПродолжительность: 05:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5446CC9046D3254DD93AD633D2281AF0271A7B9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140939   (653441) от 08.06.2017
 
 VA - DEEP'КАЧ 90-х от NNNB (2017) [MP3|256-320 Kbps] <Deep House, Nu Disco, Tropical>
@@ -687,33 +720,6 @@ VA - Sexy Trance #40 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5C2A9A751C7885DD8D5471D32D8A5F6CC40591D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140805   (654692) от 07.06.2017
-
-VA - Hits Cocktail Vol.8 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_654692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axwell & Ingrosso - More Than You Know
-02. ANGEMI feat. Angemi - 4ever (Original Mix)
-03. Der HouseKaspeR - You & I (Extended Mix)
-04. Said the Sky - Show & Tell (feat. Claire Ridgely)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4AEE631C6FDBC0A5BDC7E2EFF30F4E5B5481AD9
 ```
 
 

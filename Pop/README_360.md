@@ -1,3 +1,84 @@
+###  Публикация: 1443713   (1035208) от 30.01.2021
+
+Birizdo I Am - Sound of Yesteryear (2017) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When I Say I Love You (Maybe Baby 2) (4:38)
+02. Indiana Jones (6:13)
+03. Sound of Yesteryear (5:46)
+04. If I Could... (7:00)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16FF36635BD7C09FC5A2DFFE7442A815F802A139
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443712   (1035215) от 30.01.2021
+
+Birizdo I Am - eRETROshock (2016) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:58)
+02. Cannot Buy Happiness (5:54)
+03. Senorita (4:15)
+04. Diamond of My Heart (5:38)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEE11E7D52E327DA4255CAB4A1166AB24D9B3D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617281   (1035260) от 06.03.2023
+
+VA - We Love Italo (2023) [FLAC|Lossless|WEB-DL|tracks] <Disco, Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silent Circle - Touch in the Night (5:19)
+02. D.White & DimaD. - 600 KM (4:17)
+03. Boys Next Door - Lady of the Night (The Night Affair Mix) (4:58)
+04. Bruce & Bongo - Geil (Ben Liebrand Mix) (7:09)(   Читать дальше...   )Жанр: Disco, Italo-DiscoПродолжительность: 01:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A3B54E42B92936A106C29410E98E8B7677DF22
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443593   (1035457) от 29.01.2021
 
 Mark Ashley - Greatest Hits 3 (2020) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
@@ -613,87 +694,6 @@ The Fortunes - All The Hits and More (1993) [FLAC|Lossless|image + .cue] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5049F4C5394D098BCC0026010DD54CDFE3F0E941
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615866   (1037219) от 27.02.2023
-
-VA - Romantic Collection '2000 Vol. 8 (2000) [OGG Vorbis|480 Kbps] <Electronic, Jazz, Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Williams - Love Story
-02. Patricia Kaas - Mon Mec A Moi
-03. Terence Trent D'Arby - Sign Your Name
-04. Sam Brown - Stop(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 01:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB19A4BEF0C68A1D9587D19A3BC41616263A4351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442026   (1037242) от 23.01.2021
-
-Henk van Daam - Millionen Kusse (2014) [FLAC|Lossless|image + .cue] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037242.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wann
-2. Millionen Küsse
-3. Ich steh dir zur Seite
-4. Wann bist du bei mir(   Читать дальше...   )Жанр: SchlagerПродолжительность: 00:57:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24E6817D8C673AC1D6C381368E07750AA51BF33F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615898   (1037277) от 27.02.2023
-
-Disco Made In Israel - Disco Made In Israel (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1037277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side 1 (Medley) (14:50):
--Bashana Haba'a
--Baruch's Boots
--Ma'yim Ledavid Ha'melech(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404B17C1D06A7B37BA864220A05498C49CF2ABD0
 ```
 
 

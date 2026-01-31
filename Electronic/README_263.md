@@ -1,3 +1,30 @@
+###  Публикация: 1563711   (503716) от 15.07.2022
+
+VA - Uplifting Trance Vol.2 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_503716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somna & Yang feat. Noire Lee - Till Oblivion (Asteroid Remix)
+02. Ana Criado - Lockdown Heart (Daxson Remix)
+03. Main Engine & Eline Flohr - A Sacred Place (Original Mix)
+04. Kaimo K - Artemis (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:33:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9575E6B6F3D3771DFD2BBC7F7C44BC94E3C4CE08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563713   (503728) от 15.07.2022
 
 VA - FSOE - July (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -671,33 +698,6 @@ Metric - Formentera (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, New Wave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E52A339ABD430CDCC3CEE700320C13E6CB848387
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316291   (507760) от 24.07.2019
-
-Synthezman - Synthezman (2004) [FLAC|Lossless|tracks + .cue] <Synthpop, Techno, Minimal>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spiral (3:35)
-02. Robot's Song (6:14)
-03. Futurepub Girl (5:22)
-04. Timeless (4:35)(   Читать дальше...   )Жанр: Synthpop, Techno, MinimalПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A045E78249E996ECFD9B17E11E5EFF0846FCA0E
 ```
 
 

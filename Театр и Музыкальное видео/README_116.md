@@ -1,3 +1,54 @@
+###  Публикация: 791870   (709923) от 02.06.2014
+
+U.D.O. - Steelhammer: Live From Moscow (2014) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Россия имеет особое значение для Удо Диркшнайдера и его группы U.D.O..01.Intro
+02.Steelhammer
+03.King of Mean
+04.Future Land(   Читать дальше...   )Жанр: Heavy MetalПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 02:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8832E3BA921D26C1D12D8EBD159FF7CA1B5B19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531336   (710701) от 21.02.2022
+
+Gregorian - Masters Of Chant Chapter III (2002) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_710701.jpg" />
+</div>
+
+
+###  Подробнее
+
+B октябре 2002 г. вышел альбом "Masters Of Chant Chapter III". Список звезд мировой музыки, перепетых на этом диске впечатляет – Depeche Mode, Elton John, Sting, Duran Duran, Chris Isaak, HIM… Также в альбом было включено три оригинальные композиции – Be, Before The Dawn и Out Of The Cold. Женские партии исполнила Сара Брайтман, скрывшаяся под псевдонимом (   Читать дальше...   )Производство: GermanyЖанр: New Age, Choir, Gregorian chantПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FCC79AEB2CAAF34035B935A735A9C22ACB39D51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531337   (710863) от 21.02.2022
 
 Gregorian - Masters Of Chant - Moments Of Peace In Ireland (2001) DVDRip
@@ -612,58 +663,6 @@ magnet:?xt=urn:btih:D689C28DF199CFDE900305CF5428BEF4B81162CE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15713C1C10ABAB8435191AEF1276422978B943B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218254   (721263) от 10.04.2018
-
-Lisa Stansfield - Live At The Royal Albert Hall (1994) DVD5 [hand made]
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеоверсия выступления Lisa Stansfield совместно с London Philharmonic Orchestra,состоявшегося осенью 1994г в The Royal Albert Hall в программе благотворительного концерта в поддержку The Nordoff-Robbins Music Therapy Centre
-В бонусе - несколько шлягеров из ТВ-шоу Top Of The Pops.01.It's Got to Be Real
-02.Little Bit of Heaven
-03.All Woman
-04.Live Together(   Читать дальше...   )Жанр: Pop, Soul, FunkРежиссер: Simon MaxwellАктеры: Lisa Stansfield , London Philharmonic OrchestraПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:00:00 + 00:26:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:503E730C52F3630EA628C6E2D9C664064CB03E7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 327132   (721372) от 23.04.2011
-
-Верка Сердючка полная видеоколлекция / Verka Serduchka complete the video collection (2011) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721372.jpg" />
-</div>
-
-
-###  Подробнее
-
-В представленном DVD альбоме самые известные и любимые песни Верки Сердючки. Среди них «Я попала на любовь», «Я только с мороза», «Чита дрита» и другие песни. Альбом включает караоке самых любимых песен.Жанр: Музыкальное видео / КараокеПродолжительность: 01:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2156DC26B89B3E1BAA1160C9405348D2EB5E92AF
 ```
 
 

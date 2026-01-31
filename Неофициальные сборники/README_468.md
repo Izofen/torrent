@@ -1,3 +1,30 @@
+###  Публикация: 1398235   (736184) от 25.07.2020
+
+VA - Music News vol.29 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736184.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Daasha - Истерики (02:12)
+ 002. Mia Martina feat. 19 Mafia - Day Dreams (03:42)
+ 003. Mick Mazoo - I Say Sun (02:29)
+ 004. Mike Singer - 100Tausend (02:50)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85414F6A2364AEAB404DC6FBE99A1B2041F6BD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1398297   (736195) от 25.07.2020
 
 VA - The Official UK Top 40 Singles Chart 24.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -674,33 +701,6 @@ VA - Beatport Progressive House: Sound Pack #130 (2020) [MP3|320 Kbps] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D12037644E4D3B96C4F1DDA66CB952D358DC61F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397692   (737545) от 22.07.2020
-
-VA - DUB Tropical House: World Electro Sound (2020) [MP3|320 Kbps] <Dub House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clang83 - Bootstrap
-02. Clubzound - Get On Up (Remastered Mix)
-03. Justin Point - Predilection
-04. Moshic - Element 115(   Читать дальше...   )Жанр: Dub HouseПродолжительность: 08:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA741F46B7EC7745939A85A9193DA199EA786F67
 ```
 
 

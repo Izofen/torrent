@@ -1,3 +1,84 @@
+###  Публикация: 975115   (973213) от 14.01.2016
+
+Julio Iglesias - La Carretera (1995) [FLAC|Lossless|tracks + .cue] <Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Carretera (4:42)
+02. Cosas De La Vida (3:55)
+03. Baila Morena (3:50)
+04. Derroche (3:37)(   Читать дальше...   )Жанр: BalladПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D909E52CBEF9BEA951870F33B5B1288D99D2AC96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975069   (973297) от 14.01.2016
+
+Ronan Keating - Destination (2002) SACD [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I love it when we do (3:40)
+02. Love won't work (3:40)
+03. If tomorrow never comes (3:39)
+04. Come be my baby (3:50)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCDA543A1BCF030E7D6ABE515B62821046CA92E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974852   (973357) от 14.01.2016
+
+Reverend and The Makers - ThirtyTwo (2014) [FLAC|Lossless|WEB-DL|tracks] <Britpop, Electropop, Ska Revival>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Detonator
+02. I Spy
+03. The Devil's Radio
+04. Nostalgia(   Читать дальше...   )Жанр: Britpop, Electropop, Ska RevivalПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D77365F7ADC74A69F980E51E2C05A846AE3217
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616827   (973418) от 11.02.2013
 
 Gipsy Kings - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Pop, Rumba, Flamenco>
@@ -692,86 +773,6 @@ Liz Mitchell (Ex-Boney M) - Let It Be (2004) [MP3|320 кб/с]<Pop,Disco,Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF87158B6D041B9A491153E1234F04889AEEC352
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356671   (977737) от 31.01.2020
-
-Savage - 2 Сингла (2019, 2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Синглы:
-Magic Carillon - 2019
-I Love You - 2020Жанр: Italo-Disco |Продолжительность: 00:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7E2B0F9777673545EAAFBC560C83B781B53CD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356507   (977848) от 31.01.2020
-
-VA - From Disco to Disco 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whomadewho - The Divorce (4:36)
-02. No Gods - Purpose (6:08)
-03. Enzo Elia - Volpinata (7:31)
-04. Roter & Lewis - Better Days (5:52)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B634B29233CBC31889D061EA04ED7E1E4343A2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356637   (977948) от 31.01.2020
-
-Гречка - Из доброго в злое (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977948.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Героев
-2. В моей квартире
-3. Русская тоска
-4. Гранжстайл, Ч. 2(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535DF46A56EE40DBB50DD3C09BC0F912789528B1
 ```
 
 

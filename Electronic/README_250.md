@@ -1,3 +1,30 @@
+###  Публикация: 1407822   (462764) от 09.09.2020
+
+VA - Out To City Two / Выход В Город Два (2001) ChebuRec [FLAC|Lossless|tracks+.cue] <Abstract, IDM, Experimental, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Batiskaf - V(int) (04:48)
+ 02. Lonyx - Brown Blue (02:23)
+ 03. EU - Wienn (Tenzor Mix) (05:17)
+ 04. 2H Company - Prov (04:54)(   Читать дальше...   )Жанр: Abstract, IDM, Experimental, AmbientПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2446899B3507097C06D4A961110FD8E4900B1B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407826   (462766) от 09.09.2020
 
 VA - Out To City 3 / Выход В Город 3 (2004) ChebuRec [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Glitch, Experimental>
@@ -694,33 +721,6 @@ VA - Bikini Beach, Vol. 5 (2019) [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B35D64DE70B25422E5FEA61A484274C9E7677CB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320485   (465519) от 21.08.2019
-
-VA - Bikini Beach, Vol. 3 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Amisso - Sparks 04:34
-02.Dirty Wild - Game Over 03:56
-03.Grund - Bring Me Up Above (DJ Luciano Remix) 03:43
-04.Lonely DJ - Life is a Rave 04:44(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B40E35314997683094AB6CBD296F035754156C
 ```
 
 

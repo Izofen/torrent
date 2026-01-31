@@ -1,3 +1,30 @@
+###  Публикация: 1607684   (1043936) от 27.01.2023
+
+VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nick Newman -  A Happening  (6:39)
+02.  Oliver Harper -  Strawberry Thief  (8:12)
+03.  Dastan  -  Observer  (6:51)
+04.  Bodaishin, Thales Senses -  Chants Of Whales  (7:44)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic HouseПродолжительность: 01:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA39D72570894420467DD8F681B294C9EDA04A9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607601   (1043940) от 27.01.2023
 
 Activa - Origins (2023) Expanded Edition [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -662,33 +689,6 @@ VA - White January: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6B8C9B0503CC915E002E06DDD4E57C84CB64938
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603616   (1045507) от 12.01.2023
-
-Korablove - Basshole (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Splish (4:55)
-02. Wherever (4:15)
-03. Zurkaf (6:31)
-04. Come with Me (4:06)(   Читать дальше...   )Жанр: ElectroПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3101C225B68FD1E1D56D96983A1A188FCFE5FDF
 ```
 
 

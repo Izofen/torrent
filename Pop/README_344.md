@@ -1,3 +1,84 @@
+###  Публикация: 1484813   (1005803) от 22.07.2021
+
+VA - Cosmic Discotheque - 12 Junkshop Disco Funk Gems From The 70s (2021) Vol.4, LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fu King - Fu King (1975) (3:15)
+02. Kebekelektrik - War Dance (1978) (3:28)
+03. Epsilon - Wake Up (1976) (3:15)
+04. Kawasaki Band - Japan Disco (1978) (2:56)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D03A01991D03AD31843E6FEC7015A9550E9E76C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484862   (1005806) от 22.07.2021
+
+Олег Газманов - 7:0 в мою пользу (2021) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005806.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Отбой
+2. Скорая помощь
+3. Крылья
+4. В городе сонном (feat. Валерия)(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCB26124430490DAECEB0FF11D5D2609851E512
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484777   (1005821) от 22.07.2021
+
+Bebe Rexha - Better Mistakes (2021) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break My Heart Myself (feat. Travis Barker)
+02. Sabotage
+03. Trust Fall
+04. Better Mistakes(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B70F5718B576FA6E73490D435C3181EBFA6BE5D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484592   (1005938) от 21.07.2021
 
 VA - Summer Body Fitness Hits (2021) [MP3|320 Kbps] <Pop>
@@ -615,87 +696,6 @@ VA - Песня года Беларуси (2004) [FLAC|Lossless|tracks + .cue]<P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA55265855ECD9DAFE00C48C46F7F01749024599
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479375   (1009259) от 26.06.2021
-
-Винтаж (Анна Плетнева) - 9 альбомов, 4 сборника, 1 концерт, 23 сингла (2007-2021) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009259.jpg" />
-</div>
-
-
-###  Подробнее
-
-2007 - Криминальная любовь
-2009 - Sex
-2011 - Анечка
-2013 - Very DanceЖанр: PopПродолжительность: 13:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCADEA3489214F0425094D29B5339AA54FFCD8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479926   (1009298) от 26.06.2021
-
-Andy Williams - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop, Vocal, Oldies>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Howard Andrew Williams (3.12.1927 - 25.09.2012) - американский певец, который провел на музыкальных подмостках 74 года своей жизни и активно занимался музыкальной индустрией вплоть до своей смерти в 2012 году. За свою карьеру он записал 43 альбома, 18 из них стали золотыми и 3 получили платиновый сертфикат. По всему миру было продано более 100 млн пластинок с его (   Читать дальше...   )CD - 1:
-01. Can't Get Used To Losing You (2:21)
-02. Music To Watch Girls By (2:31)
-03. Speak Softly Love (Love Theme from ''The Godfather'') (3:03)(   Читать дальше...   )Жанр: Pop, Vocal, OldiesПродолжительность: 03:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34B1B2749C17246DBBDF340AF5D36D028E911B0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479598   (1009559) от 24.06.2021
-
-VA - Female Voices (2021) Explicit [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Rodrigo - drivers license (04:02)
-02. Hailee Steinfeld - Let Me Go (02:54)
-03. Selena Gomez - Lose You To Love Me (03:26)
-04. Bülow - Revolver (02:48)(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89ACE4757128EFAF306585D303EF1E4BD37B4265
 ```
 
 

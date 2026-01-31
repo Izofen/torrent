@@ -1,3 +1,30 @@
+###  Публикация: 1494635   (887707) от 08.09.2021
+
+VA - National Pop Dance Music (Vol.25) (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_887707.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Giorgio Gaber - Due Ninna Nanna
+002. Lisa Heider - Total Verrueckt
+003. Die Jungen Zellberger - Ein Festival Der Liebe
+004. Michelle - Mein Wunder(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 08:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0B1C9CE16D7A3808D4E60DDE9FA3754A4974E57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494638   (887735) от 08.09.2021
 
 VA - The Lunar Disco, Vol.02 (2021) [MP3|320 Kbps] <Disco, Dance, Remix>
@@ -668,33 +695,6 @@ VA - pure Melodic house 2 (2021) [MP3|320 Kbps] <Melodic House, Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F393D2A450B674D6C20E438465A0467F9774EB7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101939   (889095) от 10.02.2017
-
-VA - Record Russian Mix Top 100 February 07.02.2017 [MP3|307-320 Kbps] <Club House, Pop-Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_889095.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2Elements x Crew 7 - California Dreamin' (DJ Miller x DJ Alex Milano Booty Mix) 4:14
-002. 20 Fingers vs Vincent & Diaz - Short Dick Man (Markiza Mash Up) 3:49
-003. Alexias - I Need U (The Mankeys Edit) 3:18
-004. Alisha Pillay - Mayday (Pride & Kashtan Remix) 4:29(   Читать дальше...   )Жанр: Club House, Pop-Dance, Electro HouseПродолжительность: 07:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1555D63575E009953E90C192E709224BA32A6A90
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1312677   (530959) от 05.07.2019
+
+Sophia - As We Make Our Way (Unknown Harbours) (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown Harbours (02:00)
+02. Resisting (04:36)
+03. The Drifter (05:15)
+04. Don't Ask (05:50)(   Читать дальше...   )Жанр: Indie Rock, Pop RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D0C51B3479A0DD92AEE0E950260E043A2BA8F4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312520   (532783) от 04.07.2019
 
 Sophia - People Are Like Seasons (2004) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
@@ -665,33 +692,6 @@ She Pleasures Herself - XXX (2019) [FLAC|Lossless|tracks + .cue] <Post-Punk, Col
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9209D5B866652746936468E120368D004D81ECB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310325   (547858) от 23.06.2019
-
-Ducktails - St. Catherine (2015) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Disney Afternoon
-02. Headbanging In The Mirror
-03. Into The Sky
-04. Heaven’s Room(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD5EF8FE6172DA8A0538DEDD3ADFDAF43529957D
 ```
 
 

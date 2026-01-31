@@ -1,3 +1,30 @@
+###  Публикация: 1124544   (785786) от 11.04.2017
+
+Faro - Dreaming In Orange (2010) Reissue, 2017 [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bahia (6:06)
+ 02. Subtle Land (5:27)
+ 03. Underneath The Sun (4:17)
+ 04. I'm Glad You Feel That Way (6:13)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC262DA934D951D6D066D9BD0EF8FF91B684C3AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124610   (785790) от 11.04.2017
 
 Faro - Shape Of Sense (2009) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
@@ -668,33 +695,6 @@ VA - Waves Vol.5 (Sunset House And Deep Groove) (2017) [MP3|320 Kbps] <House, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92BB852ABB6197583126F3CA0532B578715A4692
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123919   (785978) от 10.04.2017
-
-VA - Deep Progressive, Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manu Riga – Disconnected 07:17
-02. Killerpunkers – You Be My Life (Feat. Miah) 06:05
-03. Kush (MU) – Trigger 07:14
-04. Andy Leavy – Welcome the Darkness 09:22(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B630C1740278CD5736303FB4E078ED54F8824B92
 ```
 
 

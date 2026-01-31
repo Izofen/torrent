@@ -1,3 +1,30 @@
+###  Публикация: 1279892   (764460) от 31.01.2019
+
+VA - Night Flight Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge, Electronica>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Butler - Cloud No 9 (Original Mix)
+02. Martin Liege - Baby Come On (Original Mix)
+03. Roberto Sol & Florito feat. Ines Prados - Asi Es (Remix)
+04. Svendaq - Each Moment (Original Mix)(   Читать дальше...   )Жанр: Downtempo, ChillOut, Lounge, ElectronicaПродолжительность: 02:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E261865DB50CCD3FCA4379A51A61613211CE4D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126785   (764473) от 19.04.2017
 
 Physical Dreams - Dreams Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -665,33 +692,6 @@ Giuliano Rodrigues & Jubba - Techno 2018 (2019) [MP3|320 Kbps] <Minimal, Tech Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A9F4DCA187051E1A687CE68455301451BB9D8F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126575   (765525) от 18.04.2017
-
-Aly & Fila - Future Sound Of Egypt 492 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M.I.K.E. Push vs Robert Nickson - Tachyon (Original Mix)
-02. RAM feat. Cari - Soulfood (Original Mix)
-03. Miroslav Vrlik & Andre Visior - Raindrops (Extended Mix)
-04. Richard Durand & Neev Kennedy - Running on Empty (Hassan Jewel Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17185C1438D671550D615A040B7424301F89A722
 ```
 
 

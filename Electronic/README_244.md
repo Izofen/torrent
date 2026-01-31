@@ -106,6 +106,33 @@ magnet:?xt=urn:btih:CAF3C8CC1E054F3E1FDDDDEBE470CCDE6E2FD747
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 390623   (449248) от 21.09.2011
+
+Miguel Migs - Outside the Skyline (2011) [FLAC|Lossless]<Deep House, Soulful House, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_449248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Life (feat. Half Pint)
+02. Tonight (feat. Meshell Ndegeocello)
+03. Breakdown (feat. Lisa Shaw)
+04. Everybody (feat. Evelyn Champagne King)(   Читать дальше...   )Жанр: Deep House, Soulful House, LoungeПродолжительность: 01:08:49
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061619   (449291) от 10.10.2016
 
 VA - Balearic Summer Vibes Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -685,33 +712,6 @@ VA - Vocal Dance Vol.4 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDA3FF733634FD35EF3461E962ED4E57FDA1217A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247702   (451378) от 16.09.2018
-
-David Forbes pres. Hal Stucker - Electronic Excursions (2018) [MP3|320 Kbps] <Trance,Progressive Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Forbes pres. Hal Stucker - Celeste (Original Mix)
-02. David Forbes pres. Hal Stucker - Chaos Bowl (Original Mix)
-03. David Forbes pres. Hal Stucker - Fairlights (Original Mix)
-04. David Forbes pres. Hal Stucker - Monolith (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive Trance,Progressive HouseПродолжительность: 01:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB4F69D75B4E4DACF52E922B14B27D755EA946A
 ```
 
 

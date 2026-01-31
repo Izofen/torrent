@@ -1,3 +1,30 @@
+###  Публикация: 1385375   (797686) от 24.05.2020
+
+VA - не Громкие новинки недели 68 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797686.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. BrainStorm - Ночная Смена (3:31)
+2. Captown - Последний День (3:25)
+3. Daasha - Вспышками (2:58)
+4. Danial - Девочки (4:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA98D17310DDCDB32CC325BD22AC218AB8D1858
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010857   (797699) от 26.04.2016
 
 VA - Future Trance Energy 002 April TOP (2016) [MP3|320 кб/с] <Trance>
@@ -671,33 +698,6 @@ VA - A Synthwave Panorama Vol. 22 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50B0087FDFF3D5035A13D6D36F3A0E62D151DDCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507477   (798470) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 3 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Z U R E - The Future Is Now (4:06)
-02. Blaze of Gunfire - We Were So Young (Gertrudda Edit) (4:26)
-03. STARLANDER - One Last Thing (6:18)
-04. Diamond Ace - Vulnerable Now (5:21)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C010FB89EA8017F0D27E2959EAEC5413A9FC9820
 ```
 
 

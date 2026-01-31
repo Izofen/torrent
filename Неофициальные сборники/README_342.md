@@ -1,3 +1,30 @@
+###  Публикация: 1043323   (572841) от 16.08.2016
+
+VA - Зажги Под Летние Хиты 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Аркадиас - Здравствуй Любовь Моя
+002. Slider & Magnit Feat. Penny Foster - Another Day In Paradise
+003. Агонь - Отпусти
+004. Karen Туз Feat. Gaya Khan - Сеньорита(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5AA5FC35BCA0664A2A363C4FE6F1ACED119D32
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303396   (572899) от 21.05.2019
 
 Miguel Bose - This Is Miguel Bose (2019) [MP3|320 Kbps] <Pop, Latin>
@@ -671,33 +698,6 @@ VA - 100 Best Rock Hits (2012) [MP3|320 кб/с]<Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F365AACE6F6E6357232B695263A844A9CB07C49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870677   (574002) от 20.05.2019
-
-VA - 100 Hits Dance 2015 (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D'Mixmasters - selfie (A. R. Mix)
-02. P. C. R. , P. C. R - Happy
-03. DJ Kee - Hey Brother
-04. D'Mixmasters - Sms (Bangerz)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:56:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19BF4B3897BA218AE77CB6B39C3F7A87FFB14380
 ```
 
 

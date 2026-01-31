@@ -1,3 +1,84 @@
+###  Публикация: 1286146   (714810) от 01.03.2019
+
+Настя Макаревич & Лицей - Мчится время (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_714810.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мчится время
+2. Падаю вверх
+3. Где-то
+4. Быть одной(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8D2657F75F866B6410804901E43B542EEADD1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 670169   (715012) от 19.06.2013
+
+Texas - The Conversation (2CD) (2013) Deluxe Edition [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_715012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Conversation [02:44]
+ 02. Dry Your Eyes [02:41]
+ 03. If This IsnҴ Real [00:00]
+ 04. Detroit City [03:42](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1400796   (715013) от 07.08.2020
+
+VA - ZYX Italo Disco Spacesynth Collection 6 (2020) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Spacesynth, Synthpop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laserdance - It's Over (5:03)
+02. Bellatrix - Vector (5:37)
+03. Blue Star Project - Happy Dance (ZYX Version) (5:24)
+04. DJ CON-T - Space Adventure (Vanello Remix) (5:43)(   Читать дальше...   )Жанр: Italo-Disco, Spacesynth, SynthpopПродолжительность: 02:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA1B3612848114A89DA803F21E6E2849EBEF712
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219097   (715238) от 13.04.2018
 
 C.C. Catch - The Best of (2018) [MP3|320 Kbps] <Disco, Euro-Disco>
@@ -615,87 +696,6 @@ Hanne Sorvaag - Featuring (2016) [FLAC|Lossless|image + .cue] <Pop, Soft Rock, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C0759FC154D0977FE381129427E9626CD709C1E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130080   (718250) от 30.04.2017
-
-VA - Старая пластинка: Сторона 1,2 (1988) Compilation, 2CD [FLAC|Lossless|image + .cue] <Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А.Барыкин - Букет
-02. Секрет - Привет
-03. Машина Времени - Костер
-04. Земляне - Трава у дома(   Читать дальше...   )Жанр: Советская эстрада |Продолжительность: 02:36:54 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70095291FA4610BC3BCEE100A0592CCBC4BCAB79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531946   (718360) от 17.02.2022
-
-VA - Лучшие хиты из культовых сериалов и кинофильмов. Часть 1 (2003) [MP3|320 Kbps] <Soundtrack>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triplex - Бригада (remix) 3:23
-к/ф Бригада
-02. С. Шнуров - Мобильник 2:48
-к/ф Бумер(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AD5F9E72C50C8917772A8E4EDE2D23740DA509
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129967   (718425) от 30.04.2017
-
-VA - NRJ Spring Hits (2017) Box Set, 3CD [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - весенний сборник (   Читать дальше...   )CD1:
-01. Ofenbach - Be Mine  (2:42)
-02. Petit Biscuit - Sunset Lover  (3:57)
-03. Sean Paul feat. Dua Lipa - No Lie  (3:42)(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 03:17:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC94108D638DB5456CD4242D313C7BBC1B0298E
 ```
 
 

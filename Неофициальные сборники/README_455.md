@@ -1,3 +1,29 @@
+###  Публикация: 1024080   (719954) от 07.06.2016
+
+VA - Young, Fresh & Disco (2016) [MP3|320 кб/с] <Soulful House, Dance,Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereo Palma - Cada Vez (Remember & Feedback Radio Remix) (03:28)
+02. Solanos - Childish Freedom (05:37)
+03. Bug & Heck - Falling Stars (feat. J&J)Жанр: Soulful House, Dance,Nu-DiscoПродолжительность: 03:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9399D1DE4AE1A0E71EA73092359B6C615916DFFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024090   (720080) от 07.06.2016
 
 VA - Workout Mix vol.5 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
@@ -671,33 +697,6 @@ VA - От Земли и До Небес (2018) [MP3|192-320 Kbps] <Pop, Chanson>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4154259BE9EC5135FEC357FE037E9F63B05947A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218542   (721722) от 10.04.2018
-
-VA - Живи стильно! Наслаждайся музыкой с Hit FM (12) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_721722.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Teo Dora - Спелое Чувство
-002. Алла Пугачева - Птица Певчая
-003. U3u - Радиохит
-004. Кир Пованти - Утоли Мой Голод(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCFF437EB691C5AEC0F4A8A5B39AB514B9C05F4
 ```
 
 

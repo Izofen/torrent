@@ -1,3 +1,84 @@
+###  Публикация: 1605408   (1044846) от 18.01.2023
+
+Rüdiger Meng (Roger Meno) - Disco Groovin' (1988) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synchronity (3:22)
+02. Turbolights (2:10)
+03. Its Just Illusion (4:04)
+04. Disco Groovin' (3:10)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:56:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6716BBA7A86A9B79DD5C78CEC28789D87AE0470
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605410   (1044851) от 18.01.2023
+
+Rüdiger Meng (Roger Meno) - Rhythm And Energy (1991) [FLAC|Lossless|WEB-DL|tracks] <Disco, Euro-Disco, Instrumental>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhythm And Energy (3:04)
+02. Blanch A Voil (3:20)
+03. Aspects Of Sport (3:23)
+04. Speed Up (3:42)(   Читать дальше...   )Жанр: Disco, Euro-Disco, InstrumentalПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B654D47A2EAE7BFB3A79F71F2DF7640F8B5CC9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605355   (1044882) от 18.01.2023
+
+Elton John - Elton John (1970) Reissue, 2011, Mercury [OGG Vorbis|430 Kbps] <Rock, Pop, Symphonic Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Song
+02. I Need You To Turn To
+03. Take Me To The Pilot
+04. No Shoe Strings On Louise(   Читать дальше...   )Жанр: Rock, Pop, Symphonic RockПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1954BF87A8E320649DFD242C31F4EDA402C90CC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 296455   (1045138) от 15.01.2023
 
 Вахтанг Кикабидзе - 11 альбомов (1981-2008) [MP3|320 kbps]<Pop, Retro>
@@ -611,87 +692,6 @@ Bee Gees - Living Eyes (1981) SHM-CD, Japanese Edition, Reissue, 2022, Capitol R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6ED1415F2691BA074B2F89E6B4C16A8B8E544B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602631   (1046023) от 06.01.2023
-
-Bee Gees - Mr. NATURAL (1974) SHM-CD, Japanese Edition, Reissue, 2022, Capitol Records [FLAC|Lossless|tracks + .cue] <Pop Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charade 4:12
-02. Throw a Penny 4:52
-03. Down the Road 3:20
-04. Voices 4:50(   Читать дальше...   )Жанр: Pop Rock, BalladПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672006782EB1CDD42F31A1D64802FB0E3E7C3C41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602659   (1046044) от 06.01.2023
-
-Duran Duran - Astronaut (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.(Reach Up For The) Sunrise 03:26
-02.Want You More 03:37
-03.What Happens Tomorrow 04:05
-04.Astronaut 03:24(   Читать дальше...   )Жанр: Electronic, Rock, Pop RockПродолжительность: 00:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782D4E0C7D8C59CC33F56F35F3964780A4431635
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602448   (1046105) от 05.01.2023
-
-Mariah Carey - #1's (1999) [OGG Vorbis|480 Kbps] <Hip Hop, Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1046105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweetheart
-02. When You Believe (from The Prince Of Egypt)
-03. Whenever You Call
-04. My All(   Читать дальше...   )Жанр: Hip Hop, Pop, VocalПродолжительность: 01:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5670DCD03D68D0C29E5391F5A960C4E44BED7C34
 ```
 
 

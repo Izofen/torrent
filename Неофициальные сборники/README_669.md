@@ -1,3 +1,30 @@
+###  Публикация: 1460570   (1022617) от 05.04.2021
+
+VA - Gravity Grave: Psy Trance Set (2021) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футуристический образ обложки музыкального микс-компилата Gravity Grave в полной мере передает настроение всего альбома. Треки демонстрируют бескомпромиссный и энергичный звук, чистоту и лаконичность идеи. В альбоме также присутствуют эксперименты с ритмом и элементы аналогового техно-саунда.001. Psychorustle - Gravity Grave
+002. Dr. Strangefunk - A.M Burger
+003. Skizologic And Vertical - Surreality Check
+004. Plastic Reality - The Key Of The Universe(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239E9C3DEC9EEE5FD769F27F42DC381EAE3FA0F3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460556   (1022626) от 05.04.2021
 
 Alamесоs Dе La Siеrra - Las Pacas (2021) [MP3|320 Kbps] <Latin, Folk>
@@ -668,33 +695,6 @@ VA - Before The Day Awakes: Indie Rock Compilation (2021) [MP3|320 Kbps] <Indie 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85D3B4F2B188D5CFE34149C3E316D7F3C5EC1B01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458876   (1023491) от 31.03.2021
-
-VA - Club Music vol.2 (2021) [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023491.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Нискуба - Балаклава (2:14)
-002. MATTN, Klaas - The Logical Song (2:42)
-003. EQRIC, Xenton, Jex - The Final Countdown (2:24)
-004. Jonas Blue, AWA - Something Stupid (2:56)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 09:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8699040B3B43EC718495293EBFA784419CEDCC27
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1395251   (755286) от 10.07.2020
+
+VA - This is Rock Blues folk country (2020) [MP3|320 Kbps] <Rock, Blues, Country>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cream - Sunshine Of Your Love
+02. The Doors - Roadhouse Blues
+03. Jimi Hendrix - Purple Haze
+04. Lynyrd Skynyrd - Sweet Home Alabama(   Читать дальше...   )Жанр: Rock, Blues, CountryПродолжительность: 06:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3E88DDD0750F2710FDCFC7BA90AF02DC71A75C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1522860   (755313) от 09.01.2022
 
 VA - Beatport Hardstyle: Electro Sound Pack #392 (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Core Dance>
@@ -670,33 +697,6 @@ VA - Music For Fitness Green Party (2018) [MP3|320 Kbps] <Pop, Dance, Electro Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B780A7C08A6CD7B280B46B3A3B806CF06EA62CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522727   (756498) от 08.01.2022
-
-Leonard Cohen - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Street
-02. The Letters
-03. Darkness
-04. The Law(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 05:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F9963B9C403689AD0E14C44C8B8A34DEA51576
 ```
 
 

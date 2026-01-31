@@ -1,3 +1,30 @@
+###  Публикация: 905276   (651336) от 05.06.2015
+
+VA - Alterportal HITS 15 Vol. 80 -   April (2015) [MP3|128-320 кб/с]<Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 Quarters Dead - The Two of Us
+02. Flaw - Bleed Red
+03. In Virgo - Set Me Free
+04. Scarecell - Reach(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 02:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA4C4C4DCE1F25560EBC6BA7A4158CA0E886357
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905065   (651347) от 05.06.2015
 
 VA - Car Audio. Первый летний (Sound Clinic - Special Edition) (2015) [MP3|320 кб/с]<Deep, Tech, G-House, Dubstep, Trance, Techno>
@@ -695,33 +722,6 @@ VA - Record Super Charts # 443 (2016) [MP3|320 Kbps] <House, Electro House, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38785F1ECD3DAA15048EA8819BAD960822B6F891
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031463   (651804) от 04.07.2016
-
-VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Armin van Buuren Extended Remix) 6:11
-002. Talla 2XLC & Jilliana Danise -  What Could Be Better (Original Mix) 6:23
-003. Bobina & Kyle Richardson -  Love Is the Answer (Dimension Remix) 5:11
-004. Mhedi Belkadi -  Leiki (Original Mix) 5:14(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA34A8304C67A49747DEC41157F6A26A6FD7504
 ```
 
 

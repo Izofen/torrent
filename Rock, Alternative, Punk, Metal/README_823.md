@@ -1,3 +1,327 @@
+###  Публикация: 1044211   (567125) от 19.08.2016
+
+VA - While My Guitar Gently Weeps III (2005) [MP3|320 Kbps] <Rock, Rock-N-Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eric Clapton - Cocaine (3:30)
+ 02. Dire Straits - Heavy Fuel (4:55)
+ 03. Tom Petty - Breakdown (2:41)
+ 04. Santana - Black Magic Woman (3:36)(   Читать дальше...   )Жанр: Rock, Rock-N-RollПродолжительность: 02:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC87AFEB75B8BBB924F00861E214F1B8C2AEE1A0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555833   (567155) от 05.06.2022
+
+Хитобои - Пятница (2022) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гороскоп
+2. Пятница
+3. Валентина
+4. Голова(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0FF2BBD2A74C995BD421E377B754AFA5A111B0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555736   (567162) от 05.06.2022
+
+Voodoo Angel - First Spell (2022) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake me when it’s done (03:51)
+02. Break It Out (04:11)
+03. Your Reflexion (03:50)
+04. The Exit Day (04:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B4F52F5377DDF50BCC214A34E31AF3F3EBE4F8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555593   (567163) от 05.06.2022
+
+ZED/ZERO - Welcome To The Multiverse (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Multiverse
+02. Under Other Oceans
+03. Anthem
+04. It Never Ends(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:503FDFCD7950F534C82A0D9616B9099B646245D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555612   (567170) от 05.06.2022
+
+Dust Mothers - The Gates of Horn and Ivory (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Experimental, Noise Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamais Vu
+02. Statique
+03. Big Meat Bean
+04. The Way You Are(   Читать дальше...   )Жанр: Psychedelic Rock, Experimental, Noise RockПродолжительность: 00:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D34771480E47F1AA489E7C9374FB645EE5774F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304169   (567273) от 24.05.2019
+
+Всё_CRAZY - 2 Альбома, 4 Сингла (2016-2019) [MP3|320 Kbps] <Celtic Punk, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567273.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флагманы и первопроходцы отечественного беларуского кельт-панка! Белорусские кельтские панки смешивают в своем творчестве злободневные бытовые темы и морскую романтику, философию и самоиронию, одним словом, являются по-настоящему уникальным явлением для белорусской сцены.2016 - По морям
+2017 - Мокрые слухи
+2018 - Вова (Single)
+2018 - Осень (Single)Жанр: Celtic Punk, Folk RockПродолжительность: 01:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF3E729B2D66FD77ECB434A882869BDD326983B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044311   (567290) от 19.08.2016
+
+B.J. Thomas - 20 Greatest Hits (1983) Compilation, 1990, FST Records [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Raindrops Keep Falling On My Head  03:03
+02.  If You Ever Leave Me  02:35
+03.  Everbody's Talking  02:42
+04.  I'm So Lonesome I Could Cry  03:09(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2854FA30EE3E8287B97D2FE0B00114B8CE1878
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044217   (567293) от 19.08.2016
+
+Blood Red Throne - Union Of Flesh And Machine (2016) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567293.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Revocation Of Humankind 04:23
+2 Proselyte Virus 05:09
+3 Patriotic Hatred 04:15
+4 Homicidal Ecstasy 04:42(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0301CAFDC5864B1D70540678FFAE6E64A12F9B08
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555636   (567336) от 05.06.2022
+
+Шоколадный торт - Отнеси меня на мусорку (2022) [MP3|320 Kbps] <Russian Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Отнеси меня на мусорку [00:02:28]
+02 - Питерский рассвет [00:03:32]
+03 - Человек [00:00:40]
+04 - Бабочка [00:04:01](   Читать дальше...   )Жанр: Russian Punk RockПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B4EDD21E3707AE21FAFA9435C2C4891D8E4EFB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555829   (567342) от 05.06.2022
+
+Революция - Первый (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567342.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Синдром
+2. Маски
+3. Мир равнодушен ко всем
+4. Надо жить(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6435AE82767D36AF2E002263F12CD753C9FB13CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555681   (567359) от 05.06.2022
+
+Dampf - The Arrival (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winterland
+02. The Other Side (feat. Tommy „Lord Thorwald” Johansson - Sabaton & Fredrik „Hanoi“ Melander - Bathory)
+03. Goeie Mie (feat. feat. Tommy „Lord Thorwald” Johansson – Sabaton)
+04. Who Am I?(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C22FBAC99CD40FAD7A20E8335BFED66D3520CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555705   (567361) от 05.06.2022
+
+Parasites (Паразиты) - Паразиты (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Нижний Новгород [00:02:16]
+02 Майонез [00:02:52]
+03 Толстый [00:02:20]
+04 Прости Меня [00:02:37](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC280DF2478A9C33272DAAF84363868268495A9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304055   (567448) от 24.05.2019
 
 Silverstein - Redux: The First 10 Years (2019) [FLAC|Lossless|tracks + .cue] <Rock, Post-Hardcore>
@@ -374,327 +698,6 @@ Magnum - Lost On The Road To Eternity (2018) 2CD [FLAC|Lossless|image + .cue] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8A7B1B52DDA711E898992712AA75D76C5167E5A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234657   (567873) от 07.07.2018
-
-Livin' Blues - Blue Breeze (1976) Limited Edition, Reissue, 1997, Pseudonym [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shylina (5:38)
-02. Back Stage (5:55)
-03. Midnight Blues (3:19)
-04. Pisces (1:27)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04D7E7B3FD74393040EEC7079D4ACAB0B69F43E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922602   (567914) от 29.07.2015
-
-Константин Никольский - Музыкант. Лучшие песни (2015) 2CD [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Мой друг художник и поэт
-03. Я сам из тех…
-04. Опять до времени отложены дела(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3364C8BC219C79DCD0997308F7111EE0780251
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234646   (567950) от 07.07.2018
-
-Ray Davies - Our Country: Americana Act II (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Singer-Songwriter>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Country 03:16
-02. The Invaders (Spoken Word) 02:30
-03. Back in the Day 02:41
-04. Oklahoma U.S.A. 04:11(   Читать дальше...   )Жанр: Pop-Rock, Singer-SongwriterПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7B0BCE1C77539CBC6B41A4E38577A8214AAB8A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234800   (567952) от 07.07.2018
-
-Fractal Gates - The Light That Shines (2018) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Visions, Pt. X 00:49
-02 - Breath Of Life 03:28
-03 - Chasing The Line 03:30
-04 - Infinity 03:12(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405BB55FCB8D8E56B5F4A5F0F962970C23D29476
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234633   (567961) от 07.07.2018
-
-Chris Smither - Happier Blue (1993) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Contemporary Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happier Blue (Chris Smither) 04:18
-02. Memphis in the Meantime (John Hiatt) 03:45
-03. The Devil's Real (Chris Smither) 04:59
-04. No More Cane on the Brazos / Mail Order Mystics (Traditional / Chris Smither) 06:07(   Читать дальше...   )Жанр: Folk-Rock, Contemporary BluesПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787C8C327B2680B5E229FE84A43C7A547B0C7FB7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922464   (567974) от 29.07.2015
-
-Би-2 - Нечётный воин: Лучшее 2005 - 2015 (2015) 2CD [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CAC5DAE6604B4904A9AA043DA0ED77392588E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922590   (567978) от 29.07.2015
-
-Константин Никольский - Музыкант. Лучшие песни (2015) 2CD [FLAC|image+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Мой друг художник и поэт
-03. Я сам из тех…
-04. Опять до времени отложены дела(   Читать дальше...   )Жанр: RockПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C16D19177E8360C1081FE24A0904D3A859C72EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922622   (568025) от 29.07.2015
-
-Deep Purple - Now What?! (2013) 5CD Box Set [FLAC|image+.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Simple Song
-02. Weirdistan
-03. Out Of Hand
-04. Hell To Pay(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EC620F7698F4183A021ED9C4BDCA10FDC60D71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922832   (568120) от 29.07.2015
-
-Joe Cocker - With A Little Help From My Friends (1969) Hybrid SACD, Limited Edition /2015, Audio Fidelity/ [FLAC|image + .cue]<Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feeling Alright [4:16]
-02. Bye Bye Blackbird [3:31]
-03. Change In Louise [3:26]
-04. Marjorine [2:17](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:367B287FAF5245D763E03F6F1C259E540DD56A3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922580   (568200) от 29.07.2015
-
-Motorhead - Les Genies du Rock - Ace Of Spades (1995) [MP3|320 кб/с]<Rock & Roll, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ace Of Spades (2:49)
-02.  Love Me Like A Reptile (3:23)
-03.  Shoot You In The Back (2:39)
-04.  Live To Win (3:30)(   Читать дальше...   )Жанр: Rock & Roll, Speed MetalПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2FFFA5CF84C8C9561A915C8EC91870B6398CF91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922559   (568208) от 29.07.2015
-
-VA - Best Of Rock - Les Genies du Rock (1995) [MP3|320 кб/с]<Rock,Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bo Diddley - Willie And Lillie (2:17)
-02. Spooky Tooth - Two Time Love (3:28)
-03. Muddy Waters - Walkin' Thru The Park (3:17)
-04. The Shangri-Las - Right Now And Not Later (2:35)(   Читать дальше...   )Жанр: Rock,PopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C022FE44D2AC827A0ED8832E3B703A0BB050CC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922725   (568212) от 29.07.2015
-
-High on Fire - Luminiferous (2015) [FLAC|tracks+.cue]<Stoner Metal/Sludge Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_568212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Black Plot (5:32)
-02. Carcosa (7:11)
-03. The Sunless Years (5:06)
-04. Slave the Hive (3:50)(   Читать дальше...   )Жанр: Stoner Metal/Sludge MetalПродолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E55D5C20480C09BDA5D26539472B8639142F7D
 ```
 
 

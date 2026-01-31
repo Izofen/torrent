@@ -1,3 +1,327 @@
+###  Публикация: 310393   (836102) от 19.03.2011
+
+Satyros - Riven (2011) [MP3|320 kbps]<Black metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purify 03:08
+02. Sardonica 05:06
+03. Eyes of Eternity 04:08
+04. Wermode's Fall 03:59
+05. Ataraxia 05:45
+06. Seizing the Sceptre of God 03:08
+07. Riven 06:30
+08. Irasyati 04:00
+09. Traumhallen 05:38
+10. Lost in Grey 05:46(   Читать дальше...)Жанр: Black metalПродолжительность: 01:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DD3DB161F30B20D4C6416D888D2F8A8671EE31
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004692   (836161) от 07.04.2016
+
+Electric Light Orchestra - The Very Best Of (2015) Japanese Edition [MP3|320 кб/с] <Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Blue Sky
+02. Evil Woman
+03. Don't Bring Me Down
+04. Sweet Talkin' Woman(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D62415C3ECCC6F9C4DB19E1E51B10D88A6E72CA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004922   (836165) от 07.04.2016
+
+Deftones - Gore (2016) [MP3|320 кб/с] <Alternative Metal, Post-Metal, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prayers / Triangles
+ 02. Acid Hologram
+ 03. Doomed User
+ 04. Geometric Headdress(   Читать дальше...   )Жанр: Alternative Metal, Post-Metal, Experimental RockПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0B5F7B1579A978BD5480DC42233DD896FAED9D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005002   (836166) от 07.04.2016
+
+Ленинград & The Tiger Lillies - Huinya (2005) [FLAC|Lossless|image + .cue] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Суд
+02. Рвота
+03. Х...я
+04. Водка(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:471712D3FBA9F04BF8AC1BEF7B72E52227ABC45F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113671   (836210) от 12.03.2017
+
+Eclipse - Monumentum (2017) Japanese Edition [MP3|320 Kbps] <Hard Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vertigo (03:24)
+ 02. Never Look Back (03:21)
+ 03. Killing Me (03:47)
+ 04. The Downfall Of Eden (04:22)(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C59C3DB26E9FF5977FEF16E4EBD61E540EB8719
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380120   (836259) от 01.05.2020
+
+Dругой Ветер & Элизиум - Чёрный флаг (2020) Single [MP3|320 Kbps] <Ska, Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836259.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Чёрный флагЖанр: Ska, Punk, RockПродолжительность: 00:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F76D07296161852B67F3FA5C0132069FE4E12C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380117   (836267) от 01.05.2020
+
+Ногу свело! - Золотое Время (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836267.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Золотое ВремяЖанр: RockПродолжительность: 00:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729020290BF6A34EAE6B9C003E34D35DAB001731
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379960   (836374) от 01.05.2020
+
+Car Seat Headrest - Making a Door Less Open (2020) [MP3|320 Kbps] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weightlifters
+02. Can't Cool Me Down
+03. Hollywood
+04. There Must Be More Than Blood(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF5D3FA5BE1EA5619D8FD8DED113B624C579B9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380125   (836383) от 01.05.2020
+
+The Apples In Stereo - 7 Albums (1995-2010) Collection [MP3|320 Kbps] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836383.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Apples In Stereo - американская рок-группа, связанная с Elephant Six Collective. Группа в значительной степени является продуктом ведущего вокалиста/гитариста/продюсера Роберта Шнайдера, который пишет большинство музыки и текстов группы. Звучание группы сравнивают с психоделическим роком от The Beatles и The Beach Boys в 1960-е годы, а также таких групп как Electric (   Читать дальше...   )Список альбомов:
+1995 - Fun Trick Noisemaker
+1997 - Tone Soul Evolution
+1999 - Her Wallpaper Reverie(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 04:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1879EFF995CE80412412FC5E97854CC29301C1E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379951   (836393) от 01.05.2020
+
+Car Seat Headrest - Making a Door Less Open (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weightlifters (05:40)
+02. Can't Cool Me Down (05:09)
+03. Deadlines (Hostile) (04:21)
+04. Hollywood (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB814A0DB7679961B864487E02DDD8BB4EE8765
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501216   (836397) от 09.10.2021
+
+Кипелов - Часы Судного дня (2021) EP [FLAC 2.0|96/24|tracks|WEB-DL] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Огненная дуга (6:50)
+02. Часы Судного дня (5:31)
+03. Лунный ковчег (5:15)
+04. Крик тишины (5:23)Жанр: Heavy MetalПродолжительность: 00:22:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B19D64C0E70F9FBA9212CBF6B0E58E64B621342
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004677   (836416) от 07.04.2016
+
+Би-2 - #16плюсTour @ Stadium Live (2016) [FLAC|Lossless|image + .cue] <Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не умирать молодым
+02. Темные небеса
+03. Революция
+04. Дурочка(   Читать дальше...   )Жанр: РокПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3851E9D9ED79503A4A93D92CDDD322D9FAA58FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379899   (836523) от 01.05.2020
 
 Swiss & Die Andern - Saunaclub (2020) [FLAC|Lossless|WEB-DL|tracks] <Punk-Rock, Rapcore>
@@ -374,354 +698,6 @@ Nelson - Peace Out (2015) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D11E87517331C63C4E4422F64CBF9C1489FCB04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004736   (836887) от 07.04.2016
-
-Stevie Nimmo - Sky Won't Fall (2016) [FLAC|Lossless|image + .cue] <Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chains of Hope (05:02)
-02. Roll the Dice Again (04:34)
-03. Change (04:59)
-04. Running On Back to You (07:06)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FA3CF8A3271E9A1376E4FBFD1896E0F234E3E74
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004946   (836900) от 07.04.2016
-
-Кали Юга - Дороги (1997) [MP3|320 кб/с] <Рок>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. От порога (03:54)
-02. Холодный ветер (04:02)
-03. Если бы я был (03:44)
-04. Кто Я (05:34)(   Читать дальше...   )Жанр: РокПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0AC6594ADA08DAEC3A3141636B18CA96E0CA0D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309985   (837157) от 18.03.2011
-
-Сектор Газа - Лучшее. Золотая Коллекция 2CD (2006) [MP3|320 kbps]<Punk-rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc №1
-1. Гуляй, мужик! (3:06)
-2. Демобилизация (3:55)
-3. Вечером на лавочке (4:03)
-4. Колхозный панк (3:36)
-5. Ночь перед рождеством (4:25)
-6. Бомж (3:33)
-7. Мент (2:25)
-8. Русский мат (2:24)
-9. Частушки (5:33)(   Читать дальше...   )Жанр: Punk-rockПродолжительность: 02:30:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C0454152833A783F986608C912E296D56DDF54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310077   (837322) от 18.03.2011
-
-Ляпис Трубецкой - Agitpop Live (2011) [MP3|192 kbps]<Ska Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -Жанр: Ska Punk, RockПродолжительность: 01:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2AAD9C199943CE3A7631486DDF98BAAFD5F07C6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310242   (837381) от 18.03.2011
-
-Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ballad Of Mona Lisa [03:46]
-02. Let's Kill Tonight [03:33]
-03. Hurricane [04:25]
-04. Memories [03:25]
-05. Trade Mistakes [03:36]
-06. Ready To Go (Get Me Out Of My Mind) [03:37]
-07. Always [02:33]
-08. The Calendar [04:43]
-09. Sarah Smiles [03:33]
-10. Nearly Witches (Ever Since We Met…) [04:16]Жанр: RockПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE0CA3E9DF728D989424A351639C5DB9A6D1E9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379659   (837578) от 30.04.2020
-
-Trivium - What the Dead Men Say (2020) Japan Bonus Tracks [FLAC|Lossless|tracks + .cue] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IX (01:59)
-02. What The Dead Men Say (04:46)
-03. Catastrophist (06:28)
-04. Amongst The Shadows & The Stones (05:40)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9B1EAD12F53760994B041E25FB70D59C2433D86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379824   (837691) от 30.04.2020
-
-VA - NOW Alternative Classics (2020) [MP3|320 Kbps] <Indie & Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.E.M. - The One I Love
-02. The Killers - All These Things That I've Done
-03. The Wallflowers - One Headlight
-04. Massive Attack - Protection(   Читать дальше...   )Жанр: Indie & AlternativeПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5DA294E74E485E01EE09FE28334EF13CB0275D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500974   (837860) от 08.10.2021
-
-Кипелов - Часы Судного Дня (2021) EP [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Огненная дуга (06:50)
- 02. Часы Судного дня (05:31)
- 03. Лунный ковчег (05:15)
- 04. Крик тишины (05:23)Жанр: Heavy MetalПродолжительность: 00:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49F0E153CA286858D2F994A4734BB6F222109FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113550   (837947) от 11.03.2017
-
-Rammstein - 5/4 B-Sides (2002) Unofficial Release [MP3|320 Kbps] <Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 5/4
-2. Mutter (Sono's Inkubator Mix)
-3. My Name Is... (Rammstein & Eminem)
-4. Wilder Wien (Demo Version)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80934A3E0FD6747A8B8EDAB1B5E6AB6F5FAA113C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501085   (837990) от 08.10.2021
-
-Кипелов - Часы Судного Дня (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Огненная Дуга
-02. Часы Судного Дня
-03. Лунный Ковчег
-04. Крик ТишиныЖанр: Heavy MetalПродолжительность: 00:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AB78BBCD2C1E40BF89F2D373F80E8E22E2E5D8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501113   (837992) от 08.10.2021
-
-Рабфак 2.0 - Живая классика (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_837992.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Наш дурдом
-2. Раскачивать лодку
-3. Просрали страну
-4. Хватит кормить Канзас(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036E464608AEEF21FAC7C603660C4A62B5075F87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 193983   (838018) от 20.04.2010
-
-Кирпичи - 11 альбомов (1996-2005) [MP3|64-320 kbps] <Alternative/Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Года выпуска: 1996-2005Альбомлист:
-1996 - Кирпичи тяжелы
-1999 - Смерть на рэйве
-2000 - Капиталиzм 00
-2002 - Сила ума
-2004 - Let's Rock
-2005 - Царский альбомъ
-2006 - 7
-2008 - Камни
-2009 - Главклуб(   Читать дальше...   )Жанр: Alternative/RapcoreПродолжительность: 00:59:15
-
-01 | Интро | 00:16
-02 | Джедаи | 03:06
-03 | Сколько из окна? | 04:10
-04 | Верь мне | 02:18
-05 | В загон | 02:58
-06 | В огонь | 02:21
-07 | Ира | 02:56
-08 | Never Again | 02:52(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 

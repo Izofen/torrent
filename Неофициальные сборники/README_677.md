@@ -1,3 +1,30 @@
+###  Публикация: 1447217   (1031778) от 13.02.2021
+
+VA - Time spent on BBC (2021) 2CD [MP3|320 Kbps] <Rock, Pop, Blues>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W.A.S.P. - Animal (Fuck Like a Beast)
+02. Bon Jovi - You Give Love A Bad Name
+03. Led Zeppelin - Over the Hills and Far Away (Remaster)
+04. Aerosmith - Sweet Emotion(   Читать дальше...   )Жанр: Rock, Pop, BluesПродолжительность: 09:24:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12D9152E66B1860A4B03B4887E42359E4658B6F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447294   (1031825) от 13.02.2021
 
 VA - Music News vol.71 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
@@ -668,33 +695,6 @@ VA - Goa Trance 2021: Top 100 Hits DJ Mix (2021) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B4327A410F811C87FB2A89A665989B5244363B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445876   (1033288) от 07.02.2021
-
-VA - Organic Sound (2021) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, волшебные звуки которой создадут внутреннею гармонию и душевное равновесие. Предлагается к прослушиванию для создания медитативного настроения в свободное время. Облака на небе, шелест листвы и чашка с ароматным кофем станут Вашими лучшими соратниками в этом предприятии.001. Gamma Orionis - The Real Purpose
-002. Maroulé - 808 In A Zoo
-003. Schwartz & Funk - Jeunesse
-004. Coolmix - Heaven(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 08:38:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8648295BE9E054828136F6B64DFE2EB017CA44A
 ```
 
 

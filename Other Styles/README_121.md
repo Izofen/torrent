@@ -1,3 +1,192 @@
+###  Публикация: 1285058   (718953) от 27.02.2019
+
+VA - 20 Best Of Brazilian Capoeira (2019) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Capoeira>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Capoeira Ultimate - Berimbao Viola
+02. Tafari Roots - Faca De Ponta
+03. Capoeira Experience - Ingá Ingá
+04. Capoeira Muzenza - Vou Ver Mou Mestre(   Читать дальше...   )Жанр: World, Ethnic, CapoeiraПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FEB51035559FF56E28FC43BD23135BC21062E5F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218871   (719526) от 11.04.2018
+
+Dean Evenson & Peter Ali - Prayers on the Wind (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Beyond Time
+ 02 – Slot Canyons
+ 03 – Across Worlds
+ 04 – Misty Morning(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F76026964135330D2460AC4E8E4FF9C1B9541AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023707   (719727) от 07.06.2016
+
+Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Milan / Remastered [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719727.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Main Title 	2:40
+02. 	Terminator Arrival / Reese Chased / Sarah On Motorbike 	7:09
+03. 	Terminator Gets Guns / Search For Sarah 	1:13
+04. 	Reese Dreams Of Future War 	1:51(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671CE556654B703612F6A1D3D64EE453E1CC19AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023952   (719938) от 07.06.2016
+
+Atticus Ross, Claudia Sarne, Leopold Ross - Три девятки / Triple 9 (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|image + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_719938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ticking Glock (06:28)
+02. The Drop (02:07)
+03. Eleven Fifty Nine (06:21)
+04. The Butcher's Shop (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A25925662D5E3219F1BAABFCA8B18125C55DF18
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023948   (720039) от 07.06.2016
+
+Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ticking Glock (06:28)
+02. The Drop (02:07)
+03. Eleven Fifty Nine (06:21)
+04. The Butcher's Shop (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9F45408DF2E6ED4821A4A8C15AE8962FA7BFB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129739   (720046) от 29.04.2017
+
+VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактики. Часть 2 (Awesome Mix, Vol. 2) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showtime A-Holes (01:28)
+02. vs The Abilisk (02:35)
+03. The Mantis Touch (01:54)
+04. Space Chase (03:21)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:35:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E72D221F5389B465E3ABC4A55B276D928EDB79B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129740   (720057) от 29.04.2017
+
+VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактики. Часть 2 (Awesome Mix, Vol. 2) + (Original Score) (2017) [FLAC|Lossless|tracks+.cue, tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showtime A-Holes (01:28)
+02. vs The Abilisk (02:35)
+03. The Mantis Touch (01:54)
+04. Space Chase (03:21)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:35:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96779E52DA3BD7E547FFC15D160DA1702666337
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024000   (720182) от 07.06.2016
 
 John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -503,189 +692,6 @@ VA - Los clasicos argentinos - Tango - Vol.17 - Francisco Canaro: El ritmo canye
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F9B3AFC2652620D44EFD06A8BB1D9AB69FB9990
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188994   (722736) от 03.08.2020
-
-VA - Cafe Chillout Ibiza Edition (2008) [MP3|167-233 kbps]<Lo-Fi>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armstrong - Future City 			(04:43)
-02. Orient Team - The Quest 			(04:06)
-03. Del Mar - Evening Cafe (Ibiza Dub) 		(05:28)
-04. Van Der Hayden - Hymn To Love 		(04:58)(   Читать дальше...   )Жанр: Lo-FiПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7286AFE461ABAF191E4E3AEFBB4567AAC074093
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 217670   (722852) от 03.08.2020
-
-VA - Seven Lounge (2009) 2CD Digipack Edition [APE|Lossless|image + .cue] <Lounge, House>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722852.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1: Seven Lazy Lounge
-01. First Song - Desansis - First Song - Desansis (3:51)
-02. Sunlight - Island Groove - Sunlight - Island Groove (6:24)
-03. Seaside - Enigmatic - Seaside - Enigmatic (5:37)(   Читать дальше...   )Жанр: Lounge, HouseПродолжительность: 02:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01ED1A91AF60617537E14DB897DC8EDBDC27669A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128976   (724218) от 27.04.2017
-
-Enigma - Enigma V: Dream On (2000) Full Version, Bootleg [FLAC|Lossless|tracks + .cue] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Sadeness Part I (Meditation Mix) 3:00
-02. Enigma - Mea Culpa Part II (Fading Shades Mix) 6:13
-03. Andru Donalds - Simple Obsession 4:07
-04. Andru Donalds - Wating For The Hurricane 4:45(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936DEF5CF1E44DFFEDF2CCFB35694FD16A7CD4A1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129219   (724225) от 27.04.2017
-
-Evgeny Khmara (Евгений Хмара) - Fairy Tale (2017) [MP3|320 Kbps] <New Age, Piano, Soundtracks>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song of Earth
-02. Fairy Tale
-03. Steam Locomotive
-04. When She Slept(   Читать дальше...   )Жанр: New Age, Piano, SoundtracksПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6851DC8A4B1472ABDB0C7F0E1193FD7A2A8B983
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023385   (724241) от 05.06.2016
-
-Angry Video Game Nerd II: ASSimilation (Sam Beddoes) (2016) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе самой игры, то есть музыка была извлечена из самой игры. В стиме музыка игры продается с качеством 128 kbpsЖанр: ScoreПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F00100FDB69DC858FEED3E6BA4E09F2DADDE92D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023430   (724245) от 05.06.2016
-
-Argishty - Первый ереванский снег (2012) [FLAC|Lossless|tracks] <Armenian Duduk, Folk, Relax>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724245.jpg" />
-</div>
-
-
-###  Подробнее
-
-В феврале 2012 года вышел третий альбом музыканта «Первый ереванский снег». Здесь, кроме оригинальных обработок, представлены новые авторские композиции Argishty, а также необычные сочетания дудука с такими этническими инструментами, как австралийский диджериду и индийский ситар.01. Ты, как чинара
-02. Выше Арарата
-03. Высокие горы
-04. Findjan(   Читать дальше...   )Жанр: Armenian Duduk, Folk, RelaxПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C53427B74A46B2ECD9800384A651A737D388937D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023169   (724250) от 05.06.2016
-
-Table Top Racing - World Tour (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_724250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рип сделан на основе самой игры, то есть музыка была извлечена из самой игрыЖанр: SoundtrackПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139597BBCE3A8BD5CB9FBD28A29C5DA2BF512F21
 ```
 
 

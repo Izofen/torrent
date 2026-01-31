@@ -1,3 +1,30 @@
+###  Публикация: 1569023   (455801) от 11.08.2022
+
+VA - The Sound Of Progressive Trance Vol.14 (2022) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Soun - Sakura (Extended Mix)
+02. Donald Wilborn - Greenland (Festival Mix)
+03. Albakar & CanitaR - Mind Distort (Original Mix)
+04. Acues - Dancing At Midnight (Evebe Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:594959D95FA45CEAD44D46560020A4F719C9D399
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569020   (455806) от 11.08.2022
 
 VA - Sounemot State 007 (2022) [MP3|320 Kbps] <Trance>
@@ -666,33 +693,6 @@ HOUR 1: ASHLEY WATERS
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5359ED4610360425566306E2DFB9C756411833D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321514   (459085) от 24.08.2019
-
-Neptune Project - Live @ Chateau De Woo Atlanta, United States 2019-08-10 [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lustral - Broken (Way Out West Remix)
-02. Lightscape - Inner Warmth
-03. BT - Mercury & Solace (Quivver's Transatlantic Remix)
-04. Luminary - My World (Andy Moor Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90BC0029F1293B0EE018A6750C9963D82ABDDEF
 ```
 
 

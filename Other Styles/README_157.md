@@ -1,3 +1,211 @@
+###  Публикация: 1372840   (876875) от 08.04.2020
+
+Slow Leaves - Beauty Is So Common (2014) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Wants to Be in Love [03:54]
+02. Nostalgia | Nostalgia [02:53]
+03. Life of a Better Man [03:08]
+04. Dreamer [02:31](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:35:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE4962E8A909350FAB19ADC4C134ED8BE08696C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372805   (876883) от 08.04.2020
+
+Slow Leaves - Shelf Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking out My Window (04:11)
+02. Miss You (03:18)
+03. Sink Full of Dishes (04:16)
+04. Time Was on Your Side (03:24)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77398BD83DFFAC315766AFA86980FC5E27BECCE5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187060   (876991) от 28.03.2010
+
+Guy Sweens - Legend Of Ganesha (2009) [MP3|320 кб/с]<New Age, Spiritual, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_876991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Worship (Feat. Medwyn Goodall)
+2. Embodiment Of Good Luck
+3. Universal Parents (Feat. Sangit Om)
+4. Skanda (Feat. Medwyn Goodall)
+5. Guarding Her Home
+6. Bhuta Gana (Feat. Medwyn Goodall)
+7. Remover Of ObstaclesЖанр: New Age, Spiritual, EthnicПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 187163   (876998) от 28.03.2010
+
+Cell - Phonic Peace (2005) [MP3|320 kbps]<Dub, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_876998.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sensitiv Garden
+2. Mister Ayatih
+3. Zaz
+4. Magic Karma
+5. Soon
+6. Lord Of Silk
+7. White Call
+8. Phonic Peace For Tibet
+9. OrangeЖанр: Dub, Downtempo, AmbientПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495701   (877436) от 14.09.2021
+
+Various artists - Mulheres apaixonadas [Internacional] (2003) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The hobeats - I've gotta live.flac
+02. Pedro Migueis - Hold on.flac
+03. Juanita Dailey - Inside  my love.flac
+04. Karynn - My image the mirror.flac(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5F47818A4B62017C4038A9E73894B0637A446F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299602   (877520) от 23.02.2011
+
+Ryan Farish - 8 albums (2000-2009) [MP3|192-320 kbps]<New Age, Ambient, Relax, Mediative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Serengeti Run
+02. Allure
+03. Closer Away
+04. Colortones
+05. The Way Home
+06. Movement In Light
+07. Look To You
+08. Beautiful Moments
+09. Mechanical Beauty
+10. SateliteЖанр: New Age, Ambient, Relax, MediativeПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE99963CB9BBB355721019DF4C26A628A10F9CF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 421450   (877578) от 10.03.2014
+
+Celtic Woman - 8 альбомов (2005-2014) [MP3|112-320 кб/с]<Celtic folk, World, Classical, Pop-rock, New age>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+2005 - Celtic Woman
+2006 - A New Journey (Deluxe Edition)
+2008 - The Greatest Journey. Essential Collection
+2010 - Lullaby
+2010 - Songs From The Heart
+2011 - A Celtic Christmas
+2012 - Home for Christmas
+2014 - Emerald. Musical GemsЖанр: Celtic folk, World, Classical, Pop-rock, New ageПродолжительность: 07:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA04E31BAFC848F2BBE94514EF69EC16DB94DE8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 642928   (877867) от 12.04.2013
 
 Mario Suzuki - Touching Folklore Music. Masterpiece (2007) [MP3|320 кб/с]<Instrumental, Folk, Acoustic Guitar>
@@ -551,199 +759,6 @@ Gary Girouard - The Naked Piano. Elements (2014) [MP3|320 кб/с]<New Age, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F10C54CF9E9925CB4B652603187CCFFC5BECEED5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764281   (879998) от 09.03.2014
-
-Sacred Earth - Breathing Space (2014) [MP3|320 кб/с]<New ega, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(09:31) 1. Grounded
-(07:25) 2. Bliss
-(08:06) 3. Breathing Space
-(08:55) 4. Jai
-(05:11) 5. Beautiful
-(05:14) 6. Nature Alone
-(10:09) 7. StillnessЖанр: New ega, MeditativeПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD383D5CC8D84BBA7687AE152106CD1F538B08E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 185655   (880127) от 26.03.2010
-
-Лидия Русланова - Русские народные песни (1970) [MP3|320 kbps]<Folk/ Retro/ Русское народное>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk/ Retro/ Русское народноеПродолжительность: 0:47:30
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996118   (880836) от 13.03.2016
-
-Hans Zimmer & Richard Harvey - The Little Prince / Маленький принц (Original Motion Picture Soundtrack) (2015) [FLAC|Lossless|tracks+ .cue]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_880836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preparation (02:10)
-02. Turnaround (03:27)
-03. The Life Plan (01:13)
-04. Driving (01:41)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB06BD6C1B3CB4728DD74CDCEA5C418C01B23E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996376   (881068) от 13.03.2016
-
-VA - All Music Of The World, A Collection Of Ambient Music Remixed With Native Sound (2001) 3CD [MP3|320 кб/с] <World Music, Native, Ethno>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hitching Place of the Sun
-02. Sichuan Mix
-03. Jokhang Soul
-04. Rwenzori Labyrinth(   Читать дальше...   )Жанр: World Music, Native, EthnoПродолжительность: 03:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BDE27E541071C9A909CC572C04E966E90C90AD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996346   (881167) от 13.03.2016
-
-Agrelia's Castle - Elders and Ancestors (2015) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elders and Ancestors
-02. Adrift
-03. Breathe
-04. Spirit Dreaming(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F68A97102CF5E3CD03987A8EC40BCAF96547C4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641283   (881248) от 10.04.2013
-
-Strunz & Farah - 15 albums (1982-2011) [MP3|320 кб/с]<Flamenco, World Fusion, Jazz>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-(6:54) 01. Raggle Taggle
-(7:01) 02. Night Jasmine
-(7:18) 03. Journey Around the Sun
-(7:27) 04. Amber and Musk
-(6:35) 05. Morpho
-(6:49) 06. Jamilah
-(2:12) 07. Valsito
-(0:37) 08. The Hare
-(3:39) 09. PaseosЖанр: Flamenco, World Fusion, JazzПродолжительность: 00:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40D9D864EBDA387C1ADB2817B9F080059B09A92
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 138362   (881573) от 05.04.2020
-
-Dan Gibson - Ocean Surf: Timeless And Sublime (1995) Solitudes - Nature Sound Collection [FLAC|Lossless|tracks+.cue]<Field Recording>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Surf (72:29)
-
-Эта настоящая запись океана предлагает самое реалистическое воспроизводство настоящего прибоя. Нежные звуки набегающих волн на скалы, слушатель может представить будто он находится на береговой линии. Океанский прибой является бесконечным и возвышенным и, как гарантированно, обеспечит терапевтический, успокаивающийся эффект.Жанр: Field RecordingПродолжительность: 01:12:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FF50D3AE2E9596310D3C4599444EEA4C45C8E12
 ```
 
 

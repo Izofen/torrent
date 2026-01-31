@@ -1,3 +1,30 @@
+###  Публикация: 1473983   (1013401) от 31.05.2021
+
+VA - World Sound Funky: Jackin House Mixtape (2021) [MP3|320 Kbps] <Funky House, Jackin' House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1013401.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Toshi,Timmy Regisford - Kiqi
+002. Federico Rosa - Love Is Strong
+003. Pavzo - The Jazz Bar
+004. Domineeky - Play(   Читать дальше...   )Жанр: Funky House, Jackin' House, Nu DiscoПродолжительность: 09:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68E2CEEFB320C56BAAF2D7F0F1FD98439089CE44
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473949   (1013402) от 31.05.2021
 
 VA - Ibiza Chillout #15 (2021) [MP3|320 Kbps] <Chillout, Electronic>
@@ -665,33 +692,6 @@ VA - Rebell Trap Music Mondays (2021) [MP3|320 Kbps] <Indie, Pop Rock, Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEEF8D9927675B14DC870965407DCE717BC3EA17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472875   (1014049) от 27.05.2021
-
-VA - The Flower Of Love 12 (2021) [MP3|320 Kbps] <Electronic, House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1014049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stil & Bense - Here Be Dragons (Original Mix)
-02. Ron Flatter - Dragoon (Original Mix)
-03. Boss Axis & Label Mou - Meant To Be (Ben Ashton Remix)
-04. Dompe - Boogie (Original Mix)(   Читать дальше...   )Жанр: Electronic, House, Progressive HouseПродолжительность: 02:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73A1EB115E6F8ACC67DFD9DD7C527DF2B0D9A3ED
 ```
 
 

@@ -1,3 +1,333 @@
+###  Публикация: 991117   (907516) от 27.02.2016
+
+Вася Обломов - Живее всех живых (2016) Live [MP3|320 кб/с] <Rock, Rap, Alternative Сhanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907516.jpg" />
+</div>
+
+
+###  Подробнее
+
+За шесть лет Вася Обломов проехал с концертами от Калининграда до Владивостока. По словам Васи, концертное звучание его группы сильно отличается от того, что есть на выпущенных альбомах — отсюда и идея выпустить полноценный «живой» альбом. В треклист вошли «Магадан», «Начальник» и другие известные песни.01. Корпоративная
+02. Письмо счастья
+03. Многоходовочка
+04. Письмо Санта-Клаусу(   Читать дальше...   )Жанр: Rock, Rap, Alternative СhansonПродолжительность: 01:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41879044A3B8C09F7EB468C340987DBBAFE94110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991319   (907798) от 27.02.2016
+
+Brazzaville - The Oceans Of Ganymede (2016) [MP3|320 кб/с] <Indie Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Oceans of Ganymede
+02. Happy Man
+03. Aurelia
+04. Girl (feat. Renars)(   Читать дальше...   )Жанр: Indie Rock, PopПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBF341A6836DC3E8EF369C5A06B001573915C90B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991170   (907815) от 27.02.2016
+
+Royal Republic - Weekend Man (2016) [MP3|320 кб/с] <Alternative Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here I Come (There You Go)
+02. Walk!
+03. When I See You Dance With Another
+04. People Say That I'm Over The Top(   Читать дальше...   )Жанр: Alternative Rock, Hard RockПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC624456F59438A1A7109AFE4653E033C434086
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990798   (907828) от 27.02.2016
+
+Anthrax - For All Kings (2016) Limited Edition 2CD [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907828.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Impaled
+02. You Gotta Believe
+03. Monster at the End(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:21:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:916D311A0FD0B5C56E32F6B4B33E289A50C36249
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990793   (907903) от 27.02.2016
+
+Rotting Christ - Rituals (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Black, Dark Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Nomine Dei Nostri
+02.זה נגמר (Ze Nigmar)
+03. Ἐλθὲ κύριε (Elthe Kyrie)
+04. Les Litanies de Satan (Les Fleurs du Mal)(   Читать дальше...   )Жанр: Black, Dark MetalПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE5F89C0F3A0EE1DB19E85E64576EB87FC5BAFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991077   (907914) от 27.02.2016
+
+Brenda Lee - Queen Of Rock'n'Roll (2009) [MP3|320 кб/с] <Rock 'n' Roll, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock The Bop (02:15)
+02. Little Jonah (Rock On Your Steel Guitar) (02:25)
+03. Jambalaya (On The Bayou) (02:09)
+04. Anybody But Me (02:27)(   Читать дальше...   )Жанр: Rock 'n' Roll, Country ClassicПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE7550B83D7DBA4E849F195ED35ACC2ADF94714
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991312   (907919) от 27.02.2016
+
+The Unguided - Lust And Loathing (2016) Limited Edition [MP3|320 кб/с] <Melodic Death Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_907919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enraged
+02. The Worst Day (Revisited)
+03. King Of Clubs
+04. Heartseeker(   Читать дальше...   )Жанр: Melodic Death Metal, Modern MetalПродолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD64DA0ED71CD91FC0F1C81CC8F9CE47D32800E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 179932   (908052) от 08.03.2010
+
+Шмели - Механическая балерина (2010) [MP3|256 kbps]<Industrial/Folk/Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 [3:41] Механическая балерина
+02 [3:42] Люди
+03 [3:45] Какофония сердец
+04 [3:30] Сон
+05 [3:51] Прёт? Так при!
+06 [3:50] Жги
+07 [3:58] Лысая гора
+08 [3:45] Небо против
+09 [3:44] Котейка на трех ножках
+10 [4:55] Снова про любовь, блин(   Читать дальше...   )2010Жанр: Industrial/Folk/RockПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990901   (908111) от 27.02.2016
+
+Wisdom - Rise of the Wise (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Wall
+02. Ravens' Night
+03. My Heart Is Alive
+04. Hunting the Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2675423458FB27DE73EF4B3132388DD5F5E851AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098657   (908395) от 30.01.2017
+
+Frankie Miller - Frankie Miller's Double Take (2016) [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackmail (with Joe Walsh)
+02. Where Do The Guilty Go (with Elton John and Steve Cropper)
+03. Way Past Midnight (with Huey Lewis)
+04. True Love (with Bonnie Tyler)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:10:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2EA3FAB975862F3EEFA0BC5D49F99779124E24
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098651   (908501) от 30.01.2017
+
+Tommy Heart - Spirit Of Time (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908501.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Spirit Of Time (special version for Japan) - 3:23
+2. Back For More - 3:40
+3. Don't Leave This Way - 3:18
+4. Best Times - 3:45(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C842A37A1A8A9F8168122B2C63AF27D3108791
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491641   (908740) от 26.08.2021
+
+Smyčka (Smycka) - Fated (2021) [FLAC|Lossless|image + .cue] <Post-Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_908740.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (03:43)
+2. Fated (09:47)
+3. Mutated (07:44)
+4. Wrecked (07:34)(   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8F4B38CEC1D290C4FC754C1FF6BD9CBD24E7DFA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098654   (908748) от 30.01.2017
 
 Blackeyed Susan - Electric Rattlebone (1991) [MP3|320 Kbps] <Hard Rock>
@@ -371,331 +701,6 @@ Killswitch Engage - Incarnate (2016) Special Edition [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A398F460AD33248179CA98D560D58BF0C6C07A56
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368649   (909092) от 20.03.2020
-
-Женя Любич - Во весь голос (2020) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Небо и звёзды
-2. Я не могу без тебя жить
-3. С любимыми не расставайтесь
-4. Ville de France(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D1720D739E377C40BF1BF8289D3CB8ECB780594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368655   (909129) от 20.03.2020
-
-Harem Scarem - Change The World (2020) [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909129.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Change the World [4:08]
- 2. Aftershock [3:16]
- 3. Searching for Meaning [3:52]
- 4. The Death of Me [4:07](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA88ECE6C62DAC8934E0493D5B19C0DAF9CDE80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368524   (909232) от 20.03.2020
-
-Geisha - Youth Stand Tall (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U Got What It Takes (04:56)
-02. Claws Of Sin (04:54)
-03. Shock Rock School (04:36)
-04. Gangland Sector 21 (06:49)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9466E27909A82AEA8AF7C16C97C9D0EBB2E3DF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368664   (909250) от 20.03.2020
-
-Killswitch Engage - The End Of Heartache (2004) Reissue, 2005, Roadrunner Records [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Bid Farewell (3:56)
-02. Take This Oath (3:47)
-03. When Darkness Falls (3:53)
-04. Rose of Sharyn (3:36)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E05BBB4EE2ED31BA8B82A5CFB44A2FEE8324D9B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368557   (909257) от 20.03.2020
-
-Killswitch Engage - Disarm The Descent (2013) Special Edition [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hell In me (2:57)
-02. Beyond the Flames (2:54)
-03. The New Awakening (3:30)
-04. In Due Time (3:18)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C978C927BB446FB57A39E439B031ED07161C36
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368567   (909262) от 20.03.2020
-
-Killswitch Engage - Killswitch Engage (2009) Special Edition [FLAC|Lossless|tracks + .cue] <Heavy Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Again (3:09)
-02. Starting Over (3:51)
-03. The Forgotten (3:18)
-04. Reckoning (2:41)(   Читать дальше...   )Жанр: Heavy Metal, MetalcoreПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A0B4191F033B1C3027DB3F22C78CD847415A12
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990783   (909721) от 26.02.2016
-
-Bad Company - The Original Bad Company Anthology (1999) 2CD, Compilation [MP3|320 кб/с]<Rock, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909721.jpg" />
-</div>
-
-
-###  Подробнее
-
-[04:15] 01. Can't Get Enough
-[03:47] 02. Rock Steady
-[04:59] 03. Ready For Love
-[04:47] 04. Bad Company(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C523F921F40B620AE79787B644004CDC1F200CA6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990719   (909854) от 26.02.2016
-
-The New Black - A Monster's Life (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Time Coming
-02. Blockbuster Life
-03. With A Grin
-04. Send In The Clowns(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1C47BB035065EB87DE9E2F107387E7B17A9C1A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990590   (909885) от 26.02.2016
-
-Now Or Never - II (2016) [MP3|320 кб/с] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_909885.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Voice Inside
-2. Sonic Ecstasy
-3. King for a Day
-4. I Shall Remain(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D36DD1D212DEE870AA96F2D469B2E79454E41F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990608   (910012) от 26.02.2016
-
-Sinbreed - Master Creator (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creation of Reality
-02. Across the Great Divides
-03. Behind a Mask
-04. Moonlit Night(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21442780713F4EE14B8CE19D144DDFFF2D781832
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 291375   (910059) от 05.02.2011
-
-Helloween - Keeper Of The Seven Keys (Parts I & II)(US 1-st press) (1987, 1988) [FLAC|Lossless]<Heavy/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invitation (1:07)
-02. Eagle Fly Free (5:08)
-03. You Always Walk Alone (5:09)
-04. Rise and Fall (4:23)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288587   (910138) от 05.02.2011
-
-Sirenia - Дискография (2002-2011) [FLAC|Lossless]<Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_910138.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sirenian Shores (6:02)
-02. Save Me From Myself (Remix) (5:05)
-03. Meridian (Acoustic) (4:05)
-04. First We Take Manhattan (3:56)
-05. Obire Mortem (2:23)Жанр: Gothic MetalПродолжительность: 00:21:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 

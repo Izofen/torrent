@@ -1,3 +1,189 @@
+###  Публикация: 1236056   (556268) от 15.07.2018
+
+Piano Peace - Piano Study Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Studying Song 02:25
+02. Focus 01:47
+03. Thinking Music 01:53
+04. Moonlight Piano 02:05(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:946453C9449BFE77D8F890CF7BFFA1F8D7E0E2FE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556667   (556475) от 12.06.2022
+
+Satyricon - Satyricon & Munch (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Dark Ambient, Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satyricon & Munch (56:08)Жанр: Dark Ambient, InstrumentalПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FBBA90F9B78B7C5BB3E4A4C5378A8FF049D81B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556663   (556519) от 12.06.2022
+
+Schandmaul - Knüppel aus dem Sack (2022) [FLAC 2.0|44/24|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knüppel aus dem Sack (4:30)
+02. Königsgarde (3:31)
+03. Das Gerücht (2:47)
+04. Der Pfeifer (4:11)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41229C7481D8D15A8F7CED1F46421D6B889D7DEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045792   (556675) от 25.08.2016
+
+Kyle Dixon & Michael Stein - Stranger Things / Очень странные дела, Vol. 2 (A Netflix Original Series Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hopper Sneaks In (01:39)
+02. I Know What I Saw (02:44)
+03. Rolling Out the Pool (01:13)
+04. Over (01:39)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4320261796528C2488FE44EC162EA377D653D716
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045787   (556836) от 25.08.2016
+
+David Arkenstone - Barcelona Nights (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Spanish Guitar>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556836.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fire In The Heart (4:27)
+ 2. Island Dance (4:09)
+ 3. Barcelona Nights (4:04)
+ 4. Fuego En La Noche (4:08)(   Читать дальше...   )Жанр: New Age, Spanish GuitarПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7BAC3B7697D8B60124A8306EF6E5A5F2992EA2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045756   (556838) от 25.08.2016
+
+Gomer Edwin Evans - Sensual Moods: Soulful Music for Erotic Moments (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exotic Moods, Pt. 1 [00:04:58]
+02. Exotic Moods, Pt. 2 [00:04:58]
+03. Walking on Sand [00:04:59]
+04. The Beauty of Nature [00:05:00](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7DBB0E3725EFCA2DCAD0123AEECC04852C54314
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045742   (556845) от 25.08.2016
+
+Blue Stone - Pandora's Box (2011) [FLAC|Lossless|tracks + .cue] <New Age, Ethnic Fusion, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence  04:57
+02. Mischief  05:44
+03. Seduction  05:42
+04. Epimetheus  05:47(   Читать дальше...   )Жанр: New Age, Ethnic Fusion, DowntempoПродолжительность: 00:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A9679A16069B8DAC1450BAAA4795CAC3AD6F6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046007   (556910) от 25.08.2016
 
 Nick Murray - To the Stars (2016) [MP3|320 Kbps] <New Age>
@@ -499,195 +685,6 @@ Lykke Li - Wounded Rhymes (2011) [FLAC|Lossless]<Indie Pop>
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045056   (561005) от 22.08.2016
-
-Enya - The Magic Of Enya (2016) Chinese Dragon Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Time (3:38)
-02. Flora's Secret (4:08)
-03. Caribbean Blue (3:58)
-04. Once You Had Gold (3:18)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 1:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8402F01FE2395F0AD6A057557086968B97D1351
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045020   (561253) от 22.08.2016
-
-Jean Michel Jarre - Magnetic Fields (1981) Remastered, 2014, Sony Music [FLAC|Lossless|image + .cue]<Electronic, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetic Fields Part 1 17:57
-02. Magnetic Fields Part 2 03:59
-03. Magnetic Fields Part 3 04:11
-04. Magnetic Fields Part 4 06:25(   Читать дальше...   )Жанр: <Electronic, Instrumental, New Age>Продолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE23FB2DDBB33075B9C3F5C287CD2AE65B97FE5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152250   (561486) от 25.07.2017
-
-VA - Anxiety Free. Clear Peaceful Mind: Deep Relaxation of the Soul (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calm Music Zone - Anxiety Free
-02. Meditation Mantras Guru - Breathe In & Breathe Out
-03. Calm Music Masters - Prepare Your Body for Meditation
-04. Sound Therapy Masters - Morning Meditation Music(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98B6ACB54915E251EA227842230CCA0C5936C6CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304662   (561563) от 27.05.2019
-
-Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арабская ночь (2019) (03:13)
-02. На миг быстрее (02:55)
-03. На миг быстрее (Реприза) (01:00)
-04. Смелой (Часть 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ACC0003FD26CBFC92376E77DD2B2C5776E18268
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304663   (561567) от 27.05.2019
-
-Alan Menken & VA - Aladdin / Аладдин (Оригинальный саундтрек) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Арабская ночь (2019) (03:13)
-02. На миг быстрее (02:55)
-03. На миг быстрее (Реприза) (01:00)
-04. Смелой (Часть 1) (01:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:20:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9EE8F0504D912C3611E673264771590BF21BC5C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044814   (561671) от 22.08.2016
-
-Ancient Legacy - New Age Armenia II (2003) [FLAC|Lossless|image + .cue] <New Age, International>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Siroun Es Hokiag  04:19
-02.  Vartani Mor Vokhbe  05:50
-03.  Oror  04:12
-04.  Alakiaz  02:03(   Читать дальше...   )Жанр: New Age, InternationalПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C82C5ECC4944E3C8F99778F709AE42225E3BC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304604   (561714) от 27.05.2019
-
-Bear McCreary - Godzilla: King of the Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_561714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godzilla (feat. Serj Tankian) (03:10)
-02. Godzilla Main Title (02:35)
-03. Memories of San Francisco (02:11)
-04. The Larva (04:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C1A4BF0786161C111D3173B2AA96D130020939
 ```
 
 

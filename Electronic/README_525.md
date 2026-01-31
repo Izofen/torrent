@@ -1,3 +1,30 @@
+###  Публикация: 1617408   (1035364) от 06.03.2023
+
+Magnavolt - Nexus (2023) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, Synthwave>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nexus City [00:01:48]
+02. Prime Complex [00:03:30]
+03. Supreme Being [00:03:53]
+04. Brutal Rampage [00:03:09](   Читать дальше...   )Жанр: Darksynth, SynthwaveПродолжительность: 00:29:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D111A6D24F5344FA338D891D5C3B64931799C38
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217112   (1035415) от 29.01.2021
 
 In The Branches | The Adaptive - Discography 27 Releases (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Post Rock, Soundscape, Downtempo>
@@ -666,33 +693,6 @@ Dawn Wall - Twin Falls (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:122DD775BC65822248D8BBFD82E4AEE9BAFFD33B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443180   (1035780) от 28.01.2021
-
-Dawn Wall - Longshanks (2015) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1035780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spears (04:21)
-02. Round Table (04:33)
-03. Longshanks (04:57)
-04. Lose Face (05:12)Жанр: Drum & BassПродолжительность: 00:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18DEA1B109867890AAA3793C15B4F2C44C45D92C
 ```
 
 

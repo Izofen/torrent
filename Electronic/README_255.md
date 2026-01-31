@@ -1,3 +1,27 @@
+###  Публикация: 1567135   (476406) от 01.08.2022
+
+Michael A - Dark Mirror Session, Vol.1 (2022) DJ Session [FLAC|Lossless|WEB-DL|tracks] <Deep Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Mirror Session, Vol.1 (1:10:03)Жанр: Deep Progressive House, Tech HouseПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61B2CB1C7AD918BD69090D55A411603DA8A11B62
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053196   (476540) от 02.09.2020
 
 Carsten Nicolai (Alva Noto, ANBB, Aleph-1, Noto, Diamond Version) - Discography (1996-2020) Raster-Noton [FLAC|Lossless|tracks+.cue, tracks] <Abstract, Minimal, Glitch, Ambient, Experimental, Te ...
@@ -671,33 +695,6 @@ VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54C0465A21992149CE1126129690D0CDB554DE76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938174   (480096) от 19.09.2015
-
-VA - Easy Listening Injection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_480096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inlightneed - Catch the Chimera
-02. Lemonchill - Freak - Deepernet Remix
-03. Aureon Project - Fiti s Lament
-04. Nortoel - Anesperos Light(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:17:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21EA18298FAB157797A0231C0EDD8F618D5C524C
 ```
 
 

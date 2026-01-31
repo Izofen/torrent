@@ -1,3 +1,30 @@
+###  Публикация: 1844588   (1050364) от 29.12.2025
+
+Linkin Park - Reanimation (2002) U.S., 9 48326-2, 2011+ [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal, Experimental, Electronic, Industrial Hip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening (1:08)
+02. Pts.Of.Athrty // Jay Gordon (3:46)
+03. Enth E Nd // Kutmasta Kurt Featuring Motion Man (4:00)
+04.Тип издания: DigipakЖанр: Alternative / Nu-Metal, Experimental, Electronic, Industrial Hip HopПродолжительность: 01:01:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB51174410C1016C9D7FD389CC677A11F1206CC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844584   (1050433) от 28.12.2025
 
 Linkin Park - Minutes To Midnight (2007) Brazil, 9362444772, AA0031000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Alternative Rock>
@@ -236,6 +263,60 @@ Binding - Cool Memory (2025) [FLAC|Lossless|WEB-DL|tracks] <Coldwave, Post-Punk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9A662413CAA9A89B91C322423FF3D5C548470CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849764   (1054082) от 
+
+Deftones - Collection (1995 - 2025) 23CD [FLAC|Lossless|image + .cue|tracks + .cue] <Nu Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deftones - американская метал-группа из города Сакраменто, штат Калифорния. Группа известна как одна из самых экспериментальных на альтернативной метал-сцене.Список альбомов:
+1995 - Adrenaline
+1997 - Around The Fur
+2000 - White Pony(   Читать дальше...   )Жанр: Nu Metal, Alternative RockПродолжительность: 19:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8484CD326D181F9EA76E392E57B16E03D566659
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850228   (1054260) от 
+
+Melissa Bonny - Cherry Red Apocalypse (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm a Monster [00:03:15]
+02. Snake Bite [00:03:25]
+03. Devil On My Tongue [00:03:18]
+04. The Teeth Of My Thieves [00:03:56](   Читать дальше...   )Жанр: Alternative-MetalПродолжительность: 00:45:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCFB7F016419843FE5E3A35F5554AFBFDD242FB
 ```
 
 

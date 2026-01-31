@@ -593,6 +593,30 @@ magnet:?xt=urn:btih:9FAA6CD2664B532C8D8431F50F863FCABDF88B26
 
 
 ---------------------------------------------------------------------------------------------------------------
+###  Публикация: 245073   (434248) от 13.10.2010
+
+George Michael - Greatest Hits [2CD] (2008) [MP3|320 kbps]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_434248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063433   (434680) от 16.10.2016
 
 Madonna - Like A Virgin (1984) [FLAC|Lossless|image + .cue] <Pop>
@@ -615,6 +639,30 @@ Madonna - Like A Virgin (1984) [FLAC|Lossless|image + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88AC38F7D04357B100DBF6995B941A6135C5ECFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 145119   (434701) от 09.10.2009
+
+Inna - Hot (2009) [MP3|320 kbps]<Рop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_434701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: РopПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+нет
 ```
 
 
@@ -643,60 +691,6 @@ VA - Pure... Fitness (2013) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, Othe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2623BD0F2444FC36B5D7DDD9840D85AF74B35A26
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063366   (434833) от 16.10.2016
-
-Milkways - Milkways (1978) Reissue LP (2012) [MP3|320 Kbps] <Electronic, Space-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_434833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galactic Reaction (3:54)
-02. Dance In The Milkway (3:50)
-03. Interstellar Melody (3:04)
-04. Unknown Flight (5:19)(   Читать дальше...   )Жанр: Electronic, Space-DiscoПродолжительность: 00:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D3C21A467B20F69F83DDA0D3DEC021B06CBE51
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165254   (435030) от 12.09.2017
-
-Actarus - Atlas Ufo Robot (1978) Reissue CD, Warner Strategic Marketing Italy, 2005 [MP3|320 Kbps] <Electronic, Disco, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ufo Robot (2:56)
-02. Rigel (3:22)
-03. Venusia (3:58)
-04. Alcor (3:02)(   Читать дальше...   )Жанр: Electronic, Disco, EuropopПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BBA94D2B4D2FD0212E52AD124DBDD9E870C7D95
 ```
 
 

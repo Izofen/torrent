@@ -1,3 +1,30 @@
+###  Публикация: 1374611   (872845) от 10.04.2020
+
+Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Spacesynth>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road in Masuria (5:42)
+02. Asteroids (5:47)
+03. Time Travelers (4:52)
+04. Earthshine (5:28)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9453DFB1CB23BD331E22188ED33523F8E50C0D45
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374350   (872984) от 10.04.2020
 
 Deepsky - Back Catalog 1994-1998 (2006) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive Trance>
@@ -666,33 +693,6 @@ VA - Chillout Sounds Of Nature (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479763126432F851C202AF7E1DB338328BFCD99C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105151   (876540) от 17.02.2017
-
-VA - St Valentine Lounge and Piano Chill for Lovers (2017) [MP3|320 Kbps] <Lounge, Chill Out, Jazzy>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Jazz - Jazz Valentine (3:50)
-02. Floyd & Jones Lounge Bar Music Club - Waiting a Call (5:32)
-03. Bollywood Buddha Indian Music Cafe - Nightlife (Bar Music Love) (3:22)
-04. Chill Out - Love Song (Uplifting Music) (4:49)(   Читать дальше...   )Производство: Winter Hill RecordsЖанр: Lounge, Chill Out, JazzyПродолжительность: 02:25:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7C6ECE8659AD342394C8305F693458A18B73A0
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1109502   (857445) от 28.02.2017
+
+VA - New York Deep Vibes: 2017 Deep House Selection (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857445.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J-Key - Octopus 4:09
+002. Tabula Rasa - Hashtag Stop - Code Remix 5:19
+003. Minimal Duo - Low Profile 5:00
+004. Tabula Rasa - Cocktail Party 4:55(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504A12372CC1D0ED7AC1AA3BAF840CFC5C52ED57
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109645   (857447) от 28.02.2017
 
 VA - Chillout Ladies Vol 5 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -667,33 +694,6 @@ Ron Trent - Prescription: Word, Sound & Power (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC42E2BB6C51E594C6AD4F78C124AC32C55D12FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109409   (859214) от 27.02.2017
-
-VA - Modern Art Of Easy Listening Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 351 Lake Shore Drive – Frozen Heart
-02. Sattva Project – Intro
-03. Velvet Dreamer – Desert Road
-04. Marga Sol – Moonlight(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BC2B884C215445209DAAE5ADCCFD08A87D68547
 ```
 
 

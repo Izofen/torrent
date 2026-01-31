@@ -1,3 +1,30 @@
+###  Публикация: 1060363   (455306) от 07.10.2016
+
+VA - Electro Hipnotique: Dance Session (2016) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_455306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Galantis - Peanut Butter Jelly (Genairo Nvilla Remix)
+002. Alekseev Vs. Alexander Holsten - Hold Me (Artem Night Mash Up)
+003. Alex Versetta Feat. Dj Agios - Fortuna (Original Mix)
+004. Alan Walker - Faded(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2656848E27B67B18ED940BF9FA0E25864C8F8BDF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060653   (455310) от 07.10.2016
 
 VA - Cigar Lounge Beats Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -722,33 +749,6 @@ VA - Original Sound Of Reggae (2017) [MP3|320 Kbps] <Reggae, Ska, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:913DE8CDFEDE5B02B7CC91E0A48151BA7277F36F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321588   (456687) от 25.08.2019
-
-VA - Громкие новинки Августа vol.2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456687.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.MOLLY - Опалённые Солнцем (3:01)
-2.DIP Project - Ты Моя Луна (Radio Edit) (2:50)
-3.T1One & Скандинавский - Так похожа на меня (3:23)
-4.Андрей Леницкий - Медленный яд (3:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EE1C00F76FC24A8CF1751F25F934D5C094C01E
 ```
 
 

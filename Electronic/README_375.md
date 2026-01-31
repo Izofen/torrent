@@ -1,3 +1,30 @@
+###  Публикация: 1216852   (747856) от 01.04.2018
+
+Ashterra - Other Earth (2018) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_747856.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Arctic (5:20)
+2. Taiga (4:52)
+3. The Paradox (5:49)
+4. View (4:59)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA623638097EA44E8199A14830914027F354333
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281910   (748151) от 10.02.2019
 
 VA - Sick Music 2019 [MP3|320 Kbps] <Drum & Bass>
@@ -665,33 +692,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9352F369181257E4F454C20B271B73B8B15DE515
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215968   (751243) от 30.03.2018
-
-Ghosts - The Second Compilation by ŦĦ€ ǤΔΜ€Ş Ŵ€ ƤŁΔ¥ (2018) [MP3|320 Kbps] <Ambient, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. insomnia_afraid 2:46
-02. niels_binias_nebuchadnezzar 8:15
-03. ecepta_regret 3:44
-04. black_paper_why 5:40(   Читать дальше...   )Жанр: Ambient, ChilloutПродолжительность: 02:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D83710ECBB728BFB05EFB3A32B9E37BA7939C8F
 ```
 
 

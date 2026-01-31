@@ -1,3 +1,30 @@
+###  Публикация: 1310335   (547017) от 24.06.2019
+
+Steve Allen & Solis & Sean Truby & XiJaro & Pitch + More - Uplift 050 (Six Hour Vocal Special) 2019-06-21[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_547017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Steve Allen
+1.Trance Classics & Esmee Bor Stotijn - Turn It Around (Steve Allen Remix)
+2.Trance Classics & Esmee Bor Stotijn - Sky Falls Down (Steve Allen & Skyborne Remix)
+3.Maria Nayler - Angry Skies (James Dymond Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDEC75739D770159F35C19AF1E851A38D4166B65
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238405   (547028) от 29.07.2018
 
 Super8 & Tab - Reformation (2018) Armada Music [FLAC|Lossless|WEB-DL|tracks] <Uplifting Trance>
@@ -664,33 +691,6 @@ VA - Naked Chilling Vol.1 (Pure Summer Chillout Tracks) (2016) [MP3|320 Kbps] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9972EFDEC12C946F72C6FC477C2F022B8295970B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047765   (548431) от 31.08.2016
-
-VA - Heaven and Paradise Vol. 1 (20 Heavenly Tunes) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roca Rubia - Perhaps Return (Original Mix) (03:12)
-02. Midtempo Lovers - Two Hearts (Original Mix) (03:01)
-03. Salo Fernandez - Put Cream On (Original Mix) (02:52)
-04. Red Sea Grooves - The Future Is Unwritten (Original Mix) (03:33)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D3842C08D119EAED6BB0EC408FCD599CFA735D
 ```
 
 

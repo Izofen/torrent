@@ -1,3 +1,30 @@
+###  Публикация: 1032920   (628623) от 16.07.2016
+
+VA - Best Of Vocal Trance 2016 Vol. 2 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_628623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic & Sarah Lynn & Yana Chernysheva -  This Imaginary Love (Edit) 4:13
+02. 4 Strings Vs Kaimo K & Sue Mclaren -  The Treasure Of Illumina (Edit) 3:24
+03. Rafael Frost & Neev Kennedy -  Call This Love (Edit) 3:42
+04. Yuri Kane & Ana Criado -  Running Wild (Edit) 3:35(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 01:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE869B4320A7361AC0DD6D7B089831995DD4AA59
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144158   (628902) от 21.06.2017
 
 VA - Dance Therapy, Vol. 1 (These Bangers Push You To The Limit) (2017) [MP3|320 Kbps] <Funky, Club House>
@@ -667,33 +694,6 @@ VA - Progressive Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6529B60B550F889DD86AB5ACAEB0B45A3AF7F0AB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543134   (631680) от 10.04.2022
-
-VA - Coffee Break Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska - Special (5:26)
-02. M-Sol Project Marga Sol - Silent Traveler (3:57)
-03. Beamy - Sierra De La Plata (4:51)
-04. James Butler - Dinner for Two (Original Mix) (3:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4CD93846646749E3B6813E7DF2E750581B75AF0
 ```
 
 

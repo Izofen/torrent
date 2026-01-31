@@ -1,3 +1,30 @@
+###  Публикация: 1057669   (870429) от 11.04.2020
+
+Cell - Discography 7 Releases (2005-2020) Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Psybient, Downtempo, Psychill, Ambient, Progressive Trance>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevation (Live Edit) (09:03)
+ 02. Over The Roof (Live Edit) (06:07)
+ 03. Pulse (Live Edit) (08:03)
+ 04. Traffic (Live Edit) (09:00)(   Читать дальше...   )Тип издания: CD, WebЖанр: Psybient, Downtempo, Psychill, Ambient, Progressive Trance •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD49AA0FB88F1362D4D5C089D6665BD159FED55
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374495   (870435) от 11.04.2020
 
 Эротика Звезда - Сексуальная джазовая ночь -  Чилл лаунж музыка для сексуальной и интимной атмосферы (2019) [MP3|320 Kbps] <Ambient, Easy Listening>
@@ -665,33 +692,6 @@ Ray Orion - Return To The Battle Line (2020) [FLAC|Lossless|WEB-DL|tracks] <Synt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01A88FB75ED3BF2DF58E2177522DDB85E341D7BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374611   (872845) от 10.04.2020
-
-Cyberman - Time Travelers (2013) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Spacesynth>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road in Masuria (5:42)
-02. Asteroids (5:47)
-03. Time Travelers (4:52)
-04. Earthshine (5:28)(   Читать дальше...   )Жанр: Synthwave, SpacesynthПродолжительность: 01:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9453DFB1CB23BD331E22188ED33523F8E50C0D45
 ```
 
 

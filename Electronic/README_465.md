@@ -1,3 +1,30 @@
+###  Публикация: 1099575   (903200) от 02.02.2017
+
+VA - Red Velvet Erotic Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lotti barks the moon - Chilling Beach (Lights for Ellie Mix) (5:01)
+02. Sonic Bumbers - Lofts and Lounges (Relax Zone Edit) (7:00)
+03. Emil Dupree - Will You Be There (Berlin Calling New York City Mix) (4:37)
+04. Electric Sparkling Water - Never Touch the Darkness (Fall from Sky Mix) (6:29)(   Читать дальше...   )Производство: 4-Elements-RecordsЖанр: Downtempo, Lounge, Chill OutПродолжительность: 00:56:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACE67D463416B0F8A6E1BA547D1330E16C4E604
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099907   (903285) от 02.02.2017
 
 VA - Vocal Chillout 2017. Chill Out Songs  [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -656,33 +683,6 @@ VA - We Love Trance (2020) [MP3|320 Kbps] <Uplifting Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A26EE892997C78D8381AAEFE9A33AD0AEAD6A802
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369200   (905634) от 22.03.2020
-
-VA - Битва Dj - Chief MC Vs. Бинокль Vs. Anna Lee (2003) [MP3|320 Kbps] <Progressive House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Collins - In The Air Tonight (Kluster Dark Mix) (8:50)
-02. J Groove's - Beginning To Believe (Original Mix) (6:08)
-03. Rephlex One - Pulse (Coming Soon Remix) (6:38)
-04. UDG - Workshop Of Devil (5:24)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 01:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B25C891A7D3CACCD2CBE1F8ABA0C48AA24ECE6
 ```
 
 

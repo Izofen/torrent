@@ -1,3 +1,30 @@
+###  Публикация: 1509625   (794027) от 13.11.2021
+
+VA - Beatport Techno: Sound Pack #367 (2021) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794027.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Trym - Power
+002. Axones - Signal
+003. Mbm - X Pression
+004. Sin Sin - Vision(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F11E528B3FA0F94E84ADA6544448949D77DC94D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1509609   (794028) от 13.11.2021
 
 VA - Love That Feeling (2021) [MP3|320 Kbps] <Deep House, Electro>
@@ -668,33 +695,6 @@ VA - Top 50: Зайцев FM (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B953D837199A31B8C86FF24D47AFB8D466FC1DBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386509   (794555) от 29.05.2020
-
-VA - The Sound Of Fractal (2020) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794555.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sneila - The Dreamer's Guide
-002. Ranji - Power Of Acid
-003. Deykin - In A Forest
-004. Ektoside - Conviction(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940AA435AC36F91338690A094A264CC786F86510
 ```
 
 

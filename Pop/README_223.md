@@ -1,3 +1,99 @@
+###  Публикация: 523147   (618850) от 15.07.2012
+
+Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618850.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1| Продолжительность: 01:15:18
+01. We Shall Dance
+02. Fire And Ice
+03. No Way Out
+04. My Reason
+05. Forever And Ever
+06. Velvet Mornings
+07. Goodbye My Love, Goodbye
+08. My Friend The Wind
+09. Schoes Madchen aus Arcadia(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:25
+01. Kyrila
+02. Mourir Aupres De Mon
+03. Ainsi-Soit-Il
+04. Life In The City
+05. That Once In A Lifetime
+06. Loin Des Yeux, Loin Du Coeur
+07. The Wedding Song
+08. Lost In Love
+09. I Need You(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A312BE9BC879C207812AAC78F801A9A456239C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036607   (618907) от 21.07.2016
+
+ВИА Коробейники - Коробейники (2004) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Золотые купола  "
+02. "Ой полным полна моя коробушка  "
+03. "Калинушка  "
+04. "Огромный мир  "(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F648F70EE2309ABF99BF644EB75CADCE378BC1BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230156   (618977) от 10.06.2018
+
+VA - The Mojo Machine Turns You On 1 (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что MOJO - это британский музыкальный журнал, выходящий ежемесячно и издающийся с 1993 года. Иногда он выпускает вот такие сборники групп и солистов, представленных в журнале. Как правило выпуск сопровождается достаточно интересным буклетом, являющимся как бы продолжением журнала. Сборники в продажу не поступают, а распространяются по подписке, о чем на (   Читать дальше...   )01. Gary Moore - Afraid of Tomorrow  (5:00)
+02. Steve Winwood - Fill Me Up  (4:27)
+03. Prefab Sprout - Whoever You Are  (2:49)
+04. John Mayall - Stone Cold Deal  (4:19)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD550C67812BB5050B4099CE0420ED268C2E5E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036532   (618984) от 21.07.2016
 
 ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|image + .cue] <Pop>
@@ -615,87 +711,6 @@ Lalo Project - Твой путь (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:868FADF48C9BEF6966BCDCD273E682CA98B7E401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294981   (620762) от 12.04.2019
-
-Lalo Project - Freak Hero (2013) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Listen to Me, Looking at Me  (3:45)
-02 - In This Moment  (3:45)
-03 - Never  (2:51)
-04 - My Sun  (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE93BA4BEEA4A608AADBA9EBBCC816406104B9DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295333   (620767) от 12.04.2019
-
-Sara Bareilles - Amidst the Chaos (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire (03:49)
-02. No Such Thing (03:57)
-03. Armor (04:27)
-04. If I Can't Have You (04:13)(   Читать дальше...   )Жанр: Pop, Indie Pop, Pop RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81986A3FB5FC03342DF4C5A13CD4CC26DDD92B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230008   (620878) от 09.06.2018
-
-Melanie C - Version Of Me (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear Life (3:28)
-02. Escalator (3:22)
-03. Anymore (3:04)
-04. Something Gor The Fire (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC890421922F82601C707AD82F557E00B095281
 ```
 
 

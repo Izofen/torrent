@@ -1,3 +1,192 @@
+###  Публикация: 1127723   (730358) от 22.04.2017
+
+Дидюля & Chris Wonderful - Аквамарин (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730358.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Свадебное путешествие
+2. Страна дураков
+3. Белый месяц
+4. Посох шамана(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40FC5E40E806650361036B41874E60F4C3BECC35
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127461   (730477) от 22.04.2017
+
+Two Steps From Hell - Battlecry Anthology (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Soundtrack, Classical, Epic, Instrumental>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730477.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Battlecry Anthology» - оркестровые и инструментальные ремикс-версии с альбома «Battlecry». На саундтрек попало 43 композиции общей длительностью более 2-х часов. Подборка является компиляцией оригинальной музыки. Выпуском пластинки занимался лейбл Two Steps from Hell - американская компания по музыкальному продакшну, которая базируется в Санта-Монике, Калифорния. (   Читать дальше...   )01. Across The Blood Water (Instrumental) (3:34)
+02. Across The Blood Water (Orchestral) (3:40)
+03. Amaria Silverbird (Orchestral) (6:39)
+04. Victory (Instrumental) (5:22)(   Читать дальше...   )Жанр: New-Age, Soundtrack, Classical, Epic, InstrumentalПродолжительность: 02:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7079C78F6527448F6F00FC8C5ACFA852FC8BFE6B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021432   (730495) от 31.05.2016
+
+Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [MP3|320 кб/с] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730495.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Seven Seas - 1984
+01. The Seven Seas (3:59)
+02. So Bad - Pipes of Peace (3:46)
+03. Thriller (4:22)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B9E73F9E4A0DD800F6F09BC2FE19427F6FB8D0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021371   (730681) от 31.05.2016
+
+Pekka Tiilikainen & Beatmakers - Rautalanka Collection (2006) [MP3|320 кб/с] <Instrumental, Guitar, Beat, Rautalanka, Surf>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leskiaidin tyttaret-twist (Widow's Daughters Twist)
+02. Taivas itkee (Heaven's Crying)
+03. Muisto vain jaa (Only A Fool Breaks His Own Heart)
+04. Uudelleen jos luokses tulla voisin (Mr. Salanov Theme)(   Читать дальше...   )Жанр: Instrumental, Guitar, Beat, Rautalanka, SurfПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82D85A3DE3C898376A63D8B9EB130ABCA39A4BA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283858   (730742) от 19.02.2019
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 5 (1990) [MP3|320 Kbps] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here, There and Everywhere + Hey Jude - Symphonic Rock Orchestra
+02. Chopin's Dreams (Etude) - Wave's Computer Orchestra
+03. Hello Mary (BachGounod Ave Maria) - Philharmonics of London
+04. Hummelflug + Ungarischer Tanz No.5 + Leichte Kavallerie + Carmen - Symphonic Rock Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181879192174FD9CD2A8CA09379D73B36B01C049
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283780   (730946) от 19.02.2019
+
+VA - Are You Lonesome Tonight. 23 Romantic Instrumentals (unknown year) Unofficial Release [FLAC|Lossless|image + .cue] <Jazz, Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camels Pick-Nick
+02. Linger A While
+03. Concerto D'Aranjuez
+04. Plaisir D'Amour(   Читать дальше...   )Жанр: Jazz, Easy Listening, InstrumentalПродолжительность: 01:12:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31678EAE6D17502EBD2926752D2D62584AF40E98
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021847   (730969) от 31.05.2016
+
+Geoffrey Downes - Evolutio (1994) [MP3|320 кб/с] <Instrumental, Electronic, Soft Rock>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_730969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Africa    03:26
+02. Livin' On A Prayer    03:48
+03. Nights In White Satin    03:09
+04. Little Lies    03:17(   Читать дальше...   )Жанр: Instrumental, Electronic, Soft RockПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CC7605EBB949CF4B673882967E07FBD6E1E74C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021993   (730976) от 31.05.2016
 
 Tanya Tucker - 16 Biggest Hits (2006) [MP3|320 кб/с] <Country>
@@ -503,195 +692,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B774D1B7CD624CC283946AFFEE9583CAF968897C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397920   (737086) от 23.07.2020
-
-Carl Davis & Royal Liverpool Philharmonic Orchestra - ABBA for Orchestra (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen (Arr. C. Davis for Orchestra) (3:50)
-02. Voulez-Vous (Arr. C. Davis for Orchestra) (4:36)
-03. Super Trouper (Arr. C. Davis for Orchestra) (4:35)
-04. Money, Money, Money (Arr. C. Davis for Orchestra) (3:11)(   Читать дальше...   )Жанр: Instrumental, ClassicalПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6593371BD3133074682D8ACC5FDB011B110C2FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527037   (737335) от 27.01.2022
-
-Fausto Papetti - Playlist: Fausto Papetti (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazz, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_737335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What a Wonderful World (3:24)
- 02. Night and Day (3:19)
- 03. Almeno tu nell'universo (2:58)
- 04. Smoke Gets in Your Eyes (3:49)(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79F62D5A6A93EBA8C5509FFC94047E788CF22449
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525529   (738776) от 23.01.2022
-
-Ernesto Cortazar - Infinite Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinite Love (3:47)
- 02. Fairy Tale (3:23)
- 03. Forever Yours (4:57)
- 04. Just Kiss Me (4:08)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BDECBE478D006E8AA6DCB96938BEEEF5EC67F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525420   (738989) от 22.01.2022
-
-VA - The Best Of Bond... James Bond (2021) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_738989.jpg" />
-</div>
-
-
-###  Подробнее
-
-"The Best Of Bond... James Bond" - сборник заглавных песен, написанных для фильмов про Джеймса Бонда, изначально выпущенная в 2015 году. Переиздание 2021 года на двух CD включает песни Adele's "Skyfall", Sam Smith's "Writing's On The Wall" и Billie Eilish "No Time to Die" из последних фильмов про агента 007.CD 1 (39:49):
- 01. The John Barry Orchestra - The James Bond Theme (01:47)
- 02. Matt Monro - From Russia With Love (2:32)
- 03. Shirley Bassey - Goldfinger (02:48)(   Читать дальше...   )Жанр: Jazz, Rock, PopПродолжительность: 01:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:887E725841D380665B3CF314294FC61E07A44D16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525686   (739114) от 22.01.2022
-
-Greensky Bluegrass - Stress Dreams (2022) [FLAC|Lossless|WEB-DL|tracks] <Bluegrass, Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absence of Reason (4:17)
- 02. Monument (4:42)
- 03. Until I Sing (3:07)
- 04. Stress Dreams (8:02)(   Читать дальше...   )Жанр: Bluegrass, Country, FolkПродолжительность: 01:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C45F5DCC94D025495E361549FDAD579B81F73638
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283230   (739559) от 17.02.2019
-
-Arctic Raindance - The Sound Of The Fjords (1998) [MP3|320 Kbps] <Native american, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_739559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Jive Talking (4:59)
-02 - Kjrlighetsvisa (3:40)
-03 - Tusen Bitar (4:14)
-04 - Ikke Ver Dum (3:11)(   Читать дальше...   )Жанр: Native american, New Age, DowntempoПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136B0065A043318059226C235C351A600D650ABF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217812   (740170) от 07.04.2018
-
-VA - Restoration: The Songs Of Elton John And Bernie Taupin (2018) [FLAC|Lossless|WEB-DL|tracks] <Country, Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Big Town - Rocket Man 04:48
-02. Maren Morris - Mona Lisas And Mad Hatters 05:04
-03. Don Henley & Vince Gill - Sacrifice 05:27
-04. Brothers Osborne - Take Me To The Pilot 03:55(   Читать дальше...   )Жанр: Country, PopПродолжительность: 00:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD2B115D14D7269759E74C95DFCDDBA0E6AA859
 ```
 
 

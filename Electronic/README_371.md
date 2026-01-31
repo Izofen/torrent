@@ -1,3 +1,30 @@
+###  Публикация: 1021378   (740978) от 29.05.2016
+
+LTN - People I'll Never Forget (Remixes) (2016) [MP3|320 кб/с] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_740978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTN — Autumn Leaves (Sunny Lax Radio Edit) (06:04)
+02. LTN feat. Arielle Maren — Let Me Go (Johan Vilborg Radio Edit) (04:35)
+03. LTN — A Long Walk To Freedom (Lycii & Joe Lyons Radio Edit) (05:52)
+04. LTN — Fuego De Amor (Katrin Souza Radio Edit) (06:56)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743F81CCFEEC27287AA14D74D82C37A8A0563181
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021402   (740992) от 29.05.2016
 
 VA - IBIZA 2016 - Locked, Loaded and Ready to Roll (2016) [MP3|320 кб/с] <Deep House, Tech House>
@@ -668,33 +695,6 @@ VA - Jungle Essence 11th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2997004D1509CEDEDF4FFEC4EB03CD065AA905F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126781   (741200) от 20.04.2017
-
-VA - Chillout AAA Vacation Time Real Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_741200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Neuroborus - Readout Output (Alternate Mix)  2:58
-02.  Green Grid - Reason Soul (Clip Version)  3:05
-03.  Sine Tunes - Tedium Street (Memo Export)  3:01
-04.  Keyright - Lakeside (Yellow Sun)  2:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C54A5DEB6A9DEE74F92AB7097B1FF5A29F9F55C0
 ```
 
 

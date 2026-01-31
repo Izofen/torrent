@@ -1,3 +1,30 @@
+###  Публикация: 983411   (943610) от 06.02.2016
+
+Scooter - Ace (2016) /Scene/ [FLAC|Lossless|tracks] <Deep House, Tech House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_943610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace
+02. Oi
+03. Mary Got No Lamb
+04. Riot(   Читать дальше...   )Жанр: Deep House, Tech House, TranceПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918F419CBCB2D1B8A831B480F4148F3E108058E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362968   (943703) от 27.02.2020
 
 Pet Shop Boys - Hotspot (2020) Japanese Edition [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop, House, Disco>
@@ -662,33 +689,6 @@ Goran Geto - Diving To Deep (Dub Techno Edition) (2013) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:562F2B4A75D974B1E2DCB7DCA6047F79CC543749
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982610   (947115) от 04.02.2016
-
-VA - The Annual Chillout Sessions (29 January, 2016) [MP3|320 кб/с] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chillout Company - Boutique Salinas [06:28]
-02. Eddy Chrome - In Love (Lounge Remix) [06:11]
-03. The Soul Elephant - Nobody [05:15]
-04. My Island - Maledives Beach Lounge (Buddha in a Bar Mix) [06:01](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F5E5754AE688DEFCF6F3D3EDDB6280D1C790AC4
 ```
 
 

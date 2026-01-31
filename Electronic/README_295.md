@@ -1,3 +1,30 @@
+###  Публикация: 1042553   (578388) от 13.08.2016
+
+VA - Schneeweiss VI (Presented By Oliver Koletzki) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_578388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cubicolor - Falling (feat Tim Digby-Bell)
+02. Frank Wiedemann - Moorthon II
+03. Stimming - Trains Of Hope
+04. Julian Wassermann & Oliver Deuerling - Schwabing(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 03:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF33CDEF31A9E7AEB1BE75AB6ECD769B9C7C8600
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042726   (578400) от 13.08.2016
 
 VA - Toolroom Ibiza 2016 Vol.2 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
@@ -663,33 +690,6 @@ VA - Poolside Ibiza (Mixed by Ghassemi & Televisor) (2016) [MP3|320 Kbps] <Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46F6A59C82376B9DF938463767AB3EDE0AB93D54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042077   (580591) от 11.08.2016
-
-VA - Most Wanted Chill & Lounge (2016) [MP3|320 Kbps] <Easy Listening, Soulful, Chill, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louisa Lessley - Wanda's Theme 04:43
-02. Chickenskin - Kissysweet 06:16
-03. Claudia Hunt - Little Sorrow 05:57
-04. Snik - Design (Radio Edit) 03:39(   Читать дальше...   )Жанр: Easy Listening, Soulful, Chill, LoungeПродолжительность: 07:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A9E242FE1009579B14BAD1E22FB0D3EF118FBBE
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1034581   (634128) от 13.07.2016
+
+VA - Disco Hits - Generation One (2016) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boney M. - Sunny [03:59]
+02. Eruption - One A Way Ticket [03:36]
+03. ABBA - Voulez-Vous [05:08]
+04. Donna Summer - Hot Stuff [2:55](   Читать дальше...   )Жанр: DiscoПродолжительность: 01:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C3DF52374C4EE4E82C70D83387BAD1723689218
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034705   (634140) от 13.07.2016
 
 VA - Лучшая Коллекция Исполнителей Шансона (2016) [MP3|320 Kbps] <Шансон>
@@ -683,33 +710,6 @@ VA - Dance - Pop Vol. 3 (2019) [MP3|320 Kbps] <Eurodance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA38EF6AF44CE89F57D853E4D9474923877E3DD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143671   (635509) от 18.06.2017
-
-VA - Heliopause: Energy Exdendet Trance Mix (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mhammed El Alami & Ben Samy - Ocean Dream (Extended Mix)
-002. Johnny Yono - Severed Ties (Extended Mix)
-003. James Kiedis - Here I Stand
-004. Davey Asprey - Fallout (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 11:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC900AADEB090DD6123543915EFEE3341F54348D
 ```
 
 

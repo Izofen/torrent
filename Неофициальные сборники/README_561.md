@@ -1,3 +1,30 @@
+###  Публикация: 1112152   (844757) от 07.03.2017
+
+Peter Green - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_844757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loser Two Times
+02. What Am I Doing Here
+03. One More Night Without You
+04. Big Boy Now(   Читать дальше...   )Жанр: BluesПродолжительность: 02:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD035668EE91B0B061DBF518623AB4FEADBAB36
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112097   (844779) от 07.03.2017
 
 John Lee Hooker - 30 most slow Blues (2017) 2CD  [MP3|320 Kbps] <Blues>
@@ -668,33 +695,6 @@ VA - Spring Vocal Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B29B24598B717D862595D4DCD4CB536E1FC0F75
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 877583   (845717) от 13.03.2015
-
-VA - Звезды Дискотек! (39 - 42) (2015) (4CD) [MP3|192 - 320 кб/с]<Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845717.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. E-Type - Angels Сrying (03:50)
-002. Milk Inc. - Livin' A Lie (03:20)
-003. E-Type - Princess Of Egypt (03:39)
-004. Alice Deejay - Back In My Life (03:29)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 01:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD643786E89743DE496972A95CDAE9DD9671EE59
 ```
 
 

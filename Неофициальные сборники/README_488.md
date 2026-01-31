@@ -1,3 +1,30 @@
+###  Публикация: 1126573   (765369) от 18.04.2017
+
+VA - I Love Music! - Alternative Rock Edition Vol.33 (2017) [MP3|320 Kbps] <Alternative Rock, Punk-Rock, Pop-Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_765369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3 Pill Morning - Escape 3:59
+002. AFI - She Speaks The Language 4:01
+003. Acceptance - 73 5:00
+004. Acronycal - Lost Without A Name 4:23(   Читать дальше...   )Жанр: Alternative Rock, Punk-Rock, Pop-PunkПродолжительность: 06:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE6F34A554FAB9F90987D5DEEECF537464AD1E8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126461   (765370) от 18.04.2017
 
 VA - I Love Music! - Extreme Metal Edition Vol.33 (2017) [MP3|320 Kbps] <Thrash Metal, Death Metal, Doom Metal>
@@ -668,33 +695,6 @@ VA - Empire Records - Red Star 3 (2019) [MP3|320 Kbps] <Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30DBCABB7AD130DC97B082215E8B5B9965FE7159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279404   (765958) от 29.01.2019
-
-VA - Rock & Metal Collection от ALEXnROCK часть 11 (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765958.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошла самая мелодичная классика тяжелого рока. Все треки взяты с фирменных CD изданий без убивающего звук ремастеринга. У сборника очень мощная положительная энергетика, поднимающая настроение и заряжающая огнем сердце. Это 11я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK001 Sunstorm - Gutters Of Gold
-002 Cinderella - Take Me Back
-003 Winger - Pull Me Under
-004 The Wallflowers - Heros(   Читать дальше...   )Жанр: RockПродолжительность: 04:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D78FFF3E5017467FB8B960C066C749F987315779
 ```
 
 

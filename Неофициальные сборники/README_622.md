@@ -1,3 +1,30 @@
+###  Публикация: 1364012   (939193) от 01.03.2020
+
+VA - Не за горами весна Vol.2 (2020) [MP3|320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939193.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Рустам Бадалов - Первая любовь (6:50)
+2.Павел Филатов - От Урала до Сибири (5:39)
+3.Альберт Комаров - Я Тебя Люблю (4:05)
+4.Сергей Наговицын - Белый снег (5:32)(   Читать дальше...   )Жанр: ШансонПродолжительность: 03:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C630D5657F93BAC610B8BFABBD05A77F3FC70C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364037   (939199) от 01.03.2020
 
 VA - The Best Russian Rock Hits - 1 (2020) [MP3|320 Kbps] <Rock>
@@ -668,33 +695,6 @@ VA - Trance Big World Audition (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E412825E880E7D5E8E95ED8E89B3EF4C7ABE0CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091832   (940810) от 10.01.2017
-
-VA - 155 DJ Sound Music World Tunes (2017) [MP3|96-320 Kbps] <Club, Bigroom, Vocal, Happy Sound, Electro, Progressive, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fabelhaft Ft. Carmen & Camille - Bringing Me Back (Radio Edit) [3:31]
-002. Lowkiss Vs Ryan Riback Ft. Sarah Mcleod - Love Me Tonight [4:07]
-003. Robin Schulz Feat. Francesco Yates - Sugar [3:39]
-004. Nature One Inc. - Stay As You Are (Jerome S Official Anthem Edit Mix) [2:57](   Читать дальше...   )Жанр: Club, Bigroom, Vocal, Happy Sound, Electro, Progressive, HouseПродолжительность: 14:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB7A4C35CA3726022A0EE13CBBDBFB9136506E0D
 ```
 
 

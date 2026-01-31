@@ -1,3 +1,30 @@
+###  Публикация: 1364924   (933803) от 05.03.2020
+
+VA - Beatport Electro House: Pack #19 (2020) [MP3|320 Kbps] <Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_933803.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alexey Sonar - Flight To Shambala
+002. Sasha - Trigonometry
+003. Ralphie Boss - Whithout Any Desire
+004. Deep Makers - I Watch You Arrive(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 13:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFB762F6ED4372BDE1253B233760194A1C81AFC0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364886   (933804) от 05.03.2020
 
 VA - Beatport Drum And Bass: Electro Sound Pack #27 (2020) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubstep>
@@ -666,30 +693,6 @@ magnet:?xt=urn:btih:731257F11490576BF16B971A209DA810AC82C45D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B6359802AA99FCC51298655ABD938AF36B82026
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 860245   (935583) от 19.01.2015
-
-VA - 500 Greatest Albums Of All Time (1950-2003) [MP3|128-320кб/с] <Pop, Rock, Punk, Ska, Metal, Soul, Blues, Folk, Jazz>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935583.jpg" />
-</div>
-
-
-###  Подробнее
-
-500 величайших альбомов всех времён по версии легендарного музыкального журнала "Роллинг Стоун". В составлении списка принимали участие 273 человека, среди которых были известные музыканты, критики, продюсеры и другие влиятельные в музыкальной индустрии люди - каждый из них предложил журналу 50 своих любимых альбомов.Жанр: Pop, Rock, Punk, Ska, Metal, Soul, Blues, Folk, Jazz и др.Продолжительность: 431:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7700C3C137A25249CD4E517F36D56A203DD6BE7E
 ```
 
 

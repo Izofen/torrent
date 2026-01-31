@@ -1,3 +1,339 @@
+###  Публикация: 933007   (507249) от 31.08.2015
+
+Atrophia Red Sun - Twisted Logic (2003) [FLAC|image +.cue]<Technical Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Code Word (personal) cold world [6:32]
+02. Abstract [7:42]
+03. Infected Tears [5:08]
+04. Inspiration [5:59](   Читать дальше...   )Жанр: Technical Melodic Death MetalПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F122CB83DE3BEBD17ECCF0FD215051A93AF1720
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932967   (507259) от 31.08.2015
+
+Epidemic - The Truth Of What Will Be (1989) [APE|image +.cue]<Death Metal / Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amx 03:03
+02. Live your Death 01:38
+03. In Fear we Kill 04:40
+04. Thigh Rubbage 01:12(   Читать дальше...   )Жанр: Death Metal / Thrash MetalПродолжительность: 00:23:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0B5B0F0B423064DBC32B3785A01B7B1471A39E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562568   (507321) от 11.07.2022
+
+Duster 69 - With Best Regards (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507321.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Remember
+2. Oppose
+3. Upcoming
+4. 50 Miles(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DDEC2A274284A604E21320585B43A2B807841A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562819   (507322) от 11.07.2022
+
+A Fitting Revenge - Omnipresence (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Performance (00:02:50)
+02 - The Infinite (00:03:44)
+03 - The Inquisition (00:05:37)
+04 - The Collapse (00:05:06)(   Читать дальше...   )Жанр: Melodic Death Metal, MetalcoreПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9D07CE5100D9C36CAF8754F1EECA4AD54EA1EC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562793   (507323) от 11.07.2022
+
+Wilt - Ruin (2018) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black metal, Doom metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into the Unknown (7:51)
+02. We Read the World Wrong (8:11)
+03. Strings of a Lingering Heart (6:50)
+04. A Summons has Come (10:13)(   Читать дальше...   )Жанр: Atmospheric Black metal, Doom metalПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0C0BAEF2AFBC0B8C41DDC225A8B6E4C5CF8625B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562774   (507324) от 11.07.2022
+
+Duster 69 - With Best Regards (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507324.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Remember
+2. Oppose
+3. Upcoming
+4. 50 Miles(   Читать дальше...   )Жанр: Stoner Rock, Doom MetalПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478A6F7DF7AE06BF8D97FA864BEFB18F0FAD990E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562709   (507325) от 11.07.2022
+
+Obiat - Indian Ocean (2022) [MP3|320 Kbps] <Doom, Sludge, Stoner, Psych, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ulysses
+02. Eyes and Soul
+03. Acid Wake
+04. Nothing Above(   Читать дальше...   )Жанр: Doom, Sludge, Stoner, Psych, Prog RockПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAD4FA701491A7B27C520A13D993C5986528697
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562929   (507326) от 11.07.2022
+
+Scaphis - Dissected & Fermented (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gathering
+02. Broken By The Wheel
+03. The Hunt
+04. Let Me Out(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517A5AFC849C6C31AB12D23E0864834BE6A304D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932616   (507327) от 31.08.2015
+
+Elnordia - Insight (2007) [FLAC|image +.cue]<Symphonic Doom Metal / Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Velvet of Night
+02. Dark Phoenix Rise
+03. Ghost of the Sunset
+04. Phantom Queen(   Читать дальше...   )Жанр: Symphonic Doom Metal / Death MetalПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EBC9DD16C50D272061EAF8BCD837142AB7FD9A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932916   (507329) от 31.08.2015
+
+Dissenter - Contamination (2003) [FLAC|image +.cue]<Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [0:41]
+02. Contamination [5:58]
+03. Unholy Sight [3:51]
+04. In Flames Of Hate [6:03](   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C460DCFBC52CD96A2E244C24DB3F269DE078AF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539100   (507454) от 25.08.2012
+
+Rainbow - Heavy Portrait (2CD) (2012) [MP3|320 кб/с]<Classic Rock ,Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507454.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Tarot Woman (New York Mix)
+02. A Light In The Black (New York
+03. Run With The Wolf (New York Mi
+04. The Temple Of The King
+05. Starstruck (New York Mix)
+06. Stargazer (New York Mix)
+07. Man On The Silver Mountain
+08. Self Portrait
+09. Catch The Rainbow(   Читать дальше...   )Жанр: Classic Rock ,Hard RockПродолжительность: 02:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15225BF368F1B1609067E685EB96012C70CCE9DC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539094   (507468) от 25.08.2012
+
+Korpiklaani - Manala (Deluxe Edition) (2012) [FLAC|Lossless]<Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507468.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 (Finnish Version):
+
+01. Kunnia (3:25)
+02. Tuonelan Tuvilla (3:11)
+03. Rauta (3:06)
+04. Ruumiinmultaa (3:37)
+05. Petoelaimen Kuola (3:15)
+06. Synkka (5:26)
+07. Ievan Polkka (3:08)
+08. Husky-Sledge (1:49)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 231915   (507504) от 02.09.2010
 
 Liquid Smoke - Liquid Smoke (1969) [MP3|320 kbps]<Psychedelic Hard Rock>
@@ -383,327 +719,6 @@ Switchfoot - interrobang (2021) Deluxe Edition, 2022 [FLAC 2.0|48/24|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F974E1EB8B3E4F20BE74692F82B2FC3D5E78B25
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562605   (508075) от 10.07.2022
-
-Виагра Boys - Welfare Jazz (2021) [FLAC|Lossless|tracks + .cue] <Post-Punk, Art Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ain't Nice (00:03:32)
-02 - Cold Play (00:00:31)
-03 - Toad (00:03:35)
-04 - This Old Dog (00:00:37)(   Читать дальше...   )Жанр: Post-Punk, Art PunkПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348A9F3A50A66D00B7684467A573B3776EC49714
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562663   (508143) от 10.07.2022
-
-DeGarmo & Key - This Ain't Hollywood (1980) Reissue, 2021, Girder Records [FLAC|Lossless|image + .cue] <Soft Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella, This Ain't Hollywood (3:24)
-02. When He Comes Back (2:46)
-03. You Gave Me All (3:30)
-04. Never Be The Same (2:57)(   Читать дальше...   )Жанр: Soft Rock, AORПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223EE8E61A9D2DAC673335AB725638DAD2064964
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562554   (508145) от 10.07.2022
-
-Whispering Tales - A Matter of Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Spark (00:07:09)
-02 - Heap of Ashes (00:06:16)
-03 - Copper Wire (00:05:40)
-04 - On the Edge (00:08:13)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54D4E6298F590E30FDC4659655A2482EF10E9B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562576   (508151) от 10.07.2022
-
-Wiegedood - There's Always Blood At The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - FN SCAR 16 (00:04:07)
-02 - And in Old Salamano's Room, The Dog Whimpered Softly (00:04:32)
-03 - Noblesse Oblige Richesse Oblige (00:05:06)
-04 - Until It Is Not (00:05:40)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9452CE89C331600943A550AACFBC000F9E6B216
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562507   (508153) от 10.07.2022
-
-Undertow - Bipolar (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove, Gothic, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - When Tears Became Scars (00:08:28)
-02 - On Fire (00:04:17)
-03 - Life Kills (00:06:02)
-04 - Call of the Sin (00:04:59)(   Читать дальше...   )Жанр: Groove, Gothic, Doom MetalПродолжительность: 00:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7CDCA355E9FACD0415CDA13CF8D67D48F55BD0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562533   (508155) от 10.07.2022
-
-HolyRoller - Swimming Witches (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Atheist Prayer (00:03:28)
-02 - Stumbling Towards Death (00:05:14)
-03 - Earthdweller (00:03:25)
-04 - Last Embrace (00:04:49)(   Читать дальше...   )Жанр: Psychedelic Doom, Stoner MetalПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42A6CA07B720A51305661575CA02BF2ED23D174
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562581   (508157) от 10.07.2022
-
-Within the Pyre - Within The Pyre (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Striga (00:01:35)
-02 - The Heavy Hand (00:04:19)
-03 - Gaia's Plague (00:04:52)
-04 - Vilify (00:04:04)(   Читать дальше...   )Жанр: Melodic Death, Groove MetalПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F7FEC1B7C9129E57CA72E104AA11431DE86A2C8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562531   (508159) от 10.07.2022
-
-Negative 13 - Mourning Asteri (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Scars Are Showing Again (00:04:04)
-02 - Never Ending Exit Wound (00:03:19)
-03 - Pain Prism (00:05:50)
-04 - Mourning Asteri (00:02:28)(   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 00:40:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF8973793095CD8EC80D6179BFDB3B3340D1B41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232371   (508193) от 01.09.2010
-
-Papa Roach - Time For Annihilation... On the Record & On the Road (2010) [FLAC|Lossless]<Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn (3:26)
-02. One Track Mind (3:26)
-03. Kick In The Teeth (3:11)
-04. No Matter What (3:33)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538832   (508218) от 24.08.2012
-
-Led Zeppelin - Studio Discography (1969-1982) 10 Remastered CD /2012, KronStudioLab Int'l/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard rockПродолжительность: 06:54:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932684   (508230) от 30.08.2015
-
-Black Light Burns - Cruel Melody (2008) Limited Edition [MP3|320 кб/с]<Alternative Rock, Prog Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mesopotamia
-02. Animal
-03. Lie
-04. Coward(   Читать дальше...   )Жанр: Alternative Rock, Prog Rock, ElectronicПродолжительность: 01:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBEFFEC15F5EFED138058D241A1F9E29B590C6EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932692   (508239) от 30.08.2015
-
-Chris - Days Of Summer Gone (2013) [MP3|320 кб/с]<Art Rock, Prog Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out In The Night (14:09)
-02. Distances (06:25)
-03. Cold Heart (11:12)
-04. Heliophobia (05:25)(   Читать дальше...   )Жанр: Art Rock, Prog Rock, Symphonic RockПродолжительность: 01:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A61A7381CDC9E1E813FBE1C9D69798CBD2979B20
 ```
 
 

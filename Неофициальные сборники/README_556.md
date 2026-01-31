@@ -1,3 +1,30 @@
+###  Публикация: 1113685   (836718) от 12.03.2017
+
+VA - Empire Records - Dancenudisco 12 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K La Cuard - Shooting Star (Radio Edit)
+02. Tommy Vee & Mauro Ferrucci Present Keller - This Time (Original Mix)
+03. Zinner and Orffee - Together (Radio Edit)
+04. The Knocks Ft Absofacto - Trouble (Captain Cuts Edit)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC80EEBB50B766D284197B5AA911A80A4B204D3C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113561   (836813) от 12.03.2017
 
 VA - Miraflores Deep House Assembly (2017) [MP3|320 Kbps] <Deep House, Electro>
@@ -662,33 +689,6 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #161 (2016) [MP3|320 кб/с] <Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5213BD6D33DF027C3168BB5F3AF292CFC4BA86E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004590   (838528) от 06.04.2016
-
-VA - Goa Session by X-Noize (2016) [MP3|320 кб/с] <Trance, Progressive Trance, PsyTrance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X-NoiZe vs. SpaceCat - No Rules 06:43
-02. Iliuchina - Lucid Dream 06:47
-03. X-NoiZe & Volcano - Volcanoize 06:49
-04. Capital Monkey vs. Burn in Noise - Capital Noise 06:41(   Читать дальше...   )Жанр: Trance, Progressive Trance, PsyTranceПродолжительность: 02:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773ECCB049A39917609393B113962705CE1DFC59
 ```
 
 

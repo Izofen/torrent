@@ -1,3 +1,324 @@
+###  Публикация: 1529515   (732695) от 06.02.2022
+
+VA - Epic Metal (2022) [MP3|320 Kbps] <Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machine Head - Davidian
+02. Lamb of God - Everything to Nothing
+03. Slipknot - Birth of the Cruel
+04. Korn - Can You Hear Me(   Читать дальше...   )Жанр: Metal, RockПродолжительность: 04:19:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543227C737A447E3F322644D88116C71BC1D8E71
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529390   (732720) от 06.02.2022
+
+[AMATORY] - Книга Мёртвых (2006) 3CD, XV Anniversary, 2022, Self-Released [MP3|320 Kbps] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Помнишь?
+02. Семь Шагов
+03. Здесь И Сейчас
+04. Снег В Аду(   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 03:23:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D032939D1FDB8A3437287F2A45013A06A8EFB7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399262   (732903) от 01.08.2020
+
+Barron - Light In The Dark (2020) [MP3|320 Kbps] <Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What I Am (06:43)
+ 02. Broken (05:42)
+ 03. In A Hole (05:24)
+ 04. The Old Familiar Feeling (06:49)(   Читать дальше...   )Жанр: Death Metal, Thrash MetalПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2FE948CBFED96E54B0BF6CC27D48D19ABA9670
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399308   (732911) от 01.08.2020
+
+Alcatrazz - Born Innocent (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born Innocent (03:06)
+ 02. Polar Bear (04:35)
+ 03. Finn McCool (04:21)
+ 04. We Still Remember (04:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:57:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00E58DE80047B41CE3D09143D7392ACA8A4DF6C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399547   (732938) от 01.08.2020
+
+VA - American Rock Hits (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732938.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. White Lion - Wait (4:01)
+2. Twisted Sister - The Kids Are Back (3:18)
+3. Marc Cohn - Walk Through the World (4:54)
+4. Bad Company - Dangerous Age (3:49)(   Читать дальше...   )Жанр: RockПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD6056BD2E59D8D92E57E1317DD86E2D56E91204
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399411   (732952) от 01.08.2020
+
+Lionheart - The Reality Of Miracles (2020) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation (00:55)
+ 02. Thine Is the Kingdom (04:24)
+ 03. High Plains Drifter (03:54)
+ 04. The Reality of Miracles (04:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADD5665FE102930A2E79AE3186F37A0DBC826A3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399367   (732956) от 01.08.2020
+
+Damnation Angels - Fiber of Our Being (2020) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than Human (04:43)
+ 02. Railrunner (06:35)
+ 03. Fiber of Our Being (04:58)
+ 04. Our Last Light (04:14)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04D033B63FAD13E5AE6EF137CAC0805E688C6B8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399465   (732958) от 01.08.2020
+
+The Psychedelic Furs - Made of Rain (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Boy That Invented Rock & Roll (03:36)
+02. Don't Believe (03:45)
+03. You'll Be Mine (04:47)
+04. Wrong Train (04:12)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBA13DF7700192A7EE359ED220C9C66AB46E8416
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399280   (732967) от 01.08.2020
+
+Cheesing Gweilo - Oriental Adventures... (2020) (Powered By Rice) [MP3|320 Kbps] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Sir (02:57)
+ 02. Wild Ducks And Low Flying Doves (04:08)
+ 03. L.B.F.M. (05:26)
+ 04. Slow (04:48)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF2B11C15E461C704F20A9322EA8A157F6602647
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399329   (732968) от 01.08.2020
+
+Lyonen - This Is Lyonen (2020) [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation (04:40)
+ 02. Lyonen (04:54)
+ 03. No Borders (04:53)
+ 04. Nehme Die Sunde (03:23)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B3DAC3E4BB7B7E301E2C3932C2058501C1C91D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399527   (732971) от 01.08.2020
+
+Ensiferum - Iron (2004) [FLAC|Lossless|image + .cue] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_732971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferrum Aeternum (03:28)
+02. Iron (03:53)
+03. Sword Chant (04:45)
+04. Mourning Heart - Interlude (01:24)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A0D15671984CBB48C77CC2EA148FDD8E347D25
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 143228   (733008) от 05.02.2022
+
+Blue October - Дискография (1998-2009) [MP3|320 Kbps] <Alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_733008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative rockПродолжительность: 8 hours 25 minutes 51 seconds
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682B9BD6BDB2824E8B5B6D61D70E75B9DC16B380
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1529253   (733066) от 05.02.2022
 
 The Чиж & Co - На поле танки грохотали (2020) [MP3|320 Kbps] <Rock>
@@ -372,330 +693,6 @@ VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B0B1D27359A48E03A5ABFDA018593CFE79CC850
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399072   (734342) от 29.07.2020
-
-Stilema - Utopia (2020) [MP3|320 Kbps] <Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il volo eterno (06:25)
- 02. Tra leggende e realta (04:30)
- 03. Ophelia (05:57)
- 04. Mondi paralleli (07:19)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B39C53C5E509AF9BCCE59EF5146F1A37450A1AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398990   (734343) от 29.07.2020
-
-Alberto Rigoni - Odd Times (2020) (feat. Marco Minnemann & Alexandra Zerner) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock, Instrumental Music>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odd Times (6:16)
-02. Countdown (7:07)
-03. Crazy Horse (5:22)
-04. V (6:54)(   Читать дальше...   )Жанр: Progressive Rock, Instrumental MusicПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10309D8AE08D1BF6C5C409BD2E504C0786F829A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399020   (734346) от 29.07.2020
-
-Martriden - The Unsettling Dark (2008) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:40]
-02. The Enigma of Fate [05:35]
-03. The Calling [05:07]
-04. Ascension, Pt. 1 [03:27](   Читать дальше...   )Жанр: Melodic Death Metal, Black MetalПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:666F348950D1922A98BA20DD5A8196BBCB13A5E1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399076   (734351) от 29.07.2020
-
-Mar de Grises - Streams Inwards (2010) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starmaker [05:56]
-02. Shining Human Skin [05:46]
-03. The Bell and the Solar Gust [05:45]
-04. Spectral Ocean [03:04](   Читать дальше...   )Жанр: Melodic Death Metal, Doom MetalПродолжительность: 00:56:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1F9AE7C77CF0E1022286AE44CE842960E5844B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399136   (734382) от 29.07.2020
-
-Longing for Dawn - Between Elation and Despair (2009) [FLAC|Lossless|image + .cue] <Funeral Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Our Symbolic Burial (15:19)
-02. A Sunrise At Your Feet (11:01)
-03. Reflective (09:35)
-04. The Piscean Dawn (16:23)Жанр: Funeral Doom, Death MetalПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AD8CCBFFFAF923770B817BDC898264FF5160FFD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528419   (734422) от 02.02.2022
-
-Чайки, Ша! - XXX (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734422.jpg" />
-</div>
-
-
-###  Подробнее
-
-✧ 01 - Плохой сюжет (00:04:43)
-✧ 02 - Кто нас воспитал (00:02:44)
-✧ 03 - Мечты (00:00:51)
-✧ 04 - Бомж (00:03:26)(   Читать дальше...   )Жанр: Alternative Rock, UndergroundПродолжительность: 00:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4831E315DD90F2DBABFDEC088D041822EBC26126
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528644   (734440) от 02.02.2022
-
-Reckless Souls - Timeless (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro II (01:45)
-02. Where I Belong (05:40)
-03. All of Nothing (05:14)
-04. Remember N' Forget (04:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D921B8D1B90B098285BB9B4409B1DEADC9C84FA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528217   (734445) от 02.02.2022
-
-Leo Sayer - Northern Songs (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Eleanor Rigby (00:03:15)
-02 - Strawberry Fields Forever (00:03:53)
-03 - Revolution (00:03:42)
-04 - Get Back (00:03:38)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F049CC3521E553476E1BCF7DD02E9ECF12C3D9E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398817   (734762) от 28.07.2020
-
-Ауткаст - Ультра (2020) Deluxe Edition (2CD) [MP3|320 Kbps] <Metalcore, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не забывай (Инструментал)
-02. Один из нас (Инструментал)
-03. Невесомость (Инструментал)
-04. Всё в твоих руках (Инструментал)(   Читать дальше...   )Жанр: Metalcore, Modern MetalПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C8B92D897D51AEDDFC940B41662B951CDC1353
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398881   (734798) от 28.07.2020
-
-AYOKI - Дети Света (2019) [MP3|320 kbps] <Alternative Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я всё разделю с тобой (04:09)
-02. Дети света (04:02)
-03. Выше всех (04:22)
-04. Черновик (03:25)(   Читать дальше...   )Жанр: Alternative Metal, Female VocalПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C1E24049278967BD8DB65D84FD840AA99E0E8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398812   (734860) от 28.07.2020
-
-Eluveitie - Helvetios (2012) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (01:25)
-02. Helvetios (04:01)
-03. Luxtos (03:56)
-04. Home (05:17)(   Читать дальше...   )Жанр: Melodic Death Metal, FolkПродолжительность: 00:59:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC24AD642798CD35F81DAEB8A2D22FD67CECF18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398948   (734868) от 28.07.2020
-
-Borknagar - Origin (2006) [FLAC|Lossless|image + .cue] <Avantgarde, Folk Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Imagery (04:52)
-02. Grains (03:42)
-03. Oceans Rise (06:05)
-04. Signs (01:17)(   Читать дальше...   )Жанр: Avantgarde, Folk Metal, Black MetalПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89693F047403E54040664AB9EDE27A99642874E6
 ```
 
 

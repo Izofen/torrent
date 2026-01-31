@@ -1,3 +1,30 @@
+###  Публикация: 1526674   (738157) от 25.01.2022
+
+Palace - Shoals (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Said It Was Easy (2:10)
+ 02. Shame On You (3:20)
+ 03. Fade (4:27)
+ 04. Gravity (5:28)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E11D84BA0E09B63209E4D60AED1CD4E64EE0D2A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526123   (738793) от 23.01.2022
 
 The Sherlocks - World I Understand (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
@@ -666,33 +693,6 @@ Linkin Park - 9 Albums, 2 EP, 12 LP, 27 Singles (2000-2013) [FLAC|Lossless] <Alt
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215746   (756491) от 27.03.2018
-
-Incubus - Morning View (2001) Epic Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_756491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nice to Know You (4:44)
-02. Circles (4:09)
-03. Wish You Were Here (3:35)
-04. Just a Phase (5:31)(   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD894C2B5F2157BA8C45186F1A72A544013FA96
 ```
 
 

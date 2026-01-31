@@ -1,3 +1,30 @@
+###  Публикация: 1041076   (584472) от 07.08.2016
+
+VA - Easy Morning, Relaxing New Age for a Soft Awakening (2016) [MP3|320 Kbps] <Downtempo, Chillout, New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michi Koerner – Falling Sunbeams
+ 02. Prior Matt – Airglow
+ 03. Bob Holroyd – Engines of Creation
+ 04. Dylan Colby – Save the Planet(   Читать дальше...   )Жанр: Downtempo, Chillout, New AgeПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048216654A391FCB1E0A6997B8751F91C5274D1A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041086   (584473) от 07.08.2016
 
 VA - Bomba Hits. Летний Chart №2 (2016) [MP3|256 Kbps] <Pop>
@@ -662,33 +689,6 @@ VA - Hot Ibiza Dance (2011) [MP3|256 kbps]<Club / Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7478D24335281A57BD420334184A4D9B3D50C4D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918733   (585739) от 16.07.2015
-
-VA - За рулем. Зарубежный (2015) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585739.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jason Derulo - Want To Want Me
-002. Taylor Swift - Style
-003. Sheppard - Sheppard-Geronimo
-004. Galantis - Runaway (U & I)(   Читать дальше...   )Жанр: PopПродолжительность: 06:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE1F2C9EA7C123C9037D4416CDEA199528B7EF1
 ```
 
 

@@ -1,3 +1,333 @@
+###  Публикация: 905817   (647831) от 07.06.2015
+
+Reanimator - Horns Up (2015) [MP3|320 кб/с]<Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Circle Pit
+02. Rush for the Mosh
+03. Tempted By Deviance
+04. Thieves of Society(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A364A83065F2186413427AE81FE06840EA30C3F0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905865   (647832) от 07.06.2015
+
+Vitor Bacalhau - Brand New Dawn (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Woman (4:05)
+02. Gone Too Soon (4:06)
+03. Too Much Of A Good Thing (3:06)
+04. Nicotine (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B12D77108D373C6B0A8CD9C861413A13BF6CDBD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905801   (647834) от 07.06.2015
+
+Kinski - 7 (or 8) (2015) [MP3|320 кб/с]<Psychedelic Rock, Experimental, Post-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647834.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Detroit Trickle Down
+2.Flight Risk
+3.I Fell Like A Fucking Flower
+4.The Needle's Fine(   Читать дальше...   )Жанр: Psychedelic Rock, Experimental, Post-RockПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD78F0A382E1CD14D418DC130F18867AB7A76CD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905859   (647836) от 07.06.2015
+
+Neuschwander - Neuschwander (2015) [MP3|320 кб/с]<Progressive Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647836.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Introduction 02:31
+2.The Thin Air 05:40
+3.Blame It On 04:26
+4.Righteous Universe 06:01(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic RockПродолжительность: 00:51:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61460A1B676478D1FAE4478069053970CAE6F482
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 679487   (647888) от 14.07.2013
+
+Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_647888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Care a Lot (Original Version) [4:05]
+02. Introduce Yourself [1:35]
+03. From Out of Nowhere [3:23]
+04. Epic [4:54](   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:18:12
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032154   (647898) от 06.07.2016
+
+Stonerider - Hologram (2016) [MP3|320 Kbps] <Classic Rock, Psychedelic Rock, Timeless Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepwalking Awake
+02. Hologram
+03. Dayrunner
+04. War, Traffic, and Blind Faith(   Читать дальше...   )Жанр: Classic Rock, Psychedelic Rock, Timeless RockПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F769438B73CDD6876394FA139A77F839A8E09CAD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031820   (647903) от 06.07.2016
+
+VA - 1995 Grammy Nominees (1995) Series Grammy Nominees [APE|Lossless|image + .cue] <Folk Rock, Pop Rock, Blues Rock, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boyz II Men - I’ll Make Love to You
+02. Mary Chapin Carpenter - He Thinks He’ll Keep Her
+03. Sheryl Crow - All I Wanna Do
+04. Bonnie Raitt - Love Sneakin’ Up on You(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, Blues Rock, SoulПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:954AAB94CE9228B054299EBF8B4C6D8AC1D1F495
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517153   (647931) от 01.07.2012
+
+The Forsaken - Beyond Redemption (2012) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647931.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beyond Redemption (3:22)
+2. Only Hell Remains (4:27)
+3. Foul Messianic Grace (4:17)
+4. No Dawn Awaits (3:50)
+5. There Is No God (3:29)
+6. As We Burn (4:24)
+7. Reap As We Have Sown (4:08)
+8. The Light Divine (4:42)
+9. Force Fed Repentance (3:52)
+10. Blessed With Wrath (4:12)Жанр: Melodic Death MetalПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B34B2EC83DB2F19E5E03EB31730A17327B7F6CAC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905825   (647957) от 07.06.2015
+
+Secrets Of The Sky - Pathway (2015) [MP3|320 кб/с]<Post-Metal, Doom Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_647957.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I
+2. Three Swords
+3. II
+4. Angel In Vines(   Читать дальше...   )Жанр: Post-Metal, Doom Metal, Progressive MetalПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C3D9AA587D886322C00831CF708035C706D52E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031916   (648016) от 06.07.2016
+
+Beyond Twilight - For The Love Of Art And The Making (2006) [APE|Lossless|image + .cue] <Heavy Metal, Prog Rock, Symphonic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  In the Eyes of my Soul (First Movement)    00:47
+02.  Creep Evil    00:59
+03.  Sleeping Beauty - The Journey    01:29
+04.  Purity    01:48(   Читать дальше...   )Жанр: Heavy Metal, Prog Rock, Symphonic RockПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A47D50892794E1AD91B528D8021B2DA6058B58
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031982   (648021) от 06.07.2016
+
+Denner - Shermann - Masters Of Evil (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel's Blood
+02. Son Of Satan
+03. The Wolf Feeds At Night
+04. Pentagram And The Cross(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 0:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3DE48356E41F2263B4CA56091D91C8EB1C7CEC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032104   (648022) от 06.07.2016
+
+Twilight - The Edge (1992) Reissue, 1999 [FLAC|Lossless|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Far Beyond the Edge of Sanity    06:12
+02.  Blacklight    04:19
+03.  Salem    06:02
+04.  Twilight    06:12(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C44CB7E57CA8AB52FBDE7A3FF70CE1E72ADD0D56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517573   (648023) от 01.07.2012
 
 The Prophecy23 - Green Machine Laser Beam (2012) [MP3|320 кб/с]<Melodic Death Metal/Thrash Metal>
@@ -376,336 +706,6 @@ Colonel Petrov's Good Judgement - Among Servants (2018) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F350006FD193EF64244D136C79C236B61277F0D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540994   (648537) от 01.04.2022
-
-Dare - Road To Eden (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born In The Storm
-02. Cradle To The Grave
-03. Fire Never Fades
-04. Road To Eden(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5694C9652CBCE0F3367680BA20C9516A843BB388
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 799434   (648601) от 25.06.2014
-
-Souldrainer - Architect (2014) [FLAC|Lossless]<Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Biological Experiments  05:22
-02 - Behind The Face  05:30
-03 - Architect  05:01
-04 - The Release  03:59
-05 - Die Or Surrender  03:59
-06 - Turn Your Back  03:35
-07 - For No Other  03:58
-08 - Nightmare Abduction  05:42
-09 - I Am The One  03:45
-10 - Sorgestjäêrna  04:29Жанр: Melodic Death MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E5A2199F4CF36FAFE40746861A342E150170D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292099   (648629) от 28.03.2019
-
-Yngwie J. Malmsteen - Blue Lightning (2019) [WavPack|Lossless|image + .cue] <Neoclassical Metal, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Blue Lightning
-02 Foxey Lady
-03 Demon's Eye
-04 1911 Strut(   Читать дальше...   )Жанр: Neoclassical Metal, ShredПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0164AC1E85B7A3424C75877F70F1BCE863D7B34
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540868   (648644) от 01.04.2022
-
-The Hellacopters - Eyes Of Oblivion (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reap A Hurricane (3:15)
-02. Can It Wait (1:59)
-03. So Sorry I Could Die (4:21)
-04. Eyes Of Oblivion (3:59)(   Читать дальше...   )Жанр: Hard rockПродолжительность: 00:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDFE19F3273965F32350B0EEE03C9CF14C3BFE43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541070   (648649) от 01.04.2022
-
-КерамикА & Duo RO - Катерок (2022) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648649.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Катерок
-2. Семечки
-3. Шувани (Mедженом)
-4. Палочка сандала(   Читать дальше...   )Жанр: RockПродолжительность: 00:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3BCE095FF97047E7AF676485048CD83A02FC74E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540861   (648651) от 01.04.2022
-
-Dreamtale - Everlasting Flame (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King of Kings (4:53)
-02. Blood of the Morning Star (5:25)
-03. Last Goodbyes (3:22)
-04. Ghostride (6:10)(   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E3A74EAA829985604DC5E6C1D93D19BA45B5B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540871   (648654) от 01.04.2022
-
-Pattern-Seeking Animals - Only Passing Through (2022) Bonus Track Edition [FLAC 2.0|96/24|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everdark Mountain (2:50)
-02. I Can't Stay Here Anymore (6:05)
-03. Time Has a Way (13:15)
-04. Rock Paper Scissors (5:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E6F8ED36991ED22DA239DDD37FC5A23A806074
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540858   (648656) от 01.04.2022
-
-Trick Or Treat - Creepy Symphonies (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trick or Treat (1:07)
-02. Creepy Symphony (4:39)
-03. Have a Nice Judgment Day (4:32)
-04. Crazy (4:17)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A11BDB830027CB3E3AFCC58A1394A5DCE68AD8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141573   (648703) от 11.06.2017
-
-Leon Paul-Phillips - London's Underground (1972) Remastered, 2016, Paisley Press [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escalator
-02. Mind The Doors
-03. Oxford Circus
-04. Ealing Broadway(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9C2714F9389C7BDF6376CE7DC94330F6607EC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292127   (648737) от 28.03.2019
-
-Long Distance Calling - Boundless (2018) Limited Edition [FLAC|Lossless|image + .cue] <Instrumental Post Metal, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648737.jpg" />
-</div>
-
-
-###  Подробнее
-
-Long Distance Calling - Немецкая пост-рок-группа, образовавшаяся в 2006 году в Мюнстере. Одна из немногих групп, удачно соединяющая, казалось бы, противоположные жанры рока: меланхоличный, медленно развивающийся, заставляющий пропустить сквозь себя каждую ноту, пост-рок; тяжелый, перегруженный гитарными рифами прогрессивный метал, в некоторых треках чувствуется сильное (   Читать дальше...   )01. Out There (9:12)
-02. Ascending (4:59)
-03. In the Clouds (6:01)
-04. Like a River (4:57)(   Читать дальше...   )Жанр: Instrumental Post Metal, Post RockПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25493081158FA5862E4752EDDCAF69BA94C2DD91
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292229   (648753) от 28.03.2019
-
-Ravanna - АМОК (2019) [MP3|320 kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пыль (feat. Treya) (02:56)
-02. Порталы (feat. Тони Раут) (02:57)
-03. Небо солнце (04:05)
-04. Сопротивление (feat. Кэш) (03:58)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845CD339C3915A9008EBF0B9DEB3F8EE9098E8E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540851   (648762) от 01.04.2022
-
-Wolf - Shadowland (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dust (4:43)
-02. Visions for the Blind (5:38)
-03. The Time Machine (6:11)
-04. Evil Lives (3:34)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AAB7299FCE37F3392AF7887702F73FC045A8971
 ```
 
 

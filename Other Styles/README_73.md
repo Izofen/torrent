@@ -1,3 +1,192 @@
+###  Публикация: 1568798   (457793) от 10.08.2022
+
+Tyler Bates - Sucker Punch / Запрещенный прием (Complete Motion Picture Score) (2011) [FLAC|Lossless|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1m1_Sweet Dreams (Are Made Of This)
+02. 1m2_Lennox House
+03. 1m3_Where Is My Mind Part I
+04. 2m1_Asleep(   Читать дальше...   )Жанр: ScoreПродолжительность: 1:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F70E2FF6A90705B3D0CCB51C24F62B32898846
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941995   (457968) от 29.09.2015
+
+Snatam Kaur - Light Of The Naam. Morning Chants (2014) [MP3|320 кб/с]<New Age, Vocal, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waah Yantee - Creativity
+02. The Mul Mantra - Inner Truth
+03. Sat Siree Siree Akaal - Beyond Death
+04. Rakhay Rakhanahaar - Protection(   Читать дальше...   )Жанр: New Age, Vocal, MantrasПродолжительность: 01:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B9E901DEE4F4C02E6FA0E31D014E0F1468F1B2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408279   (458008) от 11.09.2020
+
+Christopher Phillips - Piano Chill: Songs of the Eagles (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best of My Love (4:12)
+ 02. Peaceful Easy Feeling (4:08)
+ 03. Hotel California (4:29)
+ 04. Take It to the Limit (3:33)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905EEABC3110A3A5E51347826F11B0E144EEB1F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162340   (458912) от 01.09.2017
+
+Тюргэн Кам - Ahoi (2011) [MP3|320 Kbps] <Rock, Folk, Modern Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Легенда
+02. Энесай (Ahoi)
+03. Самагалдай
+04. Моя тайга(   Читать дальше...   )Жанр: Rock, Folk, Modern EthnicПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75BC3E69794625E5324AEB03F72679FF86303B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246839   (459168) от 12.09.2018
+
+Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Valse
+02 Serenade
+03 Faulkner's Sleep (D-Moll)
+04 Field(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D559BFFAB296EFE38205C72FEE8D161D5ED7AE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568718   (459623) от 09.08.2022
+
+The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Lossless|tracks + .cue] <Instrumental, Easy listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello
+02. Tonight I Celebrate My Love
+03. Body Talk
+04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29F21CBC21CCFF5153BC32737E8FEDB7CD97DEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941759   (460057) от 28.09.2015
+
+Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_460057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Call
+02. Setting Off From Kathmandu
+03. First Trek: Base Camp
+04. Arriving At The Temple (feat. The Monks Of Tharig Monastery)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0529A82C2E2BC88C5060A436FAF6291655999752
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246682   (461479) от 11.09.2018
 
 Michael Whalen - Kiss the Quiet (2018) [MP3|320 Kbps] <New Age, Piano, Instrumental>
@@ -506,190 +695,6 @@ Alash - Achai (2017) [MP3|320 Kbps] <World, Ethnic, Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20DD878490ACA81889FA8C8D55DE2E40EDE88316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161394   (465639) от 29.08.2017
-
-Craig Pruess & Anuradha Paudwal - Sacred Chants Of Shakti (2012) [MP3|320 Kbps] <Meditative, Ambient, Chants>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shakti Prayer (25:23)
-02. Ripples Of Beauty (29:00)Жанр: Meditative, Ambient, ChantsПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94140A35F1076464024036E9690B830C148AB6C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161473   (465644) от 29.08.2017
-
-Ottmar Liebert - Slow (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Rain	4:47
-02.	Lalo Cura	5:59
-03.	Haiku4	0:23
-04.	Butterfly Dream	4:29(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98A69919B84286094F909B5A0D4BBD57E054FF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407418   (466395) от 07.09.2020
-
-The Mavericks - In Time (2013) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In Your Arms Again
-02. Lies
-03. Born To Be Blue
-04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A099F83FA7C38A13098746D355E7C53964240B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407299   (466396) от 07.09.2020
-
-The Mavericks - En Español (2020) [MP3|320 Kbps] <Latin, Country, Tejano>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Sitiera
-02. Recuerdos
-03. No Vale la Pena
-04. Poder Vivir(   Читать дальше...   )Жанр: Latin, Country, TejanoПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC35407B8D019938034182567EEFB738C983FD76
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407419   (466398) от 07.09.2020
-
-The Mavericks - In Time (2013) [MP3|320 Kbps] <Folk, World, Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In Your Arms Again
-02. Lies
-03. Born To Be Blue
-04. Come Unto Me(   Читать дальше...   )Жанр: Folk, World, CountryПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43D449F042CE44C44752F8602AE03C55BE953A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940731   (466746) от 25.09.2015
-
-The London Studio Orchestra & Singers - Memory (20 Romantic Themes) (1991) [FLAC|Lossless]<Instrumental, Easy listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. Tonight I Celebrate My Love
-03. Body Talk
-04. All Time High(   Читать дальше...   )Жанр: Instrumental, Easy listeningПродолжительность: 01:09:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417C6CCC4DE995D3C92BA9AAF04AB03361C860EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548433   (466764) от 18.09.2012
-
-ALTERSON - Entrance (2010) [MP3|320 кб/с]<Психоактивная аудиопрограмма>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Психоактивная аудиопрограммаПродолжительность: 00:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC1BEC724F23CE3EF9E6F5239FE3D87D6B7B908
 ```
 
 

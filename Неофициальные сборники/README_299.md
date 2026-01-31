@@ -1,3 +1,30 @@
+###  Публикация: 934478   (502410) от 05.09.2015
+
+VA - Club Music Hits September Novation (2015) [MP3|320 кб/с]<Bigroom, Progressive, Tropical, Dutch, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doumea - Cranberry (Radio Edit) 03:08
+02. Axwell And Ingrosso - Sun Is Shining (M-22 Remix) 06:03
+03. Thomas Newson - Summer Vibes (Original Mix) 04:36
+04. The Stars - Pure (Radio Edit) 03:26(   Читать дальше...   )Жанр: Bigroom, Progressive, Tropical, Dutch, ElectroПродолжительность: 06:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A39D8B2F4DD3F3FC50DBD7394D25F061FA76E1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934482   (502521) от 05.09.2015
 
 VA - For All Lovers vol. 4 (2014) [MP3|320 кб/с]<Pop, Electronic, Pop-Rock, Dancepop, Soul, House, R&B>
@@ -727,33 +754,6 @@ VA - Лучшие Рок - Дуэты (vol.2) (2012) [MP3|320 кб/с]<Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1796776FBB038403CE262B251AE394A2CDA66AA0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933874   (504418) от 03.09.2015
-
-VA - Super Hits Of Russian Dance & Club House [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Dancе, Club House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вирус - Счастье (Dj Tarantino Remix) [04:09]
-02. Краски - Весна (Dj Shulis Aka Sergey & Ночной Мир Project Remix) [04:47]
-03. Демо - Солнышко (Mexx Beat 2014 Remix) [03:45]
-04. Инфинити - Алло (Tony Kart & Mike Prado Remix) [03:56](   Читать дальше...   )Жанр: Dancе, Club HouseПродолжительность: 02:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51791D49C9477483C658DEA5332DFD1A67DEF8EE
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 933874   (504418) от 03.09.2015
+
+VA - Super Hits Of Russian Dance & Club House [Compiled by Zebyte] (2015) [MP3|320 кб/с]<Dancе, Club House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_504418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вирус - Счастье (Dj Tarantino Remix) [04:09]
+02. Краски - Весна (Dj Shulis Aka Sergey & Ночной Мир Project Remix) [04:47]
+03. Демо - Солнышко (Mexx Beat 2014 Remix) [03:45]
+04. Инфинити - Алло (Tony Kart & Mike Prado Remix) [03:56](   Читать дальше...   )Жанр: Dancе, Club HouseПродолжительность: 02:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51791D49C9477483C658DEA5332DFD1A67DEF8EE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933841   (504602) от 03.09.2015
 
 VA - Autumn Party (2015) [MP3|320 кб/с]<Trance, Dance, House, Synthpop, Club>
@@ -698,33 +725,6 @@ VA - Sexy Trance #45 (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4AE6D0F74111310FC1A46A56E14F54F70E0DA80
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316426   (506719) от 25.07.2019
-
-VA - Shazam Хит-парад Russia Top 100 Июль (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506719.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.HammAli & Navai - Прятки (3:13)
-2.Billie Eilish - Bad Guy (3:14)
-3.Meduza feat. Goodboys - Piece Of Your Heart (2:32)
-4.Элджей feat. Era Istrefi - Sayonara детка (2:44)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:13:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3CDA1E97C57B780D3BA44DD7052498C48C7CEF
 ```
 
 

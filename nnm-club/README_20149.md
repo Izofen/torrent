@@ -1,667 +1,699 @@
-###  Публикация: 1388625   (786583) от 07.06.2020
+###  Публикация: 1205228   (783788) от 09.02.2018
 
-Phoniks - Time Goes By (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz Hop, Soul>
+VA - Valentines Day Love Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Sopper & Herr Schmidt – Wolken Im Wind 6:44
+02. Aida Moniz – Les Etoiles Au Dessus De La Tour Eiffel 3:47
+03. Lorenzo Casanova – Vila Mimosa (Make Love Not War Boogie Version) 4:47
+04. Ku You – Sandhand 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0746571AA677A8F2D9064241937EE3E8686314F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205273   (783789) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. США — Канада (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783789.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB644D297975526DD3B3BE6209580757322C8A72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204992   (783790) от 09.02.2018
+
+Г.Я. Нейман | Внутренняя торговля СССР (1935) [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783790.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работа тов. Неймана излагает историю торговли в СССР. Вначале работы дается теоретический очерк, характеризующий природу торговли в СССР, после чего рассматривается ее развитие на различных этапах. Большое внимание уделено характеристике советской торговли на современном этапе и задачам ее развертывания во втором пятилетии.
+
+Автор основательно знакомит читателя с (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:123B35D0AF20545977A4D74C7A44BE0396571537
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205265   (783791) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Финляндия — Швейцария (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783791.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:05 МСК
+Обзорная трансляция
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:41:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0569D61E9E135EAA517CC273B265F4AB6790FA8D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205359   (783792) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Южная Корея — Китай (08.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783792.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 14:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB67F9999003C27E30383B72B9FABE3D58ECFD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205016   (783793) от 09.02.2018
+
+VA - Dance Party (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tritonal  -  Call Me (SJ Remix Remix)  4:04
+02.  Jaki Nelson & Arcando  -  Don't Say That (Original Mix)  2:58
+03.  Corderoy  -  Touch Your Face (Original Mix)  3:31
+04.  Lash  -  I'm Gonna Be There (Andy Bianchini Remix)  2:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205353   (783794) от 09.02.2018
+
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. Китай — Швейцария (08.02.2018) WEB-DL [EN]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783794.jpg" />
+</div>
+
+
+###  Подробнее
+
+08 февраля 2018 года, четверг. 03:05 МСК
+XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
+Кёрлинг.
+Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF637A7A04ED33D22FC22525D28535B3BDBDDE3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205114   (783795) от 09.02.2018
+
+VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oscar Bandersen  -  Running (feat. Bruce) (Original Mix)  3:35
+02.  Aussteiger  -  Zusammenkunft (Original Mix)  5:52
+03.  Willie Graff  -  Second Sun (Original Mix)  7:05
+04.  Troels Hammer  -  The Human Tree (feat. Mariana Sadovska) (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204895   (783796) от 09.02.2018
+
+VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cicada - The Things You Say (Dirty South Remix) (3:47)
+02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
+03.Mason - Exeeder (Original Mix) (2:56)
+04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205075   (783797) от 09.02.2018
+
+VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Enrico Donner  -  Quote Of The Day (Original Mix)  5:45
+02.  Beatgridded  -  Deep Emotions And Back (Original Mix)  7:21
+03.  Cane Garden Quartet  -  Close To You (Original Mix)  5:30
+04.  Dusty Deckk  -  Acid Lounge (Original Mix)  5:54(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204927   (783798) от 09.02.2018
+
+Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Loneliness	4:41
+02.	Relax	6:30
+03.	Green Eyes	4:37
+04.	Night	4:44(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204873   (783799) от 09.02.2018
+
+VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dizzee Rascal - Dirtee Disco (4:46)
+02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
+03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
+04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205339   (783800) от 09.02.2018
+
+VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Downtempo, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Caner Soyberk  -  Coffee Shop (Original Mix)  3:49
+02.  Oxala  -  Trance Jungle Percussion (Original Mix)  3:41
+03.  Nicola Semprini  -  Biriani (Original Mix)  2:57
+04.  Percussioney  -  Batuqueiro (Instrumental)  3:51(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204909   (783801) от 09.02.2018
+
+James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 1) (01:08:21)
+02. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 2) (01:07:36)
+03. Cristoph - Slowly Burning (feat Jem Cooke) (07:05)
+04. Dario D'Attis & Sven Tasnadi - I Need (07:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205011   (783802) от 09.02.2018
+
+VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alpha Carpet  -  Megabytes (Red Zone Mix)  2:33
+02.  Jin Tonique  -  Not Easy (Mark Kay's Deep Mix)  2:45
+03.  Diamond Marquees  -  Nightshadows (Frank Tee's Night Beats Mix)  2:47
+04.  Johnny Divine  -  Noises (Dean Franklin's Royce Mix)  3:21(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:257EC21F6E82A477380419815F846488CCCAB8F1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205215   (783803) от 09.02.2018
+
+VA - A Taste Of Kandi Summer (2008) [FLAC|Lossless|tracks] <House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aaron Ross feat. Gia Mellish - Love Potion (4:03)
+02.Wez Clarke & Maxime Hardcastle feat. The Lovely Laura on Sax - Another Chance (Richard Earnshaw Mix) (5:03)
+03.Notus feat. Shena - Still in Love (Original Club Mix) (5:17)
+04.Steve Haines - Be with You (5:38)(   Читать дальше...   )Жанр: HouseПродолжительность: 01:14:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8C0EC2C87C98256C45391977B3DD3BA21782E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205400   (783804) от 09.02.2018
+
+VA - Air Texture Volume V (Selected By Spacetime Continuum and Juju & Jordash) (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Downtempo>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786583.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Time Goes By (2:35)
-02. A Simple Answer (2:29)
-03. One Time ft. DJ Eveready (2:11)
-04. Later Days (2:17)(   Читать дальше...   )Производство: Don't Sleep RecordsЖанр: Hip-Hop, Jazz Hop, SoulПродолжительность: 00:39:41
+01. Spacetime Continuum - Flux (06:40)
+ 02. Move D - Gli Ragazzi Di Baia Di Puolo (09:05)
+ 03. Fred P. - Vortex (06:26)
+ 04. Patrice Scott - Synchronicity (06:05)(   Читать дальше...   )Жанр: IDM, Ambient, DowntempoПродолжительность: 02:57:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C0791A7A5D2FCCEFAC6EB3D6CC2629BF70B86E2
+magnet:?xt=urn:btih:488CFA2B61B1438EABA2131B973B1E756336D165
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388755   (786584) от 07.06.2020
+###  Публикация: 1204984   (783805) от 09.02.2018
 
-Джулия Пайк | Последняя чародейка (2020) [EPUB]
+VA - Contemporary Chillhouse (A Journey Into Deephouse Music) (2018) [MP3|320 Kbps] <Chillhouse, Deep House, Downtempo>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786584.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Двенадцатилетняя Рейн живёт вместе с мамой в мире, который буквально пропитан волшебством. Её мать владеет особой древней магией дыхания, которая защищает их деревню от ужасного проклятия. Но Рейн не очень любит магию, её раздражают стопки свитков и мелкие существа, которые охраняют книгу заклинаний её матери и вечно огрызаются на неё. Но однажды её мать исчезает, (   Читать дальше...   )Жанр: Фэнтези, Книги про волшебниковПеревод: Мария Чомахидзе-ДоронинаФормат: EPUB
+01.  Sixth Sector  -  Reverse Server (Deep & City Mix)  2:40
+02.  Salina  -  Lost Angels (South London Mix)  2:48
+03.  Rox Waltford  -  Red Clouds (Deephouse Mix)  2:50
+04.  Electronique 44  -  Robot 151 (High Soul Mix)  2:44(   Читать дальше...   )Жанр: Chillhouse, Deep House, DowntempoПродолжительность: 01:32:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:476469F2CB707308BA178291A2E46C420A22FD2E
+magnet:?xt=urn:btih:8D9A727B3A6DCFF744548260817F92F0760222D4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388488   (786585) от 07.06.2020
+###  Публикация: 1204969   (783806) от 09.02.2018
 
-VA - German Top 100 Single Charts 05.06.2020 [MP3|320 Kbps] <Pop>
+VA - James Haskell's Back Row Beats Workout (Mixed by James Haskell) (2018) [MP3|320 Kbps] <Progressive House, Deep House, Tech House>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786585.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783806.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. AK Ausserkontrolle x Bonez MC - In meinem Benz
-02. Pashanim - Airwaves
-03. Apache 207 - Fame
-04. KC Rebell & Summer Cem - FLY(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:09
+01.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 1)  1:08:22
+02.  James Haskell  -  James Haskell's Back Row Beats Workout (Continuous DJ Mix 2)  1:07:36
+03.  Cristoph & Jem Cooke  -  Slowly Burning (Original Mix)  7:06
+04.  Dario D'Attis & Sven Tasnadi  -  I Need (Original Mix)  7:21(   Читать дальше...   )Жанр: Progressive House, Deep House, Tech HouseПродолжительность: 05:05:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF22E7EC3798B16083E0A415767127332FB81549
+magnet:?xt=urn:btih:AE4A429F243B54FC46FDD375FC2B554C01877D29
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388637   (786586) от 07.06.2020
+###  Публикация: 1205356   (783807) от 09.02.2018
 
-Пётр Малков (авт.-сост.) | Пятидесятница (день Святой Троицы) и сошествие Святого Духа. Антология святоотеческих проповедей (2019) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антология святоотеческих проповедей на праздник Пятидесятницы (день Святой Троицы) и сошествие Святого Духа, подготовленная патрологом Петром Малковым, включает произведения разных традиций и эпох, византийских, латинских и русских авторов — от святителя Григория Нисского до святителя Луки Крымского. Издание предваряет вводная статья, призванная в ясной и доступной (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3CC804C496B50207EC75A6AE448B804A77E438
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388760   (786587) от 07.06.2020
-
-Линда Чэпман | Друзья звезд. Магия зеркала (2019) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Майя всегда верила в то, что волшебство существует. Конечно, она никогда и никому в этом бы не призналась ― в конце концов ей уже двенадцать.
-Но одна невероятная встреча, и у Майи не только появился настоящий верный друг ― огненно-рыжий, пушистый лисёнок с необыкновенными глазами, ― ей открылся целый мир, звёздный мир. Сможет ли она с кем-нибудь (   Читать дальше...   )Жанр: Фэнтези, Приключения для детейПеревод: Елена СмотроваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5779EAA8E2D179F7300CFFF8F03C9024905ADD31
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388663   (786588) от 07.06.2020
-
-Галина и Олег Ивановы - Признание  (2005) [FLAC|Lossless|tracks + .cue]<Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня о судьбе
-02. Не будем горевать
-03. Моя случайная
-04. То прощай, то здравствуй(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64660CCDD50D5BE659F354C972D328F37D4BFCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388763   (786589) от 07.06.2020
-
-Twinkle Twinkle Little Rock Star - Lullaby Versions of Lynyrd Skynyrd (2015) [MP3|192 Kbps]<Детская музыка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sweet Home Alabama
-02.Free Bird
-03.Simple Man
-04.Gimme Three Steps(   Читать дальше...   )Жанр: Детская музыкаПродолжительность: 00:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2AC723821A0E51E8A9A6A1AC9AC49F218B6C310
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388621   (786590) от 07.06.2020
-
-Die Kreatur - Panoptikum (2020) [FLAC|Lossless|Web-DL|tracks] <Gothic Metal, Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIE KREATUR (4:12)
-02. Kälter als der Tod (4:20)
-03. Unzertrennlich (4:07)
-04. Durch die Nacht (4:37)(   Читать дальше...   )Производство: Napalm Records Handels GmbHЖанр: Gothic Metal, Industrial MetalПродолжительность: 01:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F811172E7381121A938BADCA71809ABA1B79A0C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388683   (786591) от 07.06.2020
-
-Martin Grech - Hush Mortal Core (2020) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maelstrom Spark (05:53)
- 02. Auras Awol (07:24)
- 03. Hush Mortal Core (03:39)
- 04. Mothflower (06:10)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8524588A2D87A2F1BFC89D88AFBD26E1AC7393D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388660   (786592) от 07.06.2020
-
-Виктор Светлов - За дружбу, за любовь (2004) [FLAC|Lossless|tracks + .cue]<Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, FolkПродолжительность: 01:00:50Трэклист: 01. Таборный напев
-02. Баро форо Кишенево
-03. Юности года
-04. Соколовский хор(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3FFB78FE535268A8FA99EDE244A5342C36DA025
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388756   (786593) от 07.06.2020
-
-Карен Инглис | Тайное озеро (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том и Стелла переехали из шумного солнечного Гонконга в унылый дождливый Лондон. Раньше у них было множество друзей, а в новом доме они никого не знают. От скуки Том решил разгадать секрет соседского пса Гарри. Тот регулярно исчезает на несколько дней и частенько возвращается насквозь промокший, будто купался в озере, хотя вокруг нет ни одного водоема.
-Том и Стелла (   Читать дальше...   )Жанр: Фантастика, Городское фэнтези, Приключения для детейПеревод: Д.О. СмирноваФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41C142FDBD7445E17588E2C20020AAB12D77991
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388769   (786594) от 07.06.2020
-
-Станислав Олефир | Когда я был маленьким, у нас была война… [сборник] (2017) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786594.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станислав Олефир – из того поколения, которое играло не в «войнушку» – только в «войну»: не могло легко мысленно относиться к этому слову. Победу они праздновать не умели – как можно радоваться дню, унёсшему жизнь отца, крёстного, деда, дяди? Но при всей их серьёзности «младшие дети войны» сохранили о страшных годах не одни лишь пугающие воспоминания: остались в (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказыФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:033FD35ACE3F61B046EF43CE82DD1EC8A169C152
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388780   (786595) от 07.06.2020
-
-Powderfinger - One Night Lonely (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bless My Soul (04:35)
- 02. Sunsets (03:50)
- 03. My Happiness (04:38)
- 04. On My Mind (03:17)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3DD898D09647CCF451656BF4618576472B4CB8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388752   (786596) от 07.06.2020
-
-Covet - Technicolor (2020) [MP3|320 Kbps] <Post-Rock, Instrumental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good morning (03:08)
- 02. Atreyu (05:26)
- 03. Parachute (06:14)
- 04. Predawn (feat. Phillip Jamieson) (03:28)(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D5C1B1CD504C38A64BE7EED36D9036408C91F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388709   (786597) от 07.06.2020
-
-Westerman - Your Hero is not Dead (2020) [MP3|320 Kbps] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drawbridge (02:10)
- 02. The Line (03:17)
- 03. Big Nothing Glow (03:22)
- 04. Waiting On Design (04:35)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AFBB117EB697C4570C4FE5632DA21FD946CE356
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388772   (786598) от 07.06.2020
-
-Станислав Олефир | Иду по тайге (2020) [EPUB]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир, населённый росомахами, филинами и куликами, кажется таким же фантастическим, как и вымышленная вселенная. Редкий счастливчик-взрослый видел бурундука в лесу, слышал стук желтоголового дятла, вдыхал аромат можжевельника у неровной тропы. Что уж говорить о ребёнке – для него тайга всё равно что Нарния!
-Книга «Иду по тайге» – это краткие зарисовки, байки и советы; (   Читать дальше...   )Жанр: Проза для детей, Повести и рассказы о природе и животныхФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46C5E6B6C20B68D38C03A80664D7ED0ED1BDF59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388571   (786599) от 07.06.2020
-
-Mustafa Donmez (Mustafa Dönmez) - Gizemli Yolculuk (2009) [FLAC|Lossless|tracks + .cue] <Fusion, Modern Electric Blues>
+Chet Baker - But Not For Me (1982) 2003, Random Chance [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786599.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - Begonvil Bahçesi - 6:09
-2 - Kelebeğin Günlüğü - 6:22
-3 - Gizemli Yolculuk - 9:07
-4 - Gökkuşağının Çocuğu - 5:18(   Читать дальше...   )Жанр: Fusion, Modern Electric BluesПродолжительность: 01:19:39
+01. Lament [06:55]
+02. Four [04:37]
+03. Line for Lyons [06:33]
+04. Ellen David [08:36](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Mainstream JazzПродолжительность: 00:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9B9B6E42145F8C8F02D106523A3C8BB7696D8BE
+magnet:?xt=urn:btih:4193048FF9AF6538EBD1B8FCBFFCCA7F5F124667
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388776   (786600) от 07.06.2020
+###  Публикация: 1204999   (783808) от 09.02.2018
 
-Софья Прокофьева | Девочка-свеча (2019) [EPUB]
+VA - Dudes Of House (30 Groovy House Tunes) Vol.1 (2018) [MP3|320 Kbps] <House>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786600.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На праздник в замок Абламор съезжаются почтенные гости со всех уголков королевства – они спешат поздравить чету Эрилайдов с рождением девочки, которой предстоит стать принцессой. Но на шумное пиршество прибывает человек, преследующий совсем другие цели. Злодей убивает короля и крадёт его новорождённую дочь.
-Эвисоль не обычная принцесса, она буквально светится, излучая (   Читать дальше...   )Жанр: Сказки для детейФормат: EPUB
+01.  Sean Sines  -  It Ain't Right (Apollo & Les Afrique Remix)  5:15
+02.  Miss Luna  -  Daytona Race (Paul Lomax Mix)  8:08
+03.  Oz & Edmond Dantes  -  No Way Back (Vocal Mix)  7:43
+04.  Muzzaik  -  Work It (Alexey Romeo & Julia Luna Remix)  7:09(   Читать дальше...   )Жанр: HouseПродолжительность: 03:19:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0922049B69B00A95144F3B04556D98D5A0CAE5EE
+magnet:?xt=urn:btih:8A71A5E08B04D0B55FAF975AD33B24A2999A597A
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388633   (786601) от 07.06.2020
+###  Публикация: 1205282   (783809) от 09.02.2018
 
-Николай Коняев | На земле Святой Троицы (2007) [FB2, EPUB]
+VA - We Love House - Winter Edition (2018) [MP3|320 Kbps] <House, Tech House>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786601.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В своих очерках, путевых записках, написанных в ходе поездок по Санкт-Петербургской епархии, я стремился запечатлеть десятилетний процесс воссоздания епархиальной глубинки из небытия, стремился запечатлеть то подвижничество, которое не под силу было вести отдельным батюшкам и прихожанам, как бы замечательны и православны они ни были, если бы они не сознавали себя (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+01.  Solardo  -  On The Corner (Original Mix)  7:10
+02.  Mike Mago & Tiggi Hawke  -  Dangerous Behaviour (Extended VIP Mix)  4:18
+03.  CASSIMM & Sam Divine  -  What God Has Chosen (Original Mix)  6:02
+04.  Robosonic & Ferreck Dawn  -  Nine To Phife (Original Mix)  5:14(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 04:10:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC352DCBEA675E68992E7F519523CA6E07342E54
+magnet:?xt=urn:btih:222DEFFC5F4BD6603FED7C88C68B37537C3E9D9D
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388762   (786602) от 07.06.2020
+###  Публикация: 1205392   (783810) от 09.02.2018
 
-Линда Чэпман | Друзья звезд. Ловец желаний (2019) [EPUB]
+Roman Slavka - Material That Has Been Stored For A Long Time (2017) CleanError Records [FLAC|Lossless|WEB-DL|tracks] <Experimental, IDM, Abstract, Ambient>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786602.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Иногда не так-то просто принять своих друзей такими, какие они есть.
-И дело сильно осложняется, если каждый владеет магией, а победить зло можно только сообща.
-Сумеют ли друзья преодолеть разногласия и объединить свои силы? Узнай в волшебном продолжении книги «Друзья звёзд. Магия зеркала»!Жанр: Фэнтези, Приключения для детейПеревод: Елена СмотроваФормат: EPUB
+01. Morning Earth Hour (05:20)
+ 02. Evening Earth Hour (06:56)
+ 03. Creeping Wave (08:22)
+ 04. Rotation Pull (06:04)(   Читать дальше...   )Жанр: Experimental, IDM, Abstract, AmbientПродолжительность: 00:30:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95712EB1B461E66A34BEEC3C7AE35F7D96ACE3CC
+magnet:?xt=urn:btih:3CAA4E77DEC0643B6572D814F7FCD040B07C2EC3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388750   (786603) от 07.06.2020
+###  Публикация: 1205327   (783811) от 09.02.2018
 
-Сто к одному (07.06.2020) WEBRip [H.264] [MP4|1280x720]
+VA - Balearic House Classics Vol.2 (25 All Time House Anthems) (2018) [MP3|320 Kbps] <House, Classic House, Dance>
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786603.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:39
+01.  Erick Morillo & Eddie Thoneick feat. Shawnee Taylor  -  Live Your Life (Eddie Thoneick Dub)  6:25
+02.  Jerry Ropero & Denis The Menace feat. Jaqueline  -  Coracao (Denis & Jerry's New Bangin Mix)  7:00
+03.  Francesco Diaz & Karl Frierson  -  Say A Little Prayer (Raul Rincon Peaktime Mix)  7:58
+04.  Jonathan Ulysses & Pryce Oliver feat. Futuristic Polar (   Читать дальше...   )Жанр: House, Classic House, DanceПродолжительность: 02:39:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAA2C13D59FF54478FECEFCD0001EAB7908C6FE6
+magnet:?xt=urn:btih:9F83576C9341CA73F44A60EB9AE54003B39FE788
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388657   (786604) от 07.06.2020
+###  Публикация: 1205374   (783812) от 09.02.2018
 
-Dizzy Gillespie Big Band - Showtime at the Spotlite, 52nd Street, New York City, June 1946 (2008) 2CD, Uptown Records [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+VA - Traumfanger Vol.1 Sophisticated Electronica (2018) [MP3|320 Kbps] <Deep House, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786604.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Shaw 'Nuff/I Waited for You [1:51]
-02. Our Delight [3:25]
-03. Groovin' High [4:46](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:36:17
+01.  Luca Guerrieri  -  Faithful (Original Mix)  6:06
+02.  Boss Axis  -  The Sun (Original Mix)  7:25
+03.  Dave Wincent  -  Family Affairs (Original Mix)  6:18
+04.  Ultravizion  -  Luode (Original Mix)  7:58(   Читать дальше...   )Жанр: Deep House, DowntempoПродолжительность: 02:29:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7523009504773F0CCFB686B707E2CC62ACF3664
+magnet:?xt=urn:btih:B68C208E6D3B182F27EABF342319AED920D64750
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387002   (786605) от 07.06.2020
+###  Публикация: 1205405   (783813) от 09.02.2018
 
-Сто к одному (30.05.2020) WEBRip [H.264] [MP4|1280x720]
+VA - Fourth Listen (2016) People Can Listen [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Experimental>
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786605.jpg" />
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:40:07
+01. the_empath - Autoverse (05:30)
+02. Alpturer - Kibo (03:50)
+03. Perfluxe - Illusion (03:52)
+04. Algesis - Misuse (05:47)(   Читать дальше...   )Жанр: IDM, Abstract, Downtempo, ExperimentalПродолжительность: 01:02:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB14254B09F4E8D67FF1DA50F1E58D21D9C504F5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388659   (786606) от 07.06.2020
-
-Peters Drury Trio - Backbeat (2001) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backbeat [3:43]
-02. They Can't Take That Away from Me [5:02]
-03. My Funny Valentine [7:14]
-04. Centerpiece [4:48](   Читать дальше...   )Жанр: Vocal Jazz, Mainstream JazzПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D317C3BCB9C1A4DFBA68540D5CB6AEE8A3EBBFB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387296   (786607) от 07.06.2020
-
-Сто к одному (31.05.2020) WEBRip [H.264] [MP4|1280x720]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786607.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94745A64BC96AED57B0C92128AD25173E1D3CF90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375496   (786608) от 06.06.2020
-
-#СидЯдома (2020) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8)
-
->>След.
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786608.jpg" />
-</div>
-
-
-###  Подробнее
-
-В то время как весь мир поет песни с балконов и устраивает вечеринки по видеосвязи, Геннадий Борисович, владелец сети хозяйственных магазинов в Подольске, пытается спасти свой бизнес. А его жена не может (или не хочет?) уезжать с Бали домой. Бывший полковник ФСО Серёга Дергач окопался на даче с запасом алкоголя и поставляет противоречивые данные от своих сомнительных (   Читать дальше...   )Производство: Россия / PREMIER StudiosЖанр: комедияРежиссер: Ольга ФренкельАктеры: Борис Дергачёв, Анна Котова, Олеся Железняк, Анна Михалкова, Юлия Александрова, Александр Робак, Гоша Куценко, Михаил Кремер и др.Продолжительность: ~00:20:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F64E23DFE6C6DAFEC0DF141F002023AB88F1CE0
+magnet:?xt=urn:btih:D1340F25629CB20BA224DC7B0D6AED17F8B912ED
 ```
 
 

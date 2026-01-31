@@ -1,3 +1,30 @@
+###  Публикация: 1406752   (471000) от 05.09.2020
+
+VA - Alternative World: Indie Pop-Rock Music (2020) [MP3|320 Kbps] <Indie, Alternative, Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471000.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nolan Potter's - Nightmare Forever
+002. Guise - Brother In Arms
+003. Pleil - Offener Kanal
+004. Honey Cutt - Vacation(   Читать дальше...   )Жанр: Indie, Alternative, Pop-RockПродолжительность: 08:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D191ECCBAFC134196875AF2C1908E7E0D41F9A8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057808   (471151) от 30.09.2016
 
 VA - Хит Атака 7 (2016) [MP3|256 Kbps] <Pop>
@@ -680,33 +707,6 @@ VA - The Best Of Miсrofunk [Compiled by Zebyte] (2016) [MP3|320-416 Kbps] <Miс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:891E5F35CFD3735C810FB6FE30EFB7EE27570C8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939497   (473208) от 22.09.2015
-
-Suzi Quatro - The best of the Best (2015) [MP3|320 кб/с]<Rock, Hard Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 15 Minutes Of Fame
-02. 48 Crash
-03. All Shook Up
-04. Back To The Drive(   Читать дальше...   )Жанр: Rock, Hard Rock, Glam RockПродолжительность: 06:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB62D76DFCAD1B7358C19F8352DD01A743EDA1F6
 ```
 
 

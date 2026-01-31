@@ -1,3 +1,30 @@
+###  Публикация: 1222175   (687491) от 28.04.2018
+
+VA - Ibiza Kickoff (2018) [MP3|320 Kbps] <House, Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Jay - Your Own Way (feat. Sarah Brickel)
+02. Danceheat - I'll Be by Your Side (Extended Mix)
+03. Loungeside - No Longer Used (Alternative Mix)
+04. Tiziara - Save Me (Extended Mix)(   Читать дальше...   )Жанр: House, Funky, Club HouseПродолжительность: 04:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF281FE7A15E0C206460A325CD8BA419A70637B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 506467   (687528) от 06.06.2012
 
 VA - Инструментальная музыка (2012) vol. № 65 [MP3|320 кб/с]<Instrumental>
@@ -703,33 +730,6 @@ VA - Русская Дискотека 80-90-Х Remix DJ (2012) [MP3|256 kbps]<D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA59E9905AEC1C8F96A8C2A729A9F8EFAA5B86FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134528   (689225) от 15.05.2017
-
-VA - Bass Killer 12 (2017) [MP3|320 Kbps] <Dubstep, Trap, Electro House, Big Room>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack & Jay Karama — Diamonds (Extended Mix) (3:21)
-02. Bassnectar & ATLiens — Interlock (3:39)
-03. Borgeous vs. Riggi & Piros — Feel So Good (3:23)
-04. CID feat. Conrad Sewell — Secrets (BROHUG Remix) (3:11)(   Читать дальше...   )Жанр: Dubstep, Trap, Electro House, Big Room
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDDDE86554E9CBEB93CB640FA6551CC3565CEC2
 ```
 
 

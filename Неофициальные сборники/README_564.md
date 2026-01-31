@@ -1,3 +1,30 @@
+###  Публикация: 1111341   (848845) от 05.03.2017
+
+VA - Музыкальный презент на Europa Plus. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_848845.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Леля - Грешная 3:43
+002. Nova - Кометы 3:43
+003. Жаклина - Мой Талисман 3:35
+004. Катерина Красильникова - Пусть Станет Раем 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076D50C88C702010162E1DEDC2B286873A180D0E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111329   (848851) от 05.03.2017
 
 VA - Я слушаю шансон выпуск № 8 (2017) [MP3|256 Kbps] <Шансон>
@@ -668,33 +695,6 @@ VA - Exclusive DJ Pack (03.01.2014) [MP3|320 кб/с]<Dance, Nu Disco, House, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA077F2FBB4A6EB3AAEB773C6C40D03D618441BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001708   (850560) от 30.03.2016
-
-VA - Spring Break (2016) [MP3|320 кб/с] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_850560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Dirty Disco Feat. Debby Holiday-Was That All It Was (Wayne G & Porl Young Remix) 07:48
-02 R3hab & Headhunterz-Won't Stop Rocking (Extended Mix) 04:08
-03 Housecrusherzzz-Beast (Radio Edit) 02:56
-04 Env Feat. Teresa Furtado-I'll Be Ok (Original Mix) 03:07(   Читать дальше...   )Жанр: HouseПродолжительность: 08:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:328EA08D47047DB81CA9278370E244F7AB13D849
 ```
 
 

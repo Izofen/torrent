@@ -1,3 +1,36 @@
+###  Публикация: 550480   (453624) от 24.09.2012
+
+VA - Dance Миссия Осени. Зарубежный (2012) [MP3|256 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453624.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Laurentiu Duta feat. Andreea Banica - Shining heart
+002. Jay Sean - Im All Yours
+003. Miralva - Venga A La Noche (Radio Edit)
+004. Serenity & Spyer Feat. Tevin - Club Rockin Beats (Ti-Mo Remix Remix Edit)
+005. Professor Green feat. Emeli Sande - Read All About It (Cahill Explicit Radio Edit)
+006. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
+007. Mick Lion - International Love (Smithee Mix)
+008. Shogun - Lotus (Original mix edit)
+009. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia
+010. Jennifer Lopez feat. Flo Rida - Goin In(   Читать дальше...   )Жанр: DanceПродолжительность: 05:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA0FBFA85A973AF90636E764B51B9D29331F70D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551051   (453630) от 24.09.2012
 
 VA - Avto Club September Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
@@ -686,33 +719,6 @@ VA - Toolroom Amsterdam (2016) [MP3|320 Kbps] <Electronic, Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:233DD53D896238490893D24661A7DC706612CA08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060363   (455306) от 07.10.2016
-
-VA - Electro Hipnotique: Dance Session (2016) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Galantis - Peanut Butter Jelly (Genairo Nvilla Remix)
-002. Alekseev Vs. Alexander Holsten - Hold Me (Artem Night Mash Up)
-003. Alex Versetta Feat. Dj Agios - Fortuna (Original Mix)
-004. Alan Walker - Faded(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2656848E27B67B18ED940BF9FA0E25864C8F8BDF
 ```
 
 

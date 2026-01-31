@@ -1,3 +1,30 @@
+###  Публикация: 1461468   (1021764) от 10.04.2021
+
+VA - Music News vol.90 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021764.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Zolita feat. Kailee Morgue - Bedspell (02:50)
+ 002. ЯD - Катим-Катим Со Дворов (02:29)
+ 003. Alana O. - Пока Ты Спишь (02:46)
+ 004. Aly & AJ - Symptom of Your Touch (03:15)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 07:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B1B67E11A569AA158C797E22FBFA6886073FBFF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460989   (1021770) от 10.04.2021
 
 VA - TOP 40 Ремиксы PROMODJ АПРЕЛЬ 2021 (2021) [MP3|320 Kbps] <EDM, Dance, Electro, Pop, Trance, House, Tech House>
@@ -668,33 +695,6 @@ VA - CrossFit (2021) [MP3|320 Kbps] <Rap, Dirty Dubstep, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6017CB7560E87FFB5865FA94C472D64743A8DC3C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460570   (1022617) от 05.04.2021
-
-VA - Gravity Grave: Psy Trance Set (2021) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футуристический образ обложки музыкального микс-компилата Gravity Grave в полной мере передает настроение всего альбома. Треки демонстрируют бескомпромиссный и энергичный звук, чистоту и лаконичность идеи. В альбоме также присутствуют эксперименты с ритмом и элементы аналогового техно-саунда.001. Psychorustle - Gravity Grave
-002. Dr. Strangefunk - A.M Burger
-003. Skizologic And Vertical - Surreality Check
-004. Plastic Reality - The Key Of The Universe(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 12:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:239E9C3DEC9EEE5FD769F27F42DC381EAE3FA0F3
 ```
 
 

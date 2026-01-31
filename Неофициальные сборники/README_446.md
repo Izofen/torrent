@@ -1,3 +1,30 @@
+###  Публикация: 1401423   (709270) от 10.08.2020
+
+VA - Pop Dance Foam Party (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_709270.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tomorrow - Fairy Of Shampoo
+002. Kristofer Astroem - Ode To...
+003. Daniel O'donnell - Crystal Chandeliers
+004. Isaac Dunbar - Boy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2ADA57ACF7D2BC9C0F6FC99D6AF1797F9472915
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401416   (709284) от 10.08.2020
 
 VA - Deep House Background Sound (2020) [MP3|320 Kbps] <Deep House, Electro, Club>
@@ -665,33 +692,6 @@ Splattafish - Celestial Plague (2016) [MP3|320 кб/с] <Death Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A43673A124F216F1EB3167257AFCD30B3B1F55
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025563   (710186) от 12.06.2016
-
-VA - Tropical House Crystal Weather (2016) [MP3|249-320 кб/с] <Funky, Future House, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_710186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roland Clark - Soul Meditation (Main Mix) [06:14]
-02. Javi Del Valle - All Good Things (Dub Mix) [06:50]
-03. Overloque - The Fugitive (Original Mix) [07:43]
-04. Roger Sanchez - Morning Prayer (Bontan Remix) [06:23](   Читать дальше...   )Жанр: Funky, Future House, House, DanceПродолжительность: 06:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD8A1DC502C148AA870A14D185ED73BA08A2016
 ```
 
 

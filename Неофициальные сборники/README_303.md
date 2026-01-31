@@ -1,3 +1,30 @@
+###  Публикация: 932276   (510191) от 28.08.2015
+
+VA - A Chill House Affair Vol. 5 (60 Fantastic Summer Tunes) (2015) [MP3|320 кб/с]<Chill House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_510191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Queen Quartett - Night at the Copacabana (3:24)
+02. Jerry Gonzales - Keep in Mind (Deeper & Deeper) (3:42)
+03. Alan Brooker - Muddy Waters - Deep House Mix (5:21)
+04. The Houselovers - Sooner Than Later - Deep & Deep Mix (5:20)(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 04:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A3F263154849BEC5EBA9B5F8E47CE585A8DFA6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932076   (510194) от 28.08.2015
 
 VA - Poolside Ibiza: Kolombo, Autograf (2015) [MP3|320 кб/с]<Electronica, Tech House, Disco, Nu-Disco>
@@ -702,33 +729,6 @@ VA - eXXXplicit chill (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32BDC5B38245994264696ECE853BB42AD479B52E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931392   (511838) от 26.08.2015
-
-VA - Acoustic Chill Songs (2015) [MP3|320 кб/с]<Instrumental, Acoustic, Guitar>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_511838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - I'm Gonna Be (500 Miles)
-02. Dean Dyson - Mrs. Robinson
-03. Luchia - Desperado
-04. Zara James - In the Air Tonight(   Читать дальше...   )Жанр: Instrumental, Acoustic, GuitarПродолжительность: 01:12:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EDDCE3591DC64FF33AC6CC28E07F642DF1B53B
 ```
 
 

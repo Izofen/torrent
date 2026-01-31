@@ -1,3 +1,30 @@
+###  Публикация: 1214727   (762984) от 23.03.2018
+
+VA - Блатная Песня Года (2018) [MP3|256-320 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_762984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Круг и Михаил Круг - Тебе, моя последняя любовь
+02. Магамет Дзыбов - У любимой женщины грустные глаза
+03. Ирина Круг, Алексей Брянцев - Заходи ко мне во сне
+04. Татьяна Маркова - Платье белое(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA6C2910E1528843C1AABD7788404172E8215F4C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214845   (762987) от 23.03.2018
 
 VA - Rock & Metal Collection от ALEXnROCK часть 2 (2018) [MP3|320 Kbps] <Rock, Metal>
@@ -668,33 +695,6 @@ VA - Elements Trance: Extended Mix (2019) [MP3|320 Kbps] <Trance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35D3D70995219E34250871D2F5F7D77E759D9C54
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280144   (763653) от 01.02.2019
-
-VA - Absolute Dance Winter 2019 [MP3|320 Kbps] <Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_763653.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Teknova - Katyusha 2K19 (Melbourne Bounce Mix) 3:16
-002. Adam K & Soha - Need To Feel Loved (Extended Mix) 5:32
-003. Triplo Max - Shadow 2:57
-004. Scooter - Move Your Ass! (Noisecontrollers Remix) 3:27(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 06:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836D1D0445EE56B9E5D2F0DAB507F846CC55052F
 ```
 
 

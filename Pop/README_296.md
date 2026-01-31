@@ -1,3 +1,84 @@
+###  Публикация: 1118346   (812896) от 25.03.2017
+
+Alekseev - Пьяное солнце (2016) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_812896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Океанами Стали 3:37
+02. Чувствую Душой 3:40
+03. Пьяное Солнце 3:37
+04. Больно Как В Раю 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5065C2A20A371EA19517BA28554FC732100566B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1118216   (813026) от 25.03.2017
+
+James Blunt - The Afterlove (2017) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Better (3:40)
+ 02. Bartender (3:13)
+ 03. Lose My Number (3:28)
+ 04. Don't Give Me Those Eyes (4:05)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14DE7C5D4944D0FA1F24FAC215A8DF902D821EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008748   (813108) от 19.04.2016
+
+Uma2rman (Уматурман, Ума2рман) - Пой, весна! (2016) [FLAC|Lossless|tracks + .cue] <Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пой, весна! (3:42)
+02. Один на один (3:28)
+03. Мои красавицы (3:12)
+04. Камон (3:16)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7C2405138D2592D3A5C930DABE61AF3D1A4DBED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382884   (813275) от 14.05.2020
 
 Ken Laszlo - Greatest Hits & Remixes (2016) 2CD [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, 80s>
@@ -620,87 +701,6 @@ VA - Хитовый Romantic (2017) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB32CC745B2E63B436B582EED3162F882D867239
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072608   (815021) от 07.01.2018
-
-MinaCelentano (Mina & Adriano Celentano) - Le migliori (2016) Deluxe [FLAC|Lossless|tracks + .cue] <Pop, Italo Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il solo è stupendo (00:28)
-02. I grandiosi (00:23)
-03. Non si vedrà nessuno (00:47)
-04. Di spalle (00:30)(   Читать дальше...   )Жанр: Pop, Italo Pop, Pop RockПродолжительность: 00:08:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDC779CFD5C8779F1E49051D9BA5A1A47819AE04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008624   (815105) от 18.04.2016
-
-Леонид Агутин - Просто о важном (2016) [MP3|320 кб/с] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Отец рядом с тобой
-02. Севастополь
-03. Птица чёрная
-04. Ты плачешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8874B95DFB1B3E854ACE06AD0FFDDD889BEF497A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843484   (815108) от 07.01.2018
-
-Adriano Celentano - Golden Hits (2013) 3CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buonasera Signorina (2:47)
-02. Non Esiste L'Amor (2:14)
-03. Blue Jeans Rock (2:24)
-04. Ciao Ti Diro (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4005E4ECC95F6FB8404CDF117335501FEF5D56E6
 ```
 
 

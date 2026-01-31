@@ -1,3 +1,36 @@
+###  Публикация: 636282   (904178) от 29.03.2013
+
+VA - Real Disco (2013) [MP3|320 кб/с]<Disco, Eurodisco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arabesque - Midnight Dancer
+02. Baccara - Yes Sir, I can Boogie
+03. Dschinghis Khan - Dschinghis Khan
+04. ABBA - I Do, I Do, I Do, I Do, I Do
+05. Bananarama - Venus
+06. Boney M. - Daddy Cool
+07. Taco - Puttin' On The Ritz
+08. Baccara - Ay, Ay Sailor
+09. Arabesque - Keep the Wolf from the Door
+10. Boney M. - Rasputin(   Читать дальше...   )Жанр: Disco, Eurodisco, PopПродолжительность: 04:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC941EDC7CE7C383FFB87509A523DAC40C672110
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099544   (904216) от 01.02.2017
 
 VA - Новинки С  Разных Популярных MP3 сайтов Выпуск #57 (2017) [MP3|256~320 Kbps] <House, Pop, Club, Dance>
@@ -672,33 +705,6 @@ VA - Dub House (2020) [MP3|320 Kbps] <Dub House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC9C85FFC5C82E9985E4F0303C0BC03AC9F7B8C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099517   (905313) от 01.02.2017
-
-VA - Ресторан Кураж от радио Шансон. Версия № 2 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_905313.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сборная Союза - Безответная Любовь 3:56
-002. Александр Талин - Арина 3:39
-003. Виктория Калистратова - Ну Прости Меня 3:39
-004. Александр Комиссар - Когда Предают 3:41(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EACE588399BD32342B6156930447D54855F124F
 ```
 
 

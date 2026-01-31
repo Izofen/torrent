@@ -1,3 +1,30 @@
+###  Публикация: 982610   (947115) от 04.02.2016
+
+VA - The Annual Chillout Sessions (29 January, 2016) [MP3|320 кб/с] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chillout Company - Boutique Salinas [06:28]
+02. Eddy Chrome - In Love (Lounge Remix) [06:11]
+03. The Soul Elephant - Nobody [05:15]
+04. My Island - Maledives Beach Lounge (Buddha in a Bar Mix) [06:01](   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 03:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5E5754AE688DEFCF6F3D3EDDB6280D1C790AC4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090144   (947309) от 06.01.2017
 
 VA - Drum & Bass Annual 2017 [MP3|320 Kbps] <Drum And Bass>
@@ -662,33 +689,6 @@ Koan - Eddur: Second Scroll (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient Dub, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA1DB2F794BF11EFD9FEA68E0D4284376FBADD66
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981452   (949865) от 02.02.2016
-
-VA - OWSLA Worldwide Broadcast (2016) [MP3|320 кб/с] <Dubstep, Future Bass, Trap>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_949865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GTA feat. Sam Bruno - Red Lips (Skrillex Remix)
-02. Getter & Ghastly - 666!
-03. Wiwek feat. Audio Bullys - Rebels
-04. DJ Snake - Middle (Miija Remix)(   Читать дальше...   )Жанр: Dubstep, Electro, Future Bass, Jungle, TrapПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9263634202E5FB9FE86D7A76F688E08FDBDC32C
 ```
 
 

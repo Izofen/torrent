@@ -1,3 +1,351 @@
+###  Публикация: 1004736   (836887) от 07.04.2016
+
+Stevie Nimmo - Sky Won't Fall (2016) [FLAC|Lossless|image + .cue] <Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chains of Hope (05:02)
+02. Roll the Dice Again (04:34)
+03. Change (04:59)
+04. Running On Back to You (07:06)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FA3CF8A3271E9A1376E4FBFD1896E0F234E3E74
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004946   (836900) от 07.04.2016
+
+Кали Юга - Дороги (1997) [MP3|320 кб/с] <Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. От порога (03:54)
+02. Холодный ветер (04:02)
+03. Если бы я был (03:44)
+04. Кто Я (05:34)(   Читать дальше...   )Жанр: РокПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0AC6594ADA08DAEC3A3141636B18CA96E0CA0D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309985   (837157) от 18.03.2011
+
+Сектор Газа - Лучшее. Золотая Коллекция 2CD (2006) [MP3|320 kbps]<Punk-rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc №1
+1. Гуляй, мужик! (3:06)
+2. Демобилизация (3:55)
+3. Вечером на лавочке (4:03)
+4. Колхозный панк (3:36)
+5. Ночь перед рождеством (4:25)
+6. Бомж (3:33)
+7. Мент (2:25)
+8. Русский мат (2:24)
+9. Частушки (5:33)(   Читать дальше...   )Жанр: Punk-rockПродолжительность: 02:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C0454152833A783F986608C912E296D56DDF54
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310077   (837322) от 18.03.2011
+
+Ляпис Трубецкой - Agitpop Live (2011) [MP3|192 kbps]<Ska Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -Жанр: Ska Punk, RockПродолжительность: 01:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2AAD9C199943CE3A7631486DDF98BAAFD5F07C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 310242   (837381) от 18.03.2011
+
+Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ballad Of Mona Lisa [03:46]
+02. Let's Kill Tonight [03:33]
+03. Hurricane [04:25]
+04. Memories [03:25]
+05. Trade Mistakes [03:36]
+06. Ready To Go (Get Me Out Of My Mind) [03:37]
+07. Always [02:33]
+08. The Calendar [04:43]
+09. Sarah Smiles [03:33]
+10. Nearly Witches (Ever Since We Met…) [04:16]Жанр: RockПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE0CA3E9DF728D989424A351639C5DB9A6D1E9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379659   (837578) от 30.04.2020
+
+Trivium - What the Dead Men Say (2020) Japan Bonus Tracks [FLAC|Lossless|tracks + .cue] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IX (01:59)
+02. What The Dead Men Say (04:46)
+03. Catastrophist (06:28)
+04. Amongst The Shadows & The Stones (05:40)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9B1EAD12F53760994B041E25FB70D59C2433D86
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379824   (837691) от 30.04.2020
+
+VA - NOW Alternative Classics (2020) [MP3|320 Kbps] <Indie & Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.E.M. - The One I Love
+02. The Killers - All These Things That I've Done
+03. The Wallflowers - One Headlight
+04. Massive Attack - Protection(   Читать дальше...   )Жанр: Indie & AlternativeПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5DA294E74E485E01EE09FE28334EF13CB0275D4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500974   (837860) от 08.10.2021
+
+Кипелов - Часы Судного Дня (2021) EP [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Огненная дуга (06:50)
+ 02. Часы Судного дня (05:31)
+ 03. Лунный ковчег (05:15)
+ 04. Крик тишины (05:23)Жанр: Heavy MetalПродолжительность: 00:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49F0E153CA286858D2F994A4734BB6F222109FB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113550   (837947) от 11.03.2017
+
+Rammstein - 5/4 B-Sides (2002) Unofficial Release [MP3|320 Kbps] <Industrial Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837947.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 5/4
+2. Mutter (Sono's Inkubator Mix)
+3. My Name Is... (Rammstein & Eminem)
+4. Wilder Wien (Demo Version)(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80934A3E0FD6747A8B8EDAB1B5E6AB6F5FAA113C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501085   (837990) от 08.10.2021
+
+Кипелов - Часы Судного Дня (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Огненная Дуга
+02. Часы Судного Дня
+03. Лунный Ковчег
+04. Крик ТишиныЖанр: Heavy MetalПродолжительность: 00:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB78BBCD2C1E40BF89F2D373F80E8E22E2E5D8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501113   (837992) от 08.10.2021
+
+Рабфак 2.0 - Живая классика (2021) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837992.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Наш дурдом
+2. Раскачивать лодку
+3. Просрали страну
+4. Хватит кормить Канзас(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036E464608AEEF21FAC7C603660C4A62B5075F87
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 193983   (838018) от 20.04.2010
+
+Кирпичи - 11 альбомов (1996-2005) [MP3|64-320 kbps] <Alternative/Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Года выпуска: 1996-2005Альбомлист:
+1996 - Кирпичи тяжелы
+1999 - Смерть на рэйве
+2000 - Капиталиzм 00
+2002 - Сила ума
+2004 - Let's Rock
+2005 - Царский альбомъ
+2006 - 7
+2008 - Камни
+2009 - Главклуб(   Читать дальше...   )Жанр: Alternative/RapcoreПродолжительность: 00:59:15
+
+01 | Интро | 00:16
+02 | Джедаи | 03:06
+03 | Сколько из окна? | 04:10
+04 | Верь мне | 02:18
+05 | В загон | 02:58
+06 | В огонь | 02:21
+07 | Ира | 02:56
+08 | Never Again | 02:52(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113265   (838083) от 11.03.2017
 
 Marilyn Manson - Lest We Forget: The Best Of (2004) [FLAC|Lossless|tracks+.cue] <Alternative, Industrial>
@@ -372,329 +720,6 @@ ToxicRose - это молодая группа, созданная в Швеци
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5EDE3BC3841A6E21EA22626A985F6A059A3A85D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501096   (838238) от 08.10.2021
-
-Voidfallen - The Atlas Of Spiritual Apocalypse (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Atlas Of Spiritual Apocalypse
-02. Remnants Of The Heart
-03. The Hollows
-04. The Daughters(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99EBD161F8F84672CF31D75263DE8D7C4362E29
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501091   (838240) от 08.10.2021
-
-Omission - Worship What You Fear (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somber As Retaliation
-02. Scavenger Vultures
-03. Enfeebled By Vice
-04. Crowned For Dust(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC12E4853458FCBFF80DB891A2DE63FF6D1CF6D7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500991   (838241) от 08.10.2021
-
-Antiche Pescherie Nel Borgo - Si No Sabir...Tazir! (2021) [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corte Sconta 6:12
-02. Tocheti Pocheti 5:15
-03. Soriso Nel Vedru (Por l’Homo Feliz) 10:35
-04. Il Sono Lemuel 7:59(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00: 59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6945625CA2F7AAC80FED63795B63728A4FF86B45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501070   (838243) от 08.10.2021
-
-Spectral Lore - Eterofotos (2021) [FLAC|Lossless|image + .cue] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atrapos
-02. The Golden Armor
-03. Initiation Into The Mystery
-04. The Sorcerer Above The Clouds(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625622A04551EA479183B84E379ED4729EAE75E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501083   (838244) от 08.10.2021
-
-Houston - IV (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Is The Night
-02. You're Still The Woman
-03. Hero
-04. A Lifetime In A Moment(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:019CD13AF8A604F471950B05B1D8D5AD22CFFDC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004481   (838297) от 06.04.2016
-
-Cheap Trick - Bang Zoom Crazy … Hello (2016) [MP3|320 кб/с] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart On The Line (4:19)
-02. No Direction Home (3:44)
-03. When I Wake Up Tomorrow (3:27)
-04. Do You Believe Me? (4:46)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0265AF0166374AE9F75A3AD749C47411B9E93A16
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004357   (838393) от 06.04.2016
-
-Lisa Lystam Family Band - Give You Everything (2016) [FLAC|Lossless|tracks] <Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give You Everything (4:37)
-02. Changes (4:27)
-03. Mean Man (3:53)
-04. Worship Me (4:19)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E177E3D3970AA20847388224616CB267C425026B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112517   (838407) от 11.03.2017
-
-Regina Spektor - Soviet Kitsch (2004) [FLAC|Lossless|image + .cue] <Art Rock, Alternative Rock, Folk Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ode to Divorce
-02. Poor Little Rich Boy
-03. Carbon Monoxide
-04. Flowers, The(   Читать дальше...   )Жанр: Art Rock, Alternative Rock, Folk Rock, PunkПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A602611D9F07F8ADA8DE9EB61BBBA83F20AECE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113321   (838421) от 11.03.2017
-
-David Fonseca - Bowie 70 (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Absolute Beginners (Feat. Tiago Bettencourt) (5:29)
-02. Modern Love (Feat. Manuela Azevedo) (4:41)
-03. Let's Dance (Feat. Afonso Rodrigues) (5:23)
-04. Life On Mars? (Feat. Antonio Zambujo) (4:59)(   Читать дальше...   )Жанр: Alt. RockПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2623B2CE54087CCEC7F18689EADC224552DA7709
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113029   (838532) от 11.03.2017
-
-Bad Company - Live 1977 & 1979 (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock, Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сформированная в 1973 году команда "Bad Company" являлась настоящей супергруппой, поскольку все ее участники ранее зарекомендовали себя в других известных проектах. Так, главные зачинщики всего дела Пол Роджерс (вокал) и Саймон Кирк (ударные) снискали себе славу во "Free", гитарист Мик Ральфс пришел из "Mott The Hoople", а басист Боз (   Читать дальше...   )Список:
-CD1 - Live at The Summit, Houston, Texas, U.S.A - May 23, 1977
-CD2 - Live at The Empire Pool, Wembley, London, England - March 9, 1979Жанр: Blues Rock, Classic Rock, Hard RockПродолжительность: 02:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D986782B0F0D88F0E1C142A36E3938B612C9748A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878915   (838825) от 17.03.2015
-
-Awolnation - Run (2015) [FLAC|Lossless] <Alternative Rock, Indie, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (04:02)
-  02. Fat Face (03:33)
-  03. Hollow Moon (Bad Wolf) (04:19)
-  04. Jailbreak (04:41)(   Читать дальше...   )Жанр: Alternative Rock, Indie, ElectronicПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CD9FB93F0F0006E8DF196924B1963FFE9485E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 878935   (838935) от 17.03.2015
-
-Celldweller - End of an Empire. Chapter 03: Dreams (2015) [FLAC|Lossless]<Industrial Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_838935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Faction 07 (Instrumental)  00:31
-02 - Good L_ck (Yo_'re F_cked) (Instrumental) 03:36
-03 - Just Like You (Instrumental)  05:04
-04 - Faction 09 (Instrumental)  03:21(   Читать дальше...   )Жанр: Industrial Metal, ElectronicПродолжительность: 01:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9315DA9145B2F1F8D660F55124A795792912D185
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1301185   (586264) от 10.05.2019
+
+Lydia Ainsworth - Phantom Forest (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamonds Cutting Diamonds
+02. Tell Me I Exist
+03. Can You Find Her Place
+04. Edge Of The Throne(   Читать дальше...   )Жанр: Electronic, AlternativeПродолжительность: 00:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8298C3D82D6A12697EF22377498CDEE5236A51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040354   (587459) от 04.08.2016
 
 SONOIO - Blue / Red (2010-2011) 2 Albums [FLAC|Lossless|tracks] <Electronica, Alternative Rock, Synthpop>
@@ -668,33 +695,6 @@ Du Blonde - Lung Bread for Daddy (2019) [FLAC|Lossless|tracks + .cue] <Indie Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8022220989266180AE4068EF95411D86E103242D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298933   (601637) от 29.04.2019
-
-Steve Mason - About the Light (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Trip-Hop,Downtempo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America Is Your Boyfriend (03:42)
-02. Rocket (04:58)
-03. No Clue (03:10)
-04. About The Light (04:26)(   Читать дальше...   )Жанр: Indie Rock, Trip-Hop,DowntempoПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905521F0AAACBB1F2DB85A8F8F140A25A513B097
 ```
 
 

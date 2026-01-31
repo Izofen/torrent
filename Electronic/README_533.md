@@ -1,3 +1,30 @@
+###  Публикация: 1436867   (1042728) от 02.01.2021
+
+David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
+02. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
+03. Jack Back - Performance
+04. David Guetta & MORTEN & Lovespeake vs. Fatboy Slim - Save My Life vs. Sunset (Bird Of Prey) (David Guetta & MORTEN Edit)Жанр: Electro House, Progressive HouseПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACFEC223EC5D67EE2458F110FAA7F0A44EE70D9F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436915   (1042774) от 02.01.2021
 
 Koan - Munchausen Trilemma (Side A.B) (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, Deep House>
@@ -665,33 +692,6 @@ Hammock - Love in the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric, Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EA782727E4073B40052FD9E93DCCC6DD6D7D8CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607684   (1043936) от 27.01.2023
-
-VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno, Organic House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1043936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nick Newman -  A Happening  (6:39)
-02.  Oliver Harper -  Strawberry Thief  (8:12)
-03.  Dastan  -  Observer  (6:51)
-04.  Bodaishin, Thales Senses -  Chants Of Whales  (7:44)(   Читать дальше...   )Жанр: Melodic House & Techno, Organic HouseПродолжительность: 01:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA39D72570894420467DD8F681B294C9EDA04A9F
 ```
 
 

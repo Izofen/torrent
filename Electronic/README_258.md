@@ -1,3 +1,30 @@
+###  Публикация: 1566172   (486388) от 27.07.2022
+
+VA - Oriental Beauty: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_486388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prana Tones - Eastern Voices (Original Mix) (3:44)
+02. J. R. Haim - Wanderlust (4:47)
+03. Michael E - The Fourth Element (Original Mix) (5:49)
+04. Marga Sol - Je T'aime (Original Mix) (5:17)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED80184AAE4BFDB3AC4170FE1C3CEAC885B7A5D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566155   (486403) от 27.07.2022
 
 VA - Uncles Music "Bestseller 003" (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House, Deep House, Indie Dance>
@@ -674,39 +701,6 @@ VA - Chilled House (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73E7A6086A86D3E1A27D89FB966E0A67EA297C62
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543212   (488708) от 08.09.2012
-
-VA - Erotic Affairs Porn Lounge Sensations (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rainy Days (Porn Remix)  - Key of Dreams
-02. Zelig (G Point Mix)  - L Style
-03. Love That Gone Away (Lingerie Mix)  - South Soul
-04. Tonodi (Lesbo mistress Mix)  - Mag Two Ensemble
-05. Sun (High Heels Version) - Lounge Emperor
-06. Zevenar (Bitch Mix)  - Paul P.
-07. Magic Love (Woman Mix)  - Bortolotto & Tornello
-08. Sole Luna Stelle (Godiva Mix)  - All Red
-09. The Black Parade (Night Mix)  - Mark Sia
-10. Spy Tramp (Blow Job Mix)  - Stenwood Age(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 01:37:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72AB35C6D71B4DAFCE5BA2A427510540A930912
 ```
 
 

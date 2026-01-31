@@ -1,3 +1,30 @@
+###  Публикация: 1006423   (828966) от 11.04.2016
+
+VA - Sports Dance Music (2016) [MP3|320 кб/с] <Progressive Trance, Dance Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_828966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond Ft. Richard Bedford - Sun & Moon
+02. Dj Sammy - Sunlight (Driftwood Remix)
+03. Vincent De Moor - Fly Away (Cosmic Gate Remix)
+04. Tiesto Ft. Bt - Loves Comes Again(   Читать дальше...   )Жанр: Progressive Trance, Dance ElectroПродолжительность: 05:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AF64A8346A6FF171C443340D68A08B80C6FDED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006170   (828976) от 11.04.2016
 
 VA - Музыкальный кекс по Русски (2015) [MP3|192-256 кб/с] <Pop, Dance>
@@ -668,33 +695,6 @@ VA - NEW от Виталия72  (2) (2020) [MP3|256 Kbps] <Поп, Дансе>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE360B5EF2BB78B01AC57BB5D8B80D52BD9A3F8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005900   (830810) от 10.04.2016
-
-VA - Жажда скорости (2016) [MP3|320 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Полина Гагарина - A Million Voices (DJ Favorite & DJ Lykov Remix)
-02. Coldplay - Adventure Of A Lifetime (Astero Radio Remix)
-03. Slider & Magnit feat. Penny Foster - Another Day In Paradise (Dj Jurbas Remix)
-04. Aqua - Barbie Girl (Markiza Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36A80E8D8E94ACAD4215E7CB9DFF0CAF22B20D6
 ```
 
 

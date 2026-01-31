@@ -1,3 +1,84 @@
+###  Публикация: 1385710   (797191) от 25.05.2020
+
+VA - Summer Pop 100 (2020) Explicit [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797191.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Veronicas - Untouched 4:15
+002. Duran Duran - Rio (U.S. Remix) 5:25
+003. Urban Bossa Club - Goosebumps 3:04
+004. LCD Soundsystem - Daft Punk Is Playing At My House 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:27:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590D57E01F495A2CB7D7DC7C4F5DA3D30CE68792
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385472   (797197) от 25.05.2020
+
+Heaven42 - Dancing And Moving (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Dance>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing And Moving (Original Power Mix) (7:16)
+02. Dancing And Moving (Album Mix) (5:07)
+03. Dancing And Moving (Single Mix) (3:34)
+04. Dancing And Moving (Steve Burbon Remix) (5:06)(   Читать дальше...   )Жанр: Euro-Disco, DanceПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8D805298AA342702DD6E0FB9EAF5CB1E3EEDF6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385609   (797204) от 25.05.2020
+
+Mel & Kim - F.L.M. (1987) LP [MP3|320 Kbps] <Electronic, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. F.L.M. (3:58)
+02. Showing Out (5:12)
+03. Respectable (5:43)
+04. Feel A Whole Lot Better (4:25)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BCEE8349576CA305E2D6AB79885E044EC21A420
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011023   (797541) от 26.04.2016
 
 Samantha Fox - The Hits Collection (1989) Compilation [FLAC|Lossless|image + .cue] <Pop, EuroDisco>
@@ -614,87 +695,6 @@ VA - Айсберг (1999-2001) 6CD [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9A095947434F093073AD6E9776DB3BBE62C96F7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122278   (799212) от 04.04.2017
-
-Arpeggio - Love And Desire - The Best Of (1994) CD [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love And Desire (8:58)
-02. Let The Music Play (12:43)
-03. Runaway (5:46)
-04. Spellbound (6:43)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC03BB1F962150FA75A7F3E6D5A9D2A066A547E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273801   (799402) от 03.01.2019
-
-Daddy Cool Kids - School's Out (2009) [MP3|320 Kbps] <Electronic, Disco, Europop, Euro House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не раскрученный, из-за развода с женой, проект продюсера Бони-М, Джиллы, Милли Ванилли и др. - Фрэнка Фариана с участием его дочери Янины.01. Show Me What You've Got (3:33)
-02. School's Out (Radio Version) (3:49)
-03. Pink Lemonade (3:41)
-04. Yummy Yummy (3:55)(   Читать дальше...   )Жанр: Electronic, Disco, Europop, Euro HouseПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1BF925E91F9F3035E4D785B95EC566E886390D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273725   (799410) от 03.01.2019
-
-Sonic - Seasons (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight
-02. Missing
-03. Airplane Mode
-04. Cabin Fever(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E702E44567141C1C54460F03F05F14824F38C07
 ```
 
 

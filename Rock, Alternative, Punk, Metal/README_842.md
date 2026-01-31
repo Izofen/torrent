@@ -1,3 +1,327 @@
+###  Публикация: 1040208   (587361) от 04.08.2016
+
+Ocean Jet - Vengeance (LP)/Echoes (EP) (2013-2015) [MP3|320 Kbps] <Indie Rock, Electronic, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587361.jpg" />
+</div>
+
+
+###  Подробнее
+
+2015 - Vengeance (LP):
+01. In Red
+02. Unfettered
+03. Ghost(   Читать дальше...   )Жанр: Indie Rock, Electronic, SynthpopПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A43B3F87046E8FD0983EE351F3D5A583540E55FC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039870   (587422) от 04.08.2016
+
+Sheryl Crow - Sheryl Crow (1996) Special Edition [FLAC|Lossless|image + .cue] <Pop Rock, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587422.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. - Maybe Angels [00:04:54]
+02. - A Change Would Do You Good [00:03:49]
+03. - Home [00:04:50](   Читать дальше...   )Жанр: Pop Rock, CountryПродолжительность: 01:04:23 + 0:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0066FCAB8B71D7B9C4A4A12F90C53B78C693E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040282   (587456) от 04.08.2016
+
+Paul Gilbert - Stone Pushing Uphill Man (2014) [FLAC|Lossless|image + .cue] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Working for the Weekend (Loverboy)
+02. Back in The Saddle (Aerosmith)
+03. I Got The Feelin' (James Brown)
+04. Goodbye Yellow Brick Road (Elton John)(   Читать дальше...   )Жанр: Hard Rock, InstrumentalПродолжительность: 0:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AA8EFF0E062EC8A3534E4EC23F413061A99CCDC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040354   (587459) от 04.08.2016
+
+SONOIO - Blue / Red (2010-2011) 2 Albums [FLAC|Lossless|tracks] <Electronica, Alternative Rock, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сольный проект Alessandro Cortini - клавишника Nine Inch Nails.2010 - Blue:
+01. Just Me
+02. Suck Up Everything
+03. Not Worth Remembering(   Читать дальше...   )Жанр: Electronica, Alternative Rock, SynthpopПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7879887DC9B1275B3FEF64E5C92087354E10D2B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040175   (587463) от 04.08.2016
+
+Joe Stump - The Essential Shred Guitar Collection (2009) Compilation [FLAC|Lossless|image + .cue] <Neoclassical Metal, Instrumental, Shred>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attack of the Killer Swans    04:37
+02. In for the kill    06:06
+03. Paganini's Revenge    05:25
+04. Je Taime    05:24(   Читать дальше...   )Жанр: Neoclassical Metal, Instrumental, ShredПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A4DAC8CAA95A6C637D241EBB1BBD3EAE4BD64F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040136   (587510) от 04.08.2016
+
+Art Of Anarchy - Art Of Anarchy (2015) [FLAC|Lossless|image + .cue] <Alternative Rock, Hard Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Rain
+02. Small Batch Whiskey
+03. Time Every Time
+04. Get On Down(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Post-GrungeПродолжительность: 0:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE9C5A9D6901CE22E8B8B0B14069C86B8BC4F96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040251   (587511) от 04.08.2016
+
+Tempest - Tempest (1973) 2011 Remastered [WavPack|Lossless|image + .cue] <Heavy Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587511.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gorgon (5:44)
+2. Foyers Of Fun (3:42)
+3. Dark House (5:03)
+4. Brothers (3:37)(   Читать дальше...   )Жанр: Heavy Progressive RockПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908A50C71CF6B23689E4326F9F7B472DB8FA6C5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040134   (587523) от 04.08.2016
+
+Starry Saints - Serenade (with bonus singles) (2010-2011) [MP3|256 Kbps] <Alternative Pop Rock, Electronic Indie Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels
+02. Unseeing Eyes
+03. Go
+04. Hello(   Читать дальше...   )Жанр: Alternative Pop Rock, Electronic Indie Rock, ShoegazeПродолжительность: 00:39:00 + 00:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1455C09CE2F7FE3774ED593CF8CFE213474479F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552316   (587616) от 20.05.2022
+
+Van Morrison - What’s It Gonna Take? (2022) [FLAC 2.0|96/24|WEB-DL|tracks] <Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous (7:40)
+02. What's It Gonna Take? (3:23)
+03. Fighting Back is the New Normal (3:36)
+04. Fodder for the Masses (4:45)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 01:19:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F2866C5F3C0B588F70CAD039E278EFD4B5EB29
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552253   (587664) от 20.05.2022
+
+Jizzy Pearl - Hell, CA (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Hot Minute (03:41)
+02. Acid Babe (03:51)
+03. Gonna Take You Higher (04:02)
+04. Soul Mama (04:00)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA39FCEC8CA0F39B54F844DC2112CD10D76A71A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552356   (587697) от 20.05.2022
+
+Septicflesh - Modern Primitive (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Symphonic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Collector (4:04)
+02. Hierophant (4:05)
+03. Self-Eater (4:27)
+04. Neuromancer (5:01)(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E81ED96753C2B2F1BD0342003C8EEDD904C6C3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552421   (587699) от 20.05.2022
+
+James LaBrie - Beautiful Shade Of Grey (2022) [FLAC 2.0|44,1/24|tracks|WEB-DL] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_587699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil in Drag (5:37)
+02. SuperNova Girl (4:23)
+03. Give and Take (4:44)
+04. Sunset Ruin (5:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02292E0846D93810959022D8B234D67C3255ECD1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552341   (587703) от 20.05.2022
 
 Anvil - Impact Is Imminent (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
@@ -366,329 +690,6 @@ magnet:?xt=urn:btih:98B2FA3E58CD5D47A2CA3709CF6DF8291A05FE2E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58C861BB486B45428307A3432F28419FDB4C37A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552154   (588513) от 19.05.2022
-
-Vinnum Sabbathi - Gravity Works (2017) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Drone, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Weightlessness (00:05:21)
-02 - Early Works (00:11:27)
-03 - Gravity Waves (00:08:26)
-04 - Loop Quantum Gravity (00:09:59)(   Читать дальше...   )Жанр: Stoner, Drone, DoomПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC9E371A5B92555BB1E99FC4CCA6AEC28E5BA2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552153   (588515) от 19.05.2022
-
-Earth Altar - Earth Altar (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Stoner, Space Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lament (00:10:02)
-02 - The Grand Conjunction (00:07:21)
-03 - Through the Gates of Ras' al-Hamal (00:13:39)Жанр: Psychedelic Stoner, Space RockПродолжительность: 00:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7054F944F8C7FC9477D989C2BBD0E111F91196FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552220   (588530) от 19.05.2022
-
-Malevolence - Malicious Intent (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Groove Metal, Metalcore, Hardcore >
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malicious Intent (1:40)
-02. Life Sentence (3:17)
-03. On Broken Glass (4:27)
-04. Still Waters Run Deep (3:36)(   Читать дальше...   )Жанр: Groove Metal, Metalcore, HardcoreПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE51165B9D6069E636925782AD3F5F53F02E313
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917674   (588636) от 13.07.2015
-
-The Shadows - The Absolutely Essential 3CD Collection (2014) [MP3|320 кб/с]<Instrumental Classic Rock, Surf Rock, Oldies Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588636.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Apache [02:56]
-02. Feelin' Fine [01:54]
-03. Don't Be A Fool (With Love) [02:07](   Читать дальше...   )Жанр: Instrumental Classic Rock, Surf Rock, Oldies Pop RockПродолжительность: 02:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41EE13F8C0A895A5068FED1F68A2416E7AC9B65
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917602   (588648) от 13.07.2015
-
-Aeverium - Break Out (2015) Deluxe Edition 2CD [MP3|320 кб/с]<Nu Melodic Metal, Gothic, Symphonic Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588648.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Break Out
-02. Distrust
-03. Departed(   Читать дальше...   )Жанр: Nu Melodic Metal, Gothic, Symphonic Metal, Female VocalПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3D255FB01ED2180408540E59663FCE35835512
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917729   (588685) от 13.07.2015
-
-Adrana - Foreshadow (2015) [MP3|320 кб/с]<Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588685.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Cursed Legacy
-2. Blackblood
-3. Elventh Hour
-4. Time To Win, Time To Cry(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D845B51A1ACEF8398ECADFE8F4A1BD5DEF0D48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551770   (588910) от 18.05.2022
-
-Поиграем и Уйдём - Бронежилеты (2022) [MP3|320 Kbps] <Alternative, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Белые одежды [00:05:30]
-02 - Ты рядом [00:04:44]
-03 - Мне не жаль [00:04:31]
-04 - Полёты к Богу [00:03:29](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E1F19C74DFBE6BF509A00AC74B47EDBAA5C6CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551772   (588960) от 18.05.2022
-
-Ravanna - Девять Кругов (2022) [MP3|320 Kbps] <Alternative Metal, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_588960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Лимб [00:02:06]
-02 9 Кругов [00:04:17]
-03 Новый Завет [00:03:54]
-04 Лилит [00:03:38](   Читать дальше...   )Жанр: Alternative Metal, Post-Hardcore, ElectronicПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C22736D94AD64D96294F7D82637CBC325C2C60A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551664   (589002) от 18.05.2022
-
-Medusa's Disco - 5 Albums (2014-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Psychedelic, Garage Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People Are Programs [00:04:09]
-02. Little Hot Rod [00:02:28]
-03. Upside Down [00:03:06]
-04. Undertow [00:04:54](   Читать дальше...   )Жанр: Progressive, Psychedelic, Garage RockПродолжительность: 5 CD, 04:06:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C682D42BAF7E2C85771B7D405CB9950116FEA93C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917577   (589102) от 12.07.2015
-
-Jimi Hendrix - It’s Going To Be A Bit Loud (1969) [MP3|320 кб/с]<Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don’t Live Today [11:25]
-02. Spanish Castle Magic [6:09]
-03. Hey Joe [7:08]
-04. Voodoo Child [9:50](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F01E3E3DD8B6CD951FCF22B966DFBC7AF15969
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917579   (589120) от 12.07.2015
-
-Ego Likeness - When The Wolves Return (2015) [OGG|453-540 кб/с]<Alternative, Industrial Rock, Darkwave, Gothic, Electronic, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave a Light on, Thomas
-02. Darkness
-03. En Rouge
-04. New Legion(   Читать дальше...   )Жанр: Alternative, Industrial Rock, Darkwave, Gothic, Electronic, Female VocalПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C59232C5C929F99F01F185C7D59B98CEFCD161
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917630   (589122) от 12.07.2015
-
-The One-Eyed Show - Brothers, Cousins And Fools (2014) [MP3|320 кб/с]<70's Rock, Juke Joint Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moses
-02. The Big Finnish
-03. Her
-04. Colorblind(   Читать дальше...   )Жанр: 70's Rock, Juke Joint BluesПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B939A41F766877190F20594D5817E1215AE15D8
 ```
 
 

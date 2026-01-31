@@ -1,3 +1,189 @@
+###  Публикация: 1042093   (580581) от 11.08.2016
+
+Lisa Downing - The Wisdom of My Shadow (2016) [MP3|320 Kbps] <New Age, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forbidden Dance
+02. Tragic Dream
+03. Black Wedding
+04. Mischief(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD10BFE5722F450DBAC0119492F1E25A36AB00BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919753   (581056) от 21.07.2015
+
+Barry Goldberg & John Philip Shenale - Return of the Living Dead 3 (1993) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Title
+02. Enter The Isolation Room
+04. Osc'scope Zombie
+05. Zombie A Go Go(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B3EF4C8280792BB28572BEF29E641F7F8C661F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041811   (581464) от 10.08.2016
+
+Eamonn Karran - Celtic Skies (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Irish Skies
+02. New Life
+03. As One
+04. Boy Buries Mother(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFA416EC135DF10387EF12CBC8FDE1D59D4D4E4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041523   (582178) от 09.08.2016
+
+Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Task Force X (04:53)
+02. Arkham Asylum (03:24)
+03. I'm Going To Figure This Out (01:42)
+04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:682080C84E86703FEA60A5884EC51F492A42A9EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041521   (582244) от 09.08.2016
+
+Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Task Force X (04:53)
+02. Arkham Asylum (03:24)
+03. I'm Going To Figure This Out (01:42)
+04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7824935393EF7E3F596AEDEBEC95B23B8B952C72
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041510   (582423) от 09.08.2016
+
+Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally, Sun - 4:04
+02. Let The Children Frolic - 2:04
+03. Acoustic Painting - 4:02
+04. Young King David - 3:32(   Читать дальше...   )Жанр: Contemporary Jazz, Instrumental GuitarПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8BD8F26E77C8E03BF52637F40D951F3A6D6175
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357764   (582664) от 05.07.2011
+
+Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_582664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 05:50:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCCF0FB945BA482625C8DBB21FFEC05A544BAC1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918644   (582851) от 19.07.2015
 
 VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, Broken beat, House, Electronic>
@@ -508,201 +694,6 @@ Tony Lasley - Native Soul (1995) [MP3|320 кб/с]<Native American, New Age, Wor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0759E9671B259BCD86479CB8DE04C94740FCD079
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357947   (586141) от 02.07.2011
-
-Christopher Franke - Enchanting Nature (1994) [MP3|192 kbps]<Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586141.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gate Of The Shimmering Cave
-2. Song Of The Creek
-3. Dancing Over Pools
-4. Celtic Mist
-5. When The Sun Loves Trees
-6. Silence Of The Eclipse
-7. Stream Garden
-8. Purple Waves
-9. Malibu Trail
-10. Beach Park(   Читать дальше...   )Жанр: RelaxПродолжительность: 00:57:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE57AD6B2E1DC86A789984355B5BF0EDE139EE59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301238   (586251) от 10.05.2019
-
-Allegro Milano - Allegro Milano plays Simon and Garfunkel (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bridge Over Troubled Water (4:52)
-02. I Am A Rock (3:19)
-03. El Condor Pasa (3:18)
-04. Cecilia (2:44)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C14130395253D20C3ED7E41C05AE1BFF4B991311
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301244   (586252) от 10.05.2019
-
-Allegro Milano - Allegro Milano Spielt Die Schönsten Weihnachtslieder (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weisse Weihnachten (3:25)
-02. Leise Rieselt Der Schnee (3:12)
-03. Alle Jahre Wieder (3:30)
-04. Morgen Kommt Der Weihnachtsmann (3:05)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDD4636421D921A1386DE514B2F06807E46703D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301198   (586254) от 10.05.2019
-
-Henry Jackman - Ralph Breaks the Internet / Ральф против интернета (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine Dragons - Zero (03:32)
-02. Sarah Silverman, Gal Gadot, Cast - Ralph Breaks the Internet - A Place Called Slaughter Race (03:28)
-03. Julia Michaels - In This Place (03:21)
-04. Henry Jackman - Best Friends (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C87F3F26C3DBFFD9A44F21C25464B7CBC0B1A814
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040515   (586446) от 05.08.2016
-
-David Hicken - The Art of Piano (2016) [MP3|320 Kbps] <New age, Instrumental, Relax, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_586446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incantation
-02. The Letter
-03. Talavera
-04. Resurgam(   Читать дальше...   )Жанр: New age, Instrumental, Relax, PianoПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C605B6E8585DAADFD6773D928B2BC389285C549
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300947   (587143) от 09.05.2019
-
-Kenio Fuke - Piano e Natureza, Vol. 1-5 (2005-2018) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinita Sabedoria (4:11)
-02. Brilho da Lua (3:52)
-03. Árvore Dourada (4:57)
-04. Doce Brilho (4:16)(   Читать дальше...   )Жанр: New Age, Piano, Relaxation |Продолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5C02CC3C3D7BBB25D708B91B191D6FB7CACA87
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300794   (587150) от 09.05.2019
-
-Kayo Konishi & Yukio Kondo - Elfen Lied Original Soundtrack (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Classical, Contemporary>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lilium (Opening version) (1:34)
-02.Longing (2:12)
-03.Deep Sea (2:56)
-04.Flower-like (1:08)(   Читать дальше...   )Жанр: Electronic, Classical, ContemporaryПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE27D8C544503B0812F2D0BBE4C0EDFE800A36FB
 ```
 
 

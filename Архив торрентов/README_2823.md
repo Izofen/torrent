@@ -1,678 +1,721 @@
-###  Публикация: 1246107   (465336) от 09.09.2018
+###  Публикация: 549229   (463328) от 20.09.2012
 
-SecureAPlus Freemium 4.11.0 [Multi/Ru]
+Helen Davies & Kim Skovbye - A Fair Meadow. Music for Celtic Harps (2009) [MP3|320 кб/с]<New age, Celtic, Harp>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465336.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SecureAPlus - решение безопасности, которое сочетает в себе антивирус и возможности применения белого списка для приложений. Антивирус защищает компьютер от известных вредоносных программ, в то время как белый список обеспечивает проактивную защиту от неизвестных угроз. В отличие от традиционных антивирусов, SecureAPlus блокирует любые новые и неизвестные вредоносные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+(6:13) 01. Sunbeam Dance
+(5:00) 02. Weaving Waves
+(8:31) 03. Celtic Traveller
+(1:29) 04. Zoome in ... and Make a Wish
+(5:36) 05. A Light in Sound
+(4:37) 06. A Stone's Throw
+(3:30) 07. Dear One
+(2:16) 08. Zoome Out ... Still Wishing
+(7:41) 09. The Fairy Meados
+(2:47) 10. ... Like DiamondsЖанр: New age, Celtic, HarpПродолжительность: 00:47:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87FAA45C4C1CA8B5C3D91FF6CDF079F14F9CA610
+magnet:?xt=urn:btih:5332EF0E4297467D8BB61CECBC8BA706ABE50BA0
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246004   (465339) от 09.09.2018
+###  Публикация: 549530   (463330) от 20.09.2012
 
-Registry First Aid Platinum 11.2.0 Build 2542 RePack (& portable) by elchupacabra [Multi/Ru]
+Журнал | Атлас. Целый мир в твоих руках №137 [сентябрь 2012] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465339.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463330.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Registry First Aid Platinum - мощный, многофункциональный инструмент для оптимизации и очистки реестра операционной системы Windows. Программа сканирует реестр на предмет испорченных или ненужных записей (оставшихся после удаления программ), тем самым обеспечивает более быструю работу компьютера. Просматривает системный реестр и обнаруживает неверные ключи, которые (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+«Атлас. Целый мир в твоих руках» - коллекция издательства «Де Агостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать больше о нашей планете и ее тайнах. С Атласом вы отправитесь в завораживающее кругосветное путешествие.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF915F80A903C9C2CECE00F0E8DEF56E333739AE
+magnet:?xt=urn:btih:7E76B31A2A653505F2A5522250F136311BDF72F4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246227   (465343) от 09.09.2018
+###  Публикация: 549332   (463334) от 20.09.2012
 
-3D модели - Hum3D - Mercedes-Benz Actros Tipper 3-axle 2011 [MAX, 3DS, OBJ]
+VA - Клубный Mega Dance 1-2 (2CD) (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463334.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Dj Soundlife - the beach full of sun (club mix)
+02. Modek - North (Original Mix)
+03. Lg Performers - Fill Your Cup (Fred De F Remix)
+04. Nickelback - When We Stand Together (DJ Nejtrino & DJ Stranger Remix)
+05. Nakadia - Never (Original Mix)
+06. Sean Bay Vs. Medhi Mouelhi feat Arabella - Maktoub
+07. W&W & Jochen Miller - Summer (Original Mix)
+08. Deep Josh, Luisen Merino - Livin On A Prayer (Distorted Funk Mix)
+09. Zedd feat. Matthew Koma - Spectrum (Radio Mix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 04:57:48
+01. Armin Van Buuren feat. Kirsty B - Free Of War (Original Mix)
+02. Emil Lassaria & Caitlyn - Serenata (Club Mix)
+03. Breakdown & Jay Jacob - Remember Me (Mightyfools Remix)
+04. Eptic - Trouble
+05. Crazibiza vs Garrett & Ojelay - Dirty Guitarra (Original Mix)
+06. Gallo, Alaia - Sole E Vento (Re-Vox Mix)
+07. Deepside Deejays - Look Into My Eyes (Club Edit)
+08. LLP feat. Julie Ann & Diamz - Don't Stop The Music (Extended)
+09. Fedo Mora - Do You Remember (Extended Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:794EB2ADD4CC82025DEB132916D253939EA231F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161875   (463344) от 30.08.2017
+
+Ashampoo WinOptimizer 15.00.05 RePack (& Portable) by elchupacabra  [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo WinOptimizer 15 - новая линейка пакета программ, позволяющего оптимизировать операционную систему благодаря ее настройке и очистке. Содержит утилиты для очистки жесткого диска и системного реестра, модуль для защиты личной информации путем поиска и удаления файлов и данных, оставшихся после интернет-cepфингa, утилиту для оптимизации интернет-соединения, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:977344FEBA90296D849CC1B2B4C4371EE5AE86B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388080   (463346) от 15.09.2011
+
+Sexy Girls v.22
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465343.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-3d модель автомобиля марки Mercedes-BenzФормат: MAX, 3DS, OBJ
+[Wallpapers] Sexy Girls v.22
+Название: Sexy Girls v.22
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89CA22C4023D63C8EF24936E251A4D33F450D1C3
+magnet:?xt=urn:btih:D2AAB9D2B086AB1940EECD7ACA611BA2916C2E23
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161392   (465364) от 29.08.2017
+###  Публикация: 388181   (463350) от 15.09.2011
 
-Take Command 21.01.46  [Multi/Ru]
+Sexy Girls v.27
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463350.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girls v.27
+Название: Sexy Girls v.27
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC69B949534634168A9E01FA042E7B31B334662
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 387863   (463355) от 15.09.2011
+
+Sexy Girls v.16
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463355.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girls v.16
+Название: Sexy Girls v.16
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3B907B96D4486107293B2137B60083CBFCC0A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161796   (463360) от 30.08.2017
+
+Display Driver Uninstaller 17.0.7.3 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465364.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Take Command - предлагает вам новый подход в работе с операционной системой Windows, предоставляя пользователям всю мощь командной строки и простоту в использовании с интерфейсом Windows. Take Command поддерживает существующие CMD.EXE команды и пакетные файлы и добавляет тысячу новых функций, предоставляя вам всю мощь и гибкость, которую вы только можете представить. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, или когда нужно тщательно удалить драйверы видеокарты. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75405985D8873A734466BD53EE64782936D3AAE9
+magnet:?xt=urn:btih:2562516DC822E71765AF44B990D073D4C1E6BCDA
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161685   (465367) от 29.08.2017
+###  Публикация: 388079   (463363) от 15.09.2011
 
-Wise Care 365 Pro 4.7.1.454 RePack (& Portable) by elchupacabra  [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программный пакет для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать список приложений автозагрузки и пр.Язык интерфейса: русский/английский/украинский/белорусский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5951495F563A9FC27BD23A465A0A218D3EC6D30C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320756   (465392) от 21.08.2019
-
-Ultra Mood - Oxidation (2019) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
+Camo & Krooked - Make The Call (2011) EP [MP3|320 kbps] <Drum'n'Bass, Dubstep>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465392.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ultra Mood - OxidationЖанр: HardstyleПродолжительность: 00:03:27
+01. Make the Call (feat. TC)
+02. In the Future (feat. Jenna G & Futurebound)
+03. Make the Call (Drum & Bass Mix)Жанр: Drum & Bass, DubstepПродолжительность: 00:17:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DC5D05EE7C1F0EA26138DF60CA525D28AB8008F
+magnet:?xt=urn:btih:6300EB0787AC382FBACBC242310E17C1A43D77ED
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320941   (465395) от 21.08.2019
+###  Публикация: 1161924   (463366) от 30.08.2017
 
-Vivaldi 2.7.1628.30 Stable [Multi/Ru]
+Anvir Task Manager 9.0.1 Final RePack (& Portable) by elchupacabra  [Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465395.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, другие
+AnVir Task Manager предоставляет подробную информацию о работе системы и, в то же время, предоставляет большое количество инструментов для управления Windows. Для того, чтобы заменить все функции AnVir Task Manager, придется установить около 10 разных программ.Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13A4959588B8315C67536C0B538B290103BD26B8
+magnet:?xt=urn:btih:618B9C359B04395D472CEDA00B74E55B3602B690
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320916   (465399) от 21.08.2019
+###  Публикация: 387880   (463374) от 15.09.2011
 
-SlimBrowser 10.0.12.0 + Portable [Multi/Ru]
+Sexy Girls v.18
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465399.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-SlimBrowser – браузер, построенный на базе Mozilla Firefox. Поставляется со всеми функциями браузера Mozilla, но также включает большое количество собственных улучшений, которые делают серфинг в интернете гораздо удобнее.Язык интерфейса: Русский, Английский, другие
+[Wallpapers] Sexy Girls v.18
+Название: Sexy Girls v.18
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:984F7894FFC28B82EC4B9D3F553DAD9064EB3140
+magnet:?xt=urn:btih:1C3BA0AA2FB616C0E10BF65E0CB234FF17DC74D5
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320915   (465404) от 21.08.2019
+###  Публикация: 703266   (463409) от 24.09.2013
 
-Slimjet 23.0.11.0 + Portable [Multi/Ru]
+Журнал | Elle Decoration №10 (129) (октябрь 2013) [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465404.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, другие
+"ELLE Decoration" - самый красивый и полезный журнал о современном интерьере. В журнале представлены: последние тенденции мебельного дизайна и декорирования, эксклюзивные интервью с известными архитекторами, дизайнерами и фотографии лучших домов России и всего мира.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:213713D8D819DAF070575C478A53A316912BD1CF
+magnet:?xt=urn:btih:ACF6917B2AC675DCA7940C6DE13FB824317666A6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320943   (465408) от 21.08.2019
+###  Публикация: 548432   (463413) от 20.09.2012
 
-Vivaldi 2.7.1628.30 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACF9874CBE10C0EE6E5D8D1BF32612FE7471C43
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 548463   (465446) от 19.09.2012
-
-Total Science - Mars Needs Total Science (2006) [MP3|320 кб/с]<Drum and Bass>
+DJ Marky and XRS - In Rotation (Innerground) (2004) [MP3|128 кб/с]<Drum and Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465446.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Be My Twin
-03. Never Had A Dream
-04. Sweet Music feat. Lady Alma (Agent K Remix)
-05. Soul Patrol feat. MC Conrad
-06. Life On Mars (Interlude)
-07. Magic Touch
-08. Where Are We?
-09. Wasting Time feat. Phonte & Darien Brockington
-10. Hi Paul (Interlude)(   Читать дальше...   )Жанр: Продолжительность: 01:31:20
+01. DJ Marky & XRS - Highlights
+02. DJ Marky & XRS - I Know
+03. DJ Marky & XRS - Terapia
+04. DJ Marky & XRS - Rotation
+05. DJ Marky & XRS - Misto Quente
+06. DJ Marky & XRS - Tijuana Frogs
+07. Jorge Ben & Toquinho - LK (Carolina Carol Bela) (DJ Marky & XRS Land Instrumental Mix)
+08. DJ Marky & XRS (feat. Vikter Duplaix) - Moments Of Lust
+09. M.I.S.T. & DJ Marky (feat. XRS) - Sunshine (Touch Me)
+10. DJ Marky & XRS - Rudebwoy(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 01:00:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8397743FFEF3D48F38E110CC4D90033867BB50F8
+magnet:?xt=urn:btih:24A304A2F831D31F08D041B1C40E2DC07E5E02C1
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 548017   (465448) от 19.09.2012
+###  Публикация: 1246356   (463418) от 10.09.2018
 
-VNP - ETM: Euro Trance Music 001 - 004 (2012) (Обновляемая) [MP3|320 кб/с]<Trance>
+VA - Cafe del Mar Ibiza - Sol y Luna (Compiled by Ken Fan) (2018) [FLAC|Lossless|WEB-DL|tracks] <Chillout,Downtempo,Lounge>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465448.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463418.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Armin van Buuren Feat. Ana Criado I’ll Listen (Original Mix)
-02. Genix Moments (Original Mix)
-03. Sequentia & Jaco Crossfire (Original Mix)
-04. Headstrong - Love Until It Hurts (Aurosonic Progressive Mix)
-05. Heatbeat - Extra Bacon (Original Mix)
-06. W&W & Jochen Miller - Summer (Radio Mix)
-07. Andy Moor feat. Jessica Sweetman - In Your Arms (Original Mix)
-08. Matt Bukovski - In Dreams (Original Mix)
-09. Aligator feat Daniel Kandi - The Perfect Match (club mix)
-10. Aly & Fila, Jwaydan - Coming Home (Original Mix)Жанр: TranceПродолжительность: 03:55:45
+01. Dubelu - Empowerment (Mixed)
+02. Maguera - Lost Minds Office (Mixed)
+03. El Buho feat. Kaleema - Ceiba (Mixed)
+04. Mi Puga Mi Pishgo - Sex Sex (Aristidez Softcore Dub Remix) (Mixed)(   Читать дальше...   )Жанр: Chillout,Downtempo,LoungeПродолжительность: 03:21:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:878B5CA4C65116765EDDBB552C92FE9E80A8775C
+magnet:?xt=urn:btih:85B263E10E43EB05BDB7ACBF5BAAE65B47BDE695
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549169   (465455) от 19.09.2012
+###  Публикация: 1246441   (463420) от 10.09.2018
 
-VA - The Best Of Simplify Part 1 (2010) [MP3|320 кб/с]<Drum & Bass,Dubstep>
+VA - Club Hits 2018 (20 Best Of Tech House, Techno, Minimal House) (2018) [MP3|320 Kbps] <Techno, Funky, Soulful, Tech House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465455.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463420.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. American Werewolf - You & Me (Furlonge remix) 05:53
-2. Divine Elements - Everlasting 08:10
-3. Fourward - Fury (Kiro remix) 07:09
-4. NTRLD - White Chains 05:17
-5. Oh Tebins - Ego Tickle 06:25
-6. Oh Tebins - Rain 05:24
-7. Red Army - Broken Promises 06:15
-8. Roksonix - Empire 05:27
-9. The Bassist - The Craft 05:33Жанр: Продолжительность: 00:55:33
+01. Alex Satry, Little Nancy - We Can Do It (Little Nancy Remix)
+02. Beethoven tbs, Wild Zulu - Plomo Para Todos (Wild Zulu Remix 2k18)
+03. Bice B - Stardust (Original Mix)
+04. Corvino Traxx - Icon (Original Mix)(   Читать дальше...   )Жанр: Techno, Funky, Soulful, Tech HouseПродолжительность: 02:03:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2606A46F83CC087FC438F7BA16D9D2135A8B0DAD
+magnet:?xt=urn:btih:280E343559E4FD8DA43FBA5434D222211C196E86
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 548927   (465468) от 19.09.2012
+###  Публикация: 1246372   (463422) от 10.09.2018
 
-John Prine - John Prine (1971) [MP3|320 кб/с]<Country>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465468.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:13) 01. Illegal Smile
-(2:41) 02. Spanish Pipedream
-(4:30) 03. Hello In There
-(4:15) 04. Sam Stone
-(3:12) 05. Paradise
-(3:36) 06. Pretty Good
-(2:52) 07. Your Flag Decal Won't Get You Into Heaven Anymore
-(3:41) 08. Far From Me
-(3:45) 09. Angel From Montgomery
-(2:52) 10. Quiet Man(   Читать дальше...   )Жанр: CountryПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA753517F0EAFB4E56B01322DFC84018117CBDFF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320987   (465513) от 21.08.2019
-
-Allavsoft Video Downloader Converter 3.17.8.7171 RePack (& Portable) by elchupacabra [Multi]
+SpeedyFox 2.0.24 Build 130 Portable [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465513.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463422.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
+SpeedyFox - небольшая утилита, предназначенная для ускорения работы браузеров. Позволяет увеличить скорость загрузки, оптимизирует sqlite-базы, в которых хранятся закладки, cookies, различные настройки, журналы загрузок, журналы посещения ресурсов и многое другое, удаляет пустые ячейки из файлов и оставляет в них только нужную информацию
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB49DC2BE2B39C88B84558FD168CB76667A9C7C
+magnet:?xt=urn:btih:32F3EA38812161AF6046ED7C8263A391C744BED3
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320978   (465515) от 21.08.2019
+###  Публикация: 549525   (463423) от 20.09.2012
 
-Privacy Eraser Free 4.53.5 Build 3115 + Portable [Multi/Ru]
+Журнал | МК-Мобиль №№16(354), 17(355) [сентябрь 2012] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465515.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463423.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Журнал посвящен автомобильной тематике: обзоры автоаварий, угонов, проблемы дорожного движения, исторические очерки об отечественных и зарубежных автомобилях, автотуризм, рейтинги и тестдрайвы, автоспорт, советы автолюбителям, автоэкзотика.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:40505E07E3CAFA9A8F49D526C250FFA5529A5A95
+magnet:?xt=urn:btih:16D99E743398228F9FA2B7A5A6EB9C21FA757036
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161546   (465525) от 29.08.2017
+###  Публикация: 549713   (463432) от 20.09.2012
 
-Славные люди / Beautiful People (1999) DVDRip
+Журнал | ХлебСоль №6 [июнь 2012] [PDF]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465525.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463432.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На дворе — начало девяностых. На материке, в старушке Европе, бушует война. Вдали от Балкан, на Британских островах, в Лондоне, тоже идет война. Но эта война скрытая, точно бешено кипящее варево, стоящее на открытом огне в котле, прикрытом крышкой: когда температура становится критической, крышку подбрасывает, и пар стремительно вырывается наружу. Так кто и с кем (   Читать дальше...   )Производство: Великобритания / Arts Council of England, British Screen Productions, Tall StoriesЖанр: Драма, Комедия, ВоенныйРежиссер: Ясмин ДиздарАктеры: Томас Гудридж, Фарук Прути, Тони Питерс, Дадо Джехан, Розалинд Эйрс, Джулиан Фёрт, Чарльз Кей, Шарлотта Коулман, Эдвард ДжюзбериПеревод: Двуголосый закадровый (Премьер)Субтитры: отсутствуютПродолжительность: 01:43:03
+«ХлебСоль» — это еще одна возможность рассказать о еде как творчестве. И появление журнала — это удивительное стечение обстоятельств, потому что в одном месте собрались энтузиасты, которые очень любят готовить и экспериментировать на кухне. Все рецепты неоднократно тестируются на редакционной кухне. Штатные повара журнала выверяют необходимое количество ингредиентов и граммы для каждого рецепта, по секундомеру определяют время готовки, упрощают сложные рецепты и придумывают простые емкие решения.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16857612279439A3F4FCE574D0D784D89DD71FA1
+magnet:?xt=urn:btih:47F5C05C51FB6618FCA6FC6EB174D8BD796D1DB4
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161700   (465526) от 29.08.2017
+###  Публикация: 549616   (463434) от 20.09.2012
 
-360 Extreme Explorer 9.0.1.140 Portable by Cento8 [Ru/En]
+Журнал | Помощник садовода №17 (33) [сентябрь 2012] [PDF]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465526.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463434.jpg" />
 </div>
 
 
 ###  Подробнее
 
-360 Extreme Explorer- браузер, который можно смело назвать многофункциональным и безопасным, он направлен на борьбу с окружающими вас угрозами при Интернет серфинге. Если рассматривать внешний вид: удобно в работе, достаточно информативно, плюс часто посещаемые сайты будут отображаться в виде миниатюр на новой вкладке. Если вы являетесь экспертом, то можете смело (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Очень интересное массовое издание для садоводов, огородников и любителей цветов. Наряду с рекомендациями учёных и специалистов широко представлен опыт самых известных садоводов-опытников. Много полезных советов, консультаций и ответов на вопросы читателей по всем направлениям ведения приусадебного хозяйства. Оперативно освещаются все необходимые работы в саду и на огороде. Большой раздел посвящён цветоводству и ландшафтному дизайну.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92ADD938821910BE1CB6D0090CDE4F9DEFEA92A5
+magnet:?xt=urn:btih:893FD2C6CFCC13BC04F50548258ED5A6A1D75816
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161516   (465530) от 29.08.2017
+###  Публикация: 549512   (463436) от 20.09.2012
 
-TechTool Pro 9.5.2 [En]
+Журнал | Premiumcar №№12-14 [весна-осень 2012] [PDF]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465530.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463436.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TechTool Pro — диагностику заказывали?
-Новый TechTool Pro это самая продвинутая версия утилиты для диагностики и устранения неполадок на компьютерах Macintosh. Простота в использовании и подходит, как для домашних пользователей, так и для профессионалов. TechTool Pro использует полную совместимость с 64-разрядными системами, что позволяет программе работать более (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: август 2017Разработчик: Micromat Inc.Поддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский, Французский, Немецкий и др.
+Это издание - «настольная книга» для истинных автогурманов. XXL-размер материалов рассчитан на неспешное и серьезное чтение. Каждый автомобиль, удостоившийся чести попасть на страницы журнала, преподнесен в соответствии с высочайшими стандартами коллекционного альманаха.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F2E719A3C5875552B2DB1D578D3EF9407EBB868
+magnet:?xt=urn:btih:2478F61CED15C7403446F073DF9504441F4F5847
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161713   (465533) от 29.08.2017
+###  Публикация: 549171   (463438) от 20.09.2012
 
-iA Writer 4.0.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465533.jpg" />
-</div>
-
-
-###  Подробнее
-
-iA Writer — фон, шрифт и курсор
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25 августа 2017Разработчик: Information Architects Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86902AEAC0BE9F6708F13C381B30932DAD74B011
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 387641   (465552) от 14.09.2011
-
-DJ Feel - Trancemission (13-09-2011) [MP3|320 kbps]<Trance, Progressive Trance, Uplifting Trance>
+VA - Phuture Funk Vol 4 (2011) [MP3|320 кб/с]<Drum and Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465552.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463438.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aerium - Icedive (Almar Remix)
-02. Jody Wisternoff - Shivver
-03. Dark Matters feat Jess Morgan - I Dont Believe In Miracles (Shogun Remix)
-04. Marcus Schossow - Swedish Nights (Original Mix)
-05. Solo - Reflections Of Silence (Original Mix)
-06. Super8 & Tab feat. Jan Burton - Mercy (Alex Kunnari Remix)
-07. Nuera pres. Levann - Someday (Original Mix)
-08. Mishelle - If Love Is A Crime (Andrew Rayel Extended Remix)
-09. Dan Stone - Baltic (Ost & Meyer Remix)
-10. C-Systems feat Hanna Finsen - Pieces (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 00:57:44
+1. Nookie - I Love The Way (12" mix)  (07:28)
+2. J Laze - Summertime (feat Ladee Berry)  (05:55)
+3. Well Being - When You're Not Around  (06:41)
+4. Nookie - I Say Yeah (12" mix)  (05:55)
+5. Qumulus - Music Keeps Me  (06:46)
+6. Human Factor - Free Your Heart  (06:34)
+7. Physics - Invisible Spaces  (05:58)
+8. Human Factor - Cloning Science  (05:34)
+9. Pete Rann & Qumulus - Move On  (07:12)
+10.J Laze - 6 Months  (06:29)Жанр: Продолжительность: 01:04:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:318399404ABC886C53C743ABD8E707C22541FFB7
+magnet:?xt=urn:btih:5B3A72A08D4C0D30BB2ECE125D83EEA56EE8222C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 548955   (465559) от 19.09.2012
+###  Публикация: 549492   (463439) от 20.09.2012
 
-BBX - Making Luv (2012) [H.264/1080р] WEBRip
+Журнал | Туризм и отдых №36 [17-23 сентября 2012] [PDF]
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465559.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463439.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Dance, HouseПродолжительность: 00:03:21
+Рассказы о популярных туристических направлениях, полезные рекомендации, интересные обзоры, фоторепортажи. Своеобразное зеркало, отражающее состояние дел в российской туристической индустрии, настоящий навигатор в мире туристических услуг и бизнеса.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C41F4B0CE5B6D93321B1D228207AAAE00B487AA0
+magnet:?xt=urn:btih:F39387CB1E79BFDAFA0E3FA699E277807CB085C6
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549049   (465564) от 19.09.2012
+###  Публикация: 549185   (463441) от 20.09.2012
 
-Профессия  репортер. Любовь до гроба (2012.09.15) SATRip
+VA - Drum & Bass Essentials Vol 5 (2011) [MP3|320 кб/с]<Drum and Bsss>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465564.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Чудовищное убийство в Хакасии.
-Почему он так и не смог смириться с настоящим и расстрелял свое прошлое и будущее?Жанр: ДокументальныйПродолжительность: ~ 00:16:50
+1. Dakosa - Blood Moon  (05:46)
+2. BassHazard - Eve  (05:20)
+3. mSdoS & Steez - Brass Ensemble  (05:55)
+4. A2C - Warforce (Firefly remix)  (05:25)
+5. BrokenDrum - The Other Side  (06:26)
+6. Nata'Malamata - Toy's Games  (03:39)
+7. Lucas - Hillbilly Hideout (LJ High Dnb remix)  (06:59)
+8. Tidal - Queen Eyes Hazel Green  (06:01)
+9. Operon & LM1 - Crazy Nights  (06:21)
+10.Johnny Beverton - Polymol  (05:26)(   Читать дальше...   )Жанр: Продолжительность: 01:27:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F18D6D67A2BFD5270CFE9AFB0667D4FA2DD74C4
+magnet:?xt=urn:btih:41D8C848E7F2C666416330D37F1957B7B61FB378
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549047   (465565) от 19.09.2012
+###  Публикация: 549180   (463443) от 20.09.2012
 
-Чистосердечное признание . На чужом горе (2012.09.09) SATRip
+VA - Drum & Bass Essentials Vol 4 (2011) [MP3|320 кб/с]<Drum and Bass>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465565.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Программа существует уже более 10 лет. Все это время в ней показывали только эксклюзивы — материалы, которые невозможно увидеть где-либо еще. Разнообразные темы и, конечно же, чистосердечные признания. Герои передачи доверяют зрителям самые сокровенные тайны. Корреспонденты и продюсеры программы — профессионалы, способные, оставаясь за кадром, заставить нас взглянуть на многие вещи и события под новым углом. Это документальная программа только о том, что действительно интересно. Здесь все реально, все эмоционально и обязательно актуально.В выпуске: Почему пародист Грушевский собрал вещи и ушел из семьи?
-И из-за чего Анжелика Агурбаш рискует оказаться на улице?
-Каково быть обманутой и каково остаться одной?
-Как знаменитости строят свое счастье и как отбирают его у других?
-«На чужом горе» — в программе «Чистосердечное признание» на НТВ.Жанр: ДокументальныйПродолжительность: ~ 00:38:17
+1. Tidal - Where's The Life? (original mix)  (06:23)
+2. Tidal - Swing Out (Aquasion remix)  (05:59)
+3. Static - Bright Light (Aquasion remix)  (07:11)
+4. Johnny Beverton - Tonedab (original mix)  (05:46)
+5. Mad Rabbit - Same Old (original mix)  (06:40)
+6. Radicall - After Dark (DJ Ike remix)  (05:24)
+7. Joe Syntax - Believe In You (original mix)  (06:13)
+8. Jekyll - Insect Flex (original mix)  (05:46)
+9. B4ssTee - Tell Me (original mix)  (05:36)
+10.Audios3x - Ennek A Notanak Egyszer Vege Lesz (original mix)  (05:26)(   Читать дальше...   )Жанр: Продолжительность: 01:31:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08AE15B711C194A782A172D12A1D4832D26CAD92
+magnet:?xt=urn:btih:4B9A9A350DFAF621FEF6DBA452C58B66507DD38C
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549046   (465566) от 19.09.2012
+###  Публикация: 388058   (463462) от 15.09.2011
 
-Развод по-русски. Выпуск №75. Путь в звёзды  (16.09.2012) SATRip
+Tiesto - Club Life 232 (11.09.2011) [MP3|192 kbps]<Trance>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465566.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У нас в России — все по-особенному. У нас даже обманывают иначе. Впаривают, втюхивают, надувают, обвешивают-обсчитывают и кидают на каждом шагу. Это — Россия, и это — развод. Развод по-русски. А его жертвы, которых в сухих сводках называют обманутыми потребителями, клиентами, потерпевшими, — это все мы, обычные люди и телезрители.
-«Развод по-русски» — это то, с чем мы сталкиваемся каждый день в магазине, в больнице, в приемной чиновника… Что мы едим, где отдыхаем, как лечимся, кому доверяем наших детей — изобретены сотни хитроумных способов нажиться на нашей доверчивости. Но терпение русского человека небезгранично, а доверие требует проверки.
-В новом еженедельном проекте НТВ репортеры программы работают под прикрытием, чтобы изнутри раскрыть технологию обмана. Наше дело — правое, потому что у каждого из нас есть права. Эксперты — защитники потребителей, адвокаты, врачи и профессионалы из других областях помогут не словом, а делом, и расскажут, как правильно составить претензию, возместить ущерб и потребовать (   Читать дальше...   )Жанр: ТелепередачаТелекомпания: Продолжительность: ~ 00:39:47
+Hour 1
+
+01. Ellie Goulding - Lights (Adrien Mezsi Reboot)
+02. Matteo DiMarr - Creep (Original Mix)
+03. Paul Kalkbrenner - Sky & Sand (Koen Groeneveld Bootleg)
+04. AN21 & Max Vangeli vs. Tiesto feat. Kate Elsworth - People Of The Night (Original Mix)
+05. Paul Thomas - La Bombo (Nathan C vs. Lay & Brown Remix)
+06. Funkagenda, Sultan & Ned Shepard - Past Dreaming (Original Mix)
+07. Sia – Drink to get Drunk (Sander Van Doorn Remix)
+08. Delerium feat. Sarah McLachlan - Silence (W&W vs. Jonas Stenberg Remix)(   Читать дальше...   )11.09.2011Жанр: TranceПродолжительность: 01:56:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC3BF2C82FD209FC855E1D75EC54F8FBCEB95F4C
+magnet:?xt=urn:btih:387359A7F850AC97F3C7C947E10DE47501961125
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 549045   (465567) от 19.09.2012
+###  Публикация: 1161904   (463465) от 30.08.2017
 
-Развод по-русски. Выпуск №74. Звёздное прошлое  (09.09.2012) SATRip
+VA - Anjunabeats Worldwide 07 (Mixed by Grum) (2017) [FLAC|Lossless|tracks + .cue] <Trance, Progressive Trance, Progressive House>
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465567.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У нас в России — все по-особенному. У нас даже обманывают иначе. Впаривают, втюхивают, надувают, обвешивают-обсчитывают и кидают на каждом шагу. Это — Россия, и это — развод. Развод по-русски. А его жертвы, которых в сухих сводках называют обманутыми потребителями, клиентами, потерпевшими, — это все мы, обычные люди и телезрители.
-«Развод по-русски» — это то, с чем мы сталкиваемся каждый день в магазине, в больнице, в приемной чиновника… Что мы едим, где отдыхаем, как лечимся, кому доверяем наших детей — изобретены сотни хитроумных способов нажиться на нашей доверчивости. Но терпение русского человека небезгранично, а доверие требует проверки.
-В новом еженедельном проекте НТВ репортеры программы работают под прикрытием, чтобы изнутри раскрыть технологию обмана. Наше дело — правое, потому что у каждого из нас есть права. Эксперты — защитники потребителей, адвокаты, врачи и профессионалы из других областях помогут не словом, а делом, и расскажут, как правильно составить претензию, возместить ущерб и потребовать (   Читать дальше...   )Жанр: ТелепередачаТелекомпания: Продолжительность: ~ 00:40:58
+01. Grum – Worldwide Intro
+02. Naden – Rivers
+03. Lane 8 – Aba (Yotto Remix) (with Kidnap Kid)
+04. Grum – Inflight(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:18:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E20B62B3FEE5BFE052311C76117938BCF8E92419
+magnet:?xt=urn:btih:2D18B16E3D238EF0797BFE7C70F3254E7419C518
 ```
 
 

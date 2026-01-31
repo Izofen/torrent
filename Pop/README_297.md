@@ -1,3 +1,84 @@
+###  Публикация: 1072608   (815021) от 07.01.2018
+
+MinaCelentano (Mina & Adriano Celentano) - Le migliori (2016) Deluxe [FLAC|Lossless|tracks + .cue] <Pop, Italo Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il solo è stupendo (00:28)
+02. I grandiosi (00:23)
+03. Non si vedrà nessuno (00:47)
+04. Di spalle (00:30)(   Читать дальше...   )Жанр: Pop, Italo Pop, Pop RockПродолжительность: 00:08:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC779CFD5C8779F1E49051D9BA5A1A47819AE04
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008624   (815105) от 18.04.2016
+
+Леонид Агутин - Просто о важном (2016) [MP3|320 кб/с] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Отец рядом с тобой
+02. Севастополь
+03. Птица чёрная
+04. Ты плачешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8874B95DFB1B3E854ACE06AD0FFDDD889BEF497A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843484   (815108) от 07.01.2018
+
+Adriano Celentano - Golden Hits (2013) 3CD [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buonasera Signorina (2:47)
+02. Non Esiste L'Amor (2:14)
+03. Blue Jeans Rock (2:24)
+04. Ciao Ti Diro (2:37)(   Читать дальше...   )Жанр: PopПродолжительность: 01:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4005E4ECC95F6FB8404CDF117335501FEF5D56E6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117670   (815200) от 24.03.2017
 
 Любовные истории - Любовные истории (2004) [APE|Lossless|image + .cue] <Pop>
@@ -615,87 +696,6 @@ Cerrone - The Classics (Best of Instrumentals) (2021) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6312ABF591B7A8ADA8D4B52D443D861080B90BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503768   (817781) от 20.10.2021
-
-Kylie Minogue - DISCO (Super Deluxe Edition) (2020) [MP3|320 Kbps] <Dance-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (4:11)
-02. Miss A Thing (3:57)
-03. Real Groove (3:15)
-04. Monday Blues (3:10)(   Читать дальше...   )Жанр: Dance-pop, DiscoПродолжительность: 01:09:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893D97A957883744D2A738C1F39EFC4B98EEBB52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007961   (817855) от 17.04.2016
-
-Pinballsound - Дирижабль (2016) [MP3|320 кб/с] <Indie Pop, Electronic, Female Vocal>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Дирижабль
-03. Звёздочки
-04. А я бы тебе(   Читать дальше...   )Жанр: Indie Pop, Electronic, Female VocalПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2256B329DE1DEDE51B03ACA5C766B727955291F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008035   (817948) от 17.04.2016
-
-Montmartre - Hope (2016) [MP3|320 кб/с] <Synthpop, Electropop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hope (04:08)
-02. White Fields (03:22)
-03. Out Of Violence (03:28)
-04. Our Time Is Now (04:26)(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADA70594AD19A44301C85E88762DDA4A185DDD8
 ```
 
 

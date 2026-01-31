@@ -1,3 +1,27 @@
+###  Публикация: 547641   (469544) от 17.09.2012
+
+VA - Инструментальная музыка (2012) vol. № 72 [MP3|320 кб/с] <Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469544.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 02:00:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210D05178F3A6674800CED49AD351058D43C6D2C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548308   (469545) от 17.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 73 [MP3|320 кб/с]<Instrumental>
@@ -692,33 +716,6 @@ VA - German Top 100 Single Charts 04.09.2020 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF4FD5131C66EF73C6A016548332F1748C9BFDCF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406752   (471000) от 05.09.2020
-
-VA - Alternative World: Indie Pop-Rock Music (2020) [MP3|320 Kbps] <Indie, Alternative, Pop-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471000.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nolan Potter's - Nightmare Forever
-002. Guise - Brother In Arms
-003. Pleil - Offener Kanal
-004. Honey Cutt - Vacation(   Читать дальше...   )Жанр: Indie, Alternative, Pop-RockПродолжительность: 08:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D191ECCBAFC134196875AF2C1908E7E0D41F9A8
 ```
 
 

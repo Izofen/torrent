@@ -1,3 +1,30 @@
+###  Публикация: 1063135   (434017) от 16.10.2016
+
+VA - Дискотека 80-90 годов по-новому (Зарубежный выпуск - 40) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Boys - London Nights (DJ NIKOLAY-D Remix ) (08:29)
+02. Pulsedriver & Andrew Spencer - Touch Me (Limelight Remix) (05:06)
+03. Beata - Maria Magdalena (K.C. Nightline Club Mix) (04:18)
+04. Yvan & Dan Daniel - Enjoy The Silence (George Acosta Remix) (07:25)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905DFBDAE3882EDCA52423BC9D34D41269616096
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410752   (434052) от 22.09.2020
 
 VA - Expressed Rhythm & Sensual Blues (2020) [MP3|320 Kbps] <R&B, Soul>
@@ -698,33 +725,6 @@ Pino D'angio - Compilation (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8567182B3F39A3838EF52082EB94BC7DE56EF3DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945032   (436168) от 09.10.2015
-
-Александр Буйнов - Место Встречи на HOROSHEE.FM с Валентином Малюговым (2015) [MP3|128 кб/с]<Поп, Интервью>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436168.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Две жизни
-2. В Париже ночь
-3. А ты мне не даёшь
-4. Нам с тобою по пути(   Читать дальше...   )Жанр: Поп, ИнтервьюПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D60AF439003F184D2AF3C40C393E1FAE089E1A
 ```
 
 

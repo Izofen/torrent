@@ -1,3 +1,32 @@
+###  Публикация: 1123060   (793373) от 06.04.2017
+
+VA - Electronic Sound Presents Coldcut: The Ninja Mix (2017) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло 25 лет с тех пор, как Coldcut - диджейский дуэт Мэтта Блэка и Джонатана Мора - основал собственную студию в качестве дома для электронной музыки вдали от разлагающего влияния крупных лейблов.
+Сначала они представляли свои миксы в лондонском музыкальном магазине, где за прилавком работали только черные, а также на пиратских радиочастотах.
+Они продолжили революцию (   Читать дальше...   )01. Roots Manuva - Don't Breathe Out  (2:28)
+02. Romare - Who Loves You?  (1:28)
+03. Sarathy Korwar - Dreaming (Tenderlonius Remix)  (1:38)
+04. Letherette - Shanel  (1:12)(   Читать дальше...   )Релиз состоялся: 27.01.2017Жанр: Electronic, Hip Hop, HouseПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7B238577AFD770CFCAA7BF682F0F32F7CA4006F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386711   (793386) от 30.05.2020
 
 VA - Midnight Flight Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -667,33 +696,6 @@ VA - Always Alive Recordings: Best Of 2018 (Mixed by Daniel Kandi) (2018) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F83646C05F567A251C4114BA83420FFE38FBD5B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274244   (794165) от 06.01.2019
-
-NSDOS - Discography 5 Releases (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Experimental, Field Recording>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DISPERSION (06:16)
- 02. INTERACTION (07:31)
- 03. MOTIVATION (05:19)
- 04. DILUTION (07:50)(   Читать дальше...   )Тип издания: WEBЖанр: Techno/Ambient/Musique Concrete/ExperimentalПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C359716CED1F0C7B83B8C4CEBDA736C72770013
 ```
 
 

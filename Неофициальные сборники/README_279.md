@@ -1,3 +1,30 @@
+###  Публикация: 1058673   (465863) от 02.10.2016
+
+Pet Shop Boys - Mega Collection (2016) [MP3|320 Kbps] <Europop, Synthpop, Euro-Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_465863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Started A Joke  3:19
+02. Men And Maggots  4:57
+03. Betrayed  5:19
+04. Go West (Castro Boy Club Mix)  7:38(   Читать дальше...   )Жанр: Europop, Synthpop, Euro-Disco, EurodanceПродолжительность: 02:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3842720A6A0D3BD826712311B8587485D10FAC37
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568162   (465902) от 06.08.2022
 
 VA - В машине с музыкой Vol.294 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -689,33 +716,6 @@ VA - Душа Шансона. Только лучшее (2011) [MP3|320 kbps]<Ш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010B0CEDAAC40B55C5C211B6C66133ABDA1FDFD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058367   (467745) от 01.10.2016
-
-VA - Only Fresh Club Music Vol.2  (Клубные новинки сентября) (2016) [MP3|320 Kbps] <House, Electro House, Future House и др.>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_467745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый  сборник Only Fresh Club Music Vol.2  (Клубные новинки сентября) составлен из топ-120 самых новых песен этого сезона. В релиз вошла самая актуальная музыка с различных mp3 источников. Музыкальное предпочтение сделано на электронные жанры музыки в стиле: танцевальная, электро-хаус, фьюче-хаус, клаб-хаус, данс, и конечно же лучшие ремиксы и машапы.001. DJ Smash & Craig David - Good Time (Radio Edit)  3:42
-002. Artik & Asti vs Arcade 82 - Кто я тебе (Gumanev & DJ Cosmos Deeptool)  6:18
-003. Gala - Let A Boy Cry (Yastreb Radio Edit)  3:29
-004. Руки Вверх - Королева красоты (Extended Mix)  6:13(   Читать дальше...   )Жанр: House, Electro House, Future House и др.Продолжительность: 09:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4BF72A92D08CBF15728D0B74C4D9EB03776A314
 ```
 
 

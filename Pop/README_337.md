@@ -1,3 +1,83 @@
+###  Публикация: 1356671   (977737) от 31.01.2020
+
+Savage - 2 Сингла (2019, 2020) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Синглы:
+Magic Carillon - 2019
+I Love You - 2020Жанр: Italo-Disco |Продолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7E2B0F9777673545EAAFBC560C83B781B53CD3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356507   (977848) от 31.01.2020
+
+VA - From Disco to Disco 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whomadewho - The Divorce (4:36)
+02. No Gods - Purpose (6:08)
+03. Enzo Elia - Volpinata (7:31)
+04. Roter & Lewis - Better Days (5:52)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 02:13:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B634B29233CBC31889D061EA04ED7E1E4343A2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356637   (977948) от 31.01.2020
+
+Гречка - Из доброго в злое (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977948.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Героев
+2. В моей квартире
+3. Русская тоска
+4. Гранжстайл, Ч. 2(   Читать дальше...   )Жанр: PopПродолжительность: 00:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535DF46A56EE40DBB50DD3C09BC0F912789528B1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 437412   (977956) от 17.01.2012
 
 Mirko Hirsch - Obsession (2011) [MP3|320 kbps]<Disco>
@@ -653,87 +733,6 @@ Bobby Summer - 2 Albums (1999,2002) /Avex Inc. Japan/ [FLAC|Lossless]<Euro House
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972278   (981798) от 06.01.2016
-
-Ottawan - Grand Collection (2006) [FLAC|Lossless|image + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco (English Maxi Version) (05:00)
- 02. You`re OK (05:12)
- 03. Hands Up (Give Me Your Heart) (04:51)
- 04. Crazy Music (05:28)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F74BAB3CD62D30F40B945FE1200285F122EC70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741835   (981899) от 04.01.2014
-
-Татьяна Снежина - Я возвращаюсь скоро (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Листопад
-02. Мне не станет больнее
-03. Я тебя покидаю, прощай
-04. Давай о нас не говорить(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF6C3BBEBE3B783FC3881D5F7273FFBC3E31654
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972689   (981932) от 06.01.2016
-
-WeAreCastor - Invade & Disco (2014) [MP3|320 кб/с] <Alternative Pop, Nu Disco, Funky>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (original mix) (01:07)
-02. Invade & Disco (original mix) (06:15)
-03. Ulrik’s Bicycle (original mix) (03:57)
-04. Projects (original mix) (03:50)(   Читать дальше...   )Жанр: Alternative Pop, Nu Disco, Funky,Продолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE894D59BF1FD1641CF148A6079DA0573C7ADC0
 ```
 
 

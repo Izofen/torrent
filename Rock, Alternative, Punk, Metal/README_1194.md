@@ -1,3 +1,388 @@
+###  Публикация: 608404   (993595) от 25.01.2013
+
+Forgotten Tales - All The Sinners (Japan Edition) (2004) [WavPack|Lossless]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pagan Chronicles Part I - The Hideaway [01:53]
+02. Pagan Chronicles Part Ii - Lady Of The Forest [05:01]
+03. Pagan Chronicles Part Iii - All The Sinners [04:03]
+04. Pagan Chronicles Part Iv - Wind Oh Wind [06:09]
+05. Pagan Chronicles Part V - The Message [04:45]
+06. Pagan Chronicles Part Vi - March For Freedom [04:25]
+07. Three Wishes [08:49]
+08. Fairytales [05:12]
+09. Magic Fountain (Bonus Track) [06:42]
+10. My Soul [04:30](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430716   (993616) от 02.01.2012
+
+Sting - Fifteen Healing Bites (2012) сборник [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shape Of My Heart (4:37)
+02. Fragile (3:55)
+03. Fields Of Gold (3:40)
+04. Moon Over Bourbon Street (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608405   (993677) от 25.01.2013
+
+A Loathing Requiem - Psalms of Misanthropy (2010) [WavPack|Lossless]<Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Annihilation Induced By The Luminous Firestorm [04:46]
+02. Rapturous Euphoria [03:32]
+03. False Gods Render Death [03:21]
+04. Enhanced Sinister Corruption (F/Matt Brown) [03:16]
+05. Ecliptic Realm [03:07]
+06. And Darkness Was Cast [02:24]
+07. Architect Or Arsonist (F/ Christian Mьenzner) [03:17]
+08. The Carnage Of Infinite Black [03:44]
+09. Purged And Forgotten [03:59]Жанр: Technical Death MetalПродолжительность: 00:31:28
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608334   (993704) от 25.01.2013
+
+Pride Of Lions - The Destiny Stone (2004) Japanese Ed. [MP3|320 кб/с]<Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993704.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Courage To Love Somebody (4:23)
+2. Parallel Lines (4:37)
+3. Back To Camelot (6:07)
+4. Born To Believe In You (4:36)
+5. What Kind Of Fool (5:46)
+6. Man Behind The Mask (5:08)
+7. Light From A Distant Shore (5:48)
+8. Letter To The Future (4:36)
+9. The Destiny Stone (6:09)
+10. Second Hand Life (4:29)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D001FA5DEEBE32444CB8C50B232CA3329C11CD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608262   (993715) от 25.01.2013
+
+Sons Of Aeon - Sons Of Aeon (2013) [MP3|320 кб/с]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faceless (7:41)
+02. Cold Waves (3:48)
+03. Burden (5:30)
+04. Enemy Of The Souls (4:23)
+05. The Centre (03:51)
+06. Havoc & Catharsis (3:52)
+07. Weakness (6:37)
+08. Seeds Of Destruction (3:25)
+09. Wolf Eyes (3:55)
+10. Black Sheep Process (5:45)Жанр: Melodic Death MetalПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7B67299A9E352B57AC198B728B5E0D5F8CC9B7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608081   (993994) от 24.01.2013
+
+Евгений Маргулис - Маргулис (2013) /WEB/ [FLAC (tracks)|Lossless]<Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Надоело(А)
+02. Курить
+03. Неботва
+04. Рок-н-ролл (Памяти Сергея Кавагоэ)
+05. Не надо так
+06. R.le.Kino
+07. Заносит
+08. Война
+09. Ловец
+10. I love u(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607903   (994019) от 24.01.2013
+
+Helloween - Straight Out Of Hell (Limited Edition) (2013) [FLAC|Lossless]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nabataea (7:02)
+02. World of War (4:57)
+03. Live Now! (3:11)
+04. Far from the Stars (4:43)
+05. Burning Sun (5:34)
+06. Waiting for the Thunder (3:54)
+07. Hold Me in Your Arms (5:11)
+08. Wanna Be God (2:02)
+09. Straight Out of Hell (4:35)
+10. Asshole (4:10)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:55
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607774   (994142) от 24.01.2013
+
+Jorn - Symphonic (2013) [MP3|320 кб/с]<Symphonic, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Came to Rock
+ 02. Rock and Roll Children
+ 03. The World I See
+ 04. Burn Your Flame
+ 05. Man of the Dark
+ 06. My Road
+ 07. Time to Be King
+ 08. Black Morning
+ 09. Like Stone in Water
+ 10. Vision Eyes(   Читать дальше...   )Жанр: Symphonic, Heavy MetalПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA7321220742F5E39F7002B5E83044E89D6A945
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607617   (994168) от 24.01.2013
+
+California X - California X (2013) [MP3|320 кб/с]<Sludge Noise Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sucker
+ 02. Curse Of The Nightmare
+ 03. Pond Rot
+ 04. Hot Hed
+ 05. Spider X
+ 06. Lemmy’s World
+ 07. Spirit World
+ 08. MummyЖанр: Sludge Noise RockПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF0F4A1D10C51497AC5D480673240591EA84068
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607604   (994219) от 24.01.2013
+
+Proven Decadence - Equilibrium Meltdown (EP) (2012) [MP3|320 кб/с]<Progressive Deathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (0:52)
+
+ 02. Material Dreams (2:28)
+
+ 03. Unveiling The Realness (4:27)
+
+ 04. For All The Chances That We've Missed (1:36)
+
+ 05. Things That Really Matter (3:48)Жанр: Progressive DeathcoreПродолжительность: 00:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6859B6341283640973EDCA3B531661BEE3C0B379
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607313   (994455) от 23.01.2013
+
+Bullet For My Valentine - The Poison (2006) [FLAC|Lossless]<Heavy Metal, Rock, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 		Intro  	2:21
+02. 		Her Voice Resides 	4:18
+03. 		4 Words (To Choke Upon) 	3:44
+04. 		Tears Don't Fall 	5:48
+05. 		Suffocating Under Words Of Sorrow (What Can I Do) 	3:36
+06. 		Hit The Floor 	3:30
+07. 		All These Things I Hate (Revolve Around Me) 	3:45
+08. 		Room 409 	4:01
+09. 		The Poison 	3:39
+10. 		10 Years Today 	3:56(   Читать дальше...   )Жанр: Heavy Metal, Rock, HardcoreПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 607521   (994489) от 23.01.2013
+
+Clockwork Times & Middlename - Sport (2013) [MP3|320 кб/с]<Ska Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clockwork Times - Вместо... (3:08)
+02. Clockwork Times - Спасибо! (3:35)
+03. Clockwork Times - Мои Привычки (3:10)
+04. Clockwork Times - Internet Boy (2:34)
+05. Clockwork Times - Спорт (2:14)
+06. Middlename - От А До Я (3:06)
+07. Middlename - Моя Жизнь (3:14)
+08. Middlename - Забытый Понедельник (2:52)
+09. Middlename - Что Ты За Птица? (4:18)Жанр: Ska PunkПродолжительность: 00:28:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C6BE4DB399322BD5EC183ACF7B1C849EBF34732
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607240   (994491) от 23.01.2013
 
 Geordie - Greatest Hits (2CD) (2012) [MP3|320 кб/с]<Classic Rock>
@@ -443,378 +828,6 @@ Velcra - 3 Альбома (2002-2007) Дискография [FLAC|Lossless]<Ind
 06. We Must Start Again
 07. Nautifungus
 08. Higher State Of Truth(   Читать дальше...   )Тип издания: ДискографияЖанр: Industrial Metal | Electronic | Rapcore | Female VocalПродолжительность: 00:46:43 >>>
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605408   (995947) от 19.01.2013
-
-Angellore - 2 EP (2008-2009) [MP3|128 кб/с]<Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995947.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Atmospheric Doom MetalПродолжительность: 00:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE408B204B67033AD7D29DDF0B6CE8AD932C4BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605186   (995948) от 19.01.2013
-
-Zaraza - 2 альбома + Demo (1994 - 2003) Дискография [MP3|320 кб/с]<Industrial Doom Metal/Experemental Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Necessary (13:26)
-02. 24 Hours (6:21)
-03. A Quickie (Screw Rave) (3:06)
-04. A Foreplay (Screw Seduction) (1:59)
-05. A Screw (5:28)
-06. Zaraza (16:23)
-07. Slavic BlasphemyЖанр: Industrial Doom Metal/Experemental MetalПродолжительность: 02:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A9E4BA4A0A58593B02C093BCD891323C1DF8FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604710   (995989) от 18.01.2013
-
-Hollywood Undead - Notes From The Underground (2013) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Bite (03:38)
-02. From The Ground (03:45)
-03. Another Way Out (02:47)
-04. Lion (03:54)
-05. We Are (04:34)
-06. Pigskin (02:41)
-07. Rain (03:41)
-08. Kill Everyone (02:52)
-09. Believe (04:14)
-10. Up In Smoke (03:39)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2EE7A87937BD24F5ADAF63EA713EBFDD7288B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604592   (996170) от 18.01.2013
-
-The Courteeners - ANNA (2013) [MP3|320 kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You In Love With A Notion (04:15)
-02. Lose Control (03:48)
-03. Van Der Graaff (03:40)
-04. Push Yourself (03:25)
-05. When You Want Something You Can 't Have (04:06)
-06. Welcome To The Rave (04:07)
-07. Save Rosemary In Time (03:27)
-08. Sharks Are Circling (04:16)
-09. Marquee (03:58)
-10. Money (03:23)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B05D57336F791482C762D692BC3FEE36C9DCA01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604685   (996184) от 18.01.2013
-
-Everything Everything - Arc (2013) [MP3|320 кб/с]<Indie-Rock, Indie-Pop, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cough Cough - 3:42
-02. Kemosabe - 3:44
-03. Torso Of The Week - 4:34
-04. Duet - 3:42
-05. Choice Mountain - 3:24
-06. Feet For Hands - 3:56
-07. Undrowned - 3:01
-08. _Arc_ (Album Version) - 1:29
-09. Armourland - 3:41
-10. The House Is Dust - 3:29(   Читать дальше...   )Жанр: Indie-Rock, Indie-Pop, ExperimentalПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAB740502B1BD782E5A7763084D2E5D7EAA5FC48
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604565   (996185) от 18.01.2013
-
-Coheed and Cambria - The Afterman: Descension (2013) [MP3|320 kbps] <Alt. Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretelethal (03:21)
-02. Key Entity Extraction V: Sentry The Defiant (05:44)
-03. The Hard Sell (05:10)
-04. Number City (03:48)
-05. Gravity's Union (06:45)
-06. 06 Away We go (03:55)
-07. Iron Fist (04:45)
-08. Dark Side Of Me (05:02)
-09. 2's My Favorite 1 (04:54)Жанр: Alt. RockПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D46C0D914E76D9305FBB56C9429CCA7B2DB9BE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604704   (996190) от 18.01.2013
-
-Волчий острог - Багряный восход возрождения (2012) [MP3|219-269 kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лишь эта земля (02:03) [219kbps]
-02. Змея тетивы (05:21) [262kbps]
-03. Воители луны (04:43) [263kbps]
-04. Волчий острог (03:29) [269kbps]
-05. По деяниям тропа (02:19) [232kbps]
-06. Наши мечи (06:48) [253kbps]
-07. Вены взрывает звериная кровь (05:37) [260kbps]
-08. Багряный рассвет возрождения (04:51) [245kbps]
-09. На руинах Аркаима (03:29) [246kbps]
-10. Потомки хранителей воли Богов (03:20) [264kbps](   Читать дальше...   )Жанр: MetalПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F369B299FC62604A90BCE22BCD8C16593DECB97E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604588   (996200) от 18.01.2013
-
-Mutiny Within - Mutiny Within 2: Synchronicity (2013) [MP3|320 kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embers (02:57)
-02. In My Veins (03:25)
-03. In a Moment (03:20)
-04. Falls to Pieces (04:05)
-05. Machines (03:54)
-06. Never (03:08)
-07. Become (04:22)
-08. Lights (04:24)
-09. Balance (04:26)
-10. Life to Dust (04:08)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62783DE404EEFA5DFF50CF4C2315AE8FAEE554DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604849   (996204) от 18.01.2013
-
-Infernal Poetry - Paraphiliac (2013) [FLAC|Lossless]<Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996204.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Preliminaries 01:09
-2. Stumps 03:20
-3. In Glorious Orgy 04:07
-4. Hypertrophic Jellyfish 04:27
-5. Everything Means "I" 03:54
-6. Barf Together 04:22
-7. Cartilages 03:49
-8. The Copy / Paste Syndrome 03:44
-9. The Miss-Treated 03:00
-10. Paraphilias 04:30Жанр: Death MetalПродолжительность: 00:36:22
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604711   (996205) от 18.01.2013
-
-Newsted - Metal (2013) EP [MP3|320 kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soldierhead (04:16)
-02. Godsnake (05:16)
-03. King of the Underdogs (06:00)
-04. Skyscraper (06:37)Жанр: MetalПродолжительность: 00:22:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C931F9EE2F4B5AAC36C6A54D8F4F19006205561
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604591   (996207) от 18.01.2013
-
-Stained Blood - One Last Warning (2013) [MP3|320 kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vulcan (01:19)
-02. Mind Control (04:04)
-03. Close Horror (03:49)
-04. The Loser (04:20)
-05. Monster Inside (03:56)
-06. One Last Warning (03:49)
-07. Another Test In The 4th Stage (03:33)
-08. Rotten Roots (02:44)
-09. Shadows Throne (04:17)Жанр: Melodic Death MetalПродолжительность: 00:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D32834228A88CF42AD0D9C292DB63C52C5A8DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604512   (996229) от 18.01.2013
-
-Dreams After Death - 2 альбома (2011-2012) Дискография [MP3|320 кб/с]<Atmospheric Funeral Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_996229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anger (9:00)
-02. Worry (8:46)
-03. Sadness (7:27)
-04. Peace (9:10)
-05. Love (13:11)
-06. Nothingness (13:31)Жанр: Atmospheric Funeral Doom MetalПродолжительность: 01:58:43
 
 ## Скачать торент
 ```bash

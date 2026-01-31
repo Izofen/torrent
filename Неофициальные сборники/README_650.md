@@ -1,3 +1,36 @@
+###  Публикация: 602777   (997579) от 13.01.2013
+
+VA-Зимняя русская best-of-ка (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997579.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Electrofashion Feat. Mc Жан - Пришелец
+ 002. Вне Времени - Не Звони Мне
+ 003. В Двух Шагах - Сердце
+ 004. Elvira T - Одержима
+ 005. Макс Барских - Supermassive Black Hole
+ 006. Ранетки - Ревность
+ 007. Ирина Кулькова - Я Искала Тебя
+ 008. Натаника - Налетели
+ 009. Светлана Разина - Радио НАХ
+ 010. Isamin - О Тебе(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07DF64F905CC6395D62160E861DDABEDD8E48CA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602693   (997582) от 13.01.2013
 
 VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
@@ -808,39 +841,6 @@ VA - Euphoric Emotions Vol.41 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFD48D4287AD8292DD27A6C00D23487D7B576A70
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597126   (1000335) от 02.01.2013
-
-VA - Happy New Year! Инструментальная музыка 2013 [MP3|320 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1000335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анс. Мелодия - День добрый!
-02. Per Gessle - Ett Perfekt Agg
-03. Manuel Granada - Las Hojas Muertas
-04. The Romantic Accordeon - Hooked On Country
-05. The Daydream - Ocean And D Major
-06. F.Papetti - Caruso
-07. 101 Strings Orchestra - The Blue Danube
-08. B.Malgo - Du Bist Mein Zufluchtsort
-09. Bahramji & Maneesh De Moor - Return Of The Nightingale
-10. Chip Davis & CPO - Hark! The Herald Angels Sing (christmas theme)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 07:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807B7304C24797B81A625E286905069E1C78D51F
 ```
 
 

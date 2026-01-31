@@ -1,3 +1,27 @@
+###  Публикация: 1038274   (607793) от 27.07.2016
+
+AbleBits Ultimate Suite for Excel 2016.2.325.1187 [En]
+
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607793.jpg" />
+</div>
+
+
+###  Подробнее
+
+AbleBits Ultimate Suite for Excel представляет собой комплексный набор инструментов для Excel, которые были накоплены AbleBits за 15-летний опыт создании Microsoft Office. На протяжении многих лет добавляли новые функции, которые появлялись с каждой новой версией Excel и совершенствовали код, чтобы сделать инструменты столь совершенными, какими они могут быть.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:042571D23608C35686EE0B01F111A9CBA80CC73F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546167   (609164) от 22.04.2022
 
 Windows Update MiniTool 22.04.2022 Portable [Multi/Ru]
@@ -599,30 +623,6 @@ DATALABS unCHK free 1.0 Portable [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00654B3A02C7001D73DF5EE826D54B2FB24F0979
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228979   (631824) от 03.06.2018
-
-CoolUtils Total Excel Converter 5.1.0.255 RePack by вовава [Ru/En]
-
->>Утилиты, Офис, Интернет
->>Офисное ПО
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_631824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта утилита несомненно пригодится тем, кто часто конвертирует файлы Excel и Excel 2007 в Word (Doc и DocX), PDF, HTML, Access, TXT, ODT, ODS, XML, SQL, CSV, Lotus, DBF, TEX, DIFF, SYLK, LaTeX. Total Excel Converter поддерживает практически любые таблицы, включая документы OpenOffice (.odt, .ods).Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BC35B56F672E04A34E0A4133BEA206CDD2D987
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1363647   (941890) от 28.02.2020
+
+VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eddie Bitz - Believe (Sincere Sound Remix) (6:34)
+02. Phillipo Blake - Ripples (Zmey Remix) (6:34)
+03. Nikk Nova - 4 Seasons (Alexey Sorokin Remix) (5:53)
+04. Briana - Life Keeps On Going (Goldhands Remix) (6:36)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:21:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C82FA1C355E70C2E6F9FD4F77E68D29A5FFECA9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090210   (941991) от 28.02.2020
 
 cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroit] [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Techno>
@@ -665,33 +692,6 @@ Kai Tracid - In Da Club: Back to School (2010)[MP3|320 kbps]<Trance, Vocal Tranc
 ## Скачать торент
 ```bash
 нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983411   (943610) от 06.02.2016
-
-Scooter - Ace (2016) /Scene/ [FLAC|Lossless|tracks] <Deep House, Tech House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace
-02. Oi
-03. Mary Got No Lamb
-04. Riot(   Читать дальше...   )Жанр: Deep House, Tech House, TranceПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:918F419CBCB2D1B8A831B480F4148F3E108058E6
 ```
 
 

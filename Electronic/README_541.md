@@ -1,3 +1,30 @@
+###  Публикация: 1848676   (1052926) от 18.01.2026
+
+VA - Levitated Trance - Highlights 2025 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manuel Rocca - Once In A Lifetime (Extended Mix) [7:17]
+02. Made Of Light & Vanessa Berni - Enjoy The Silence (Extended Mix) [7:22]
+03. Alternate High - Hope (Extended Mix) [6:41]
+04. Manuel Rocca - Brighter Than Sunshine (Extended Mix) [7:15](   Читать дальше...   )Жанр: TranceПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0429E141382DE36F3E0D12A8E2252AEEE02DF5CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848679   (1052935) от 18.01.2026
 
 VA - Winter Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -424,6 +451,249 @@ VA - Trance Pathways #01 (2026) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9546D081AEFC87BE29D80BA37F0B533B38387473
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850144   (1053959) от 
+
+VA - Best Chillout Music - Fashion Forward Edition (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kaxamalka - Bugambilia (04:00)
+ 02 - Breviarium Musicae - Aubade (04:10)
+ 03 - Vis et Spes - Love Play (04:30)
+ 04 - Lichterloh - Douceur (04:26)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B1FABB5AD257E858E598A9F45F8BDA34BE47EA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850056   (1054014) от 
+
+VA - Breeze & Echoes: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pier-O - White Sands (Original Mix) (5:13)
+02. Marga Sol, Digby Jones - What I Need (Original Mix) (4:38)
+03. Soultekk - Nizza (MidNight Sax Mix) (4:36)
+04. Lennart Richter - Ride Along (Original Mix) (3:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF415F90EA381E7393E9188BF7BDC23E698C785
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850052   (1054015) от 
+
+Solaris D - The Arrival (2026) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running [00:04:10]
+02. Dark Flower [00:04:12]
+03. Friends Like Us [00:06:42]
+04. Way Back Home [00:03:50](   Читать дальше...   )Жанр: synthpopПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CA5171C574C537B9BC198DFCE75EECE41FE11D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850039   (1054016) от 
+
+Chrom - Best Of (2026) [FLAC|Lossless|WEB-DL|tracks] <future-pop, synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories [00:05:18]
+02. In My World [00:04:31]
+03. Loneliness [00:05:38]
+04. The Start of Something New [00:05:31](   Читать дальше...   )Жанр: future-pop, synth-popПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BE645FC0C1DCE3290C37FD77F2D0076CF3C918
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850046   (1054017) от 
+
+Matisse & Sadko - Live @ Ciné Saigon, Vietnam (2026-01-03) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matisse & Sadko – ID (Intro Edit)
+02. Matisse & Sadko – Higher w/ Matt Caseli & Danny Freakazoid – Raise Your Hands (Acappella)
+03. Lewis Capaldi – Someone You Loved (Martin Garrix & Matisse & Sadko Remix)
+04. Third ≡ Party – Superstylin'(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B64ED298E7E8AAF7F609B72C7771FDAB744EA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850010   (1054053) от 
+
+Jupiter Panic - Days of Sorrow (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Days of Sorrow (3:27)
+02. The Return (5:07)
+03. Retired by a Mistake (3:19)
+04. Futura (4:51)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0317497C952F037D082CF64A0087CCB6C035CED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850016   (1054054) от 
+
+Jupiter Panic - Reboot (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reboot (4:22)
+02. Reinitialization (3:02)
+03. Revitalization (5:02)
+04. Reconsideration (3:12)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD8336293D66668A3A52060BA52320818CF6CF3F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850319   (1054155) от 
+
+VA - Uplifting Only Top 15: January 2026 (Extended Mixes) (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kvaii - Tenderness In Dreams (Intro Mix) [5:42]
+02. Evebe & Danny Claire - Everything (Timo Pralle Extended Remix) [5:54]
+03. Alex Nomak & Yuri Melnikov - Endless Spring (Extended Mix) [6:59]
+04. Mhammed El Alami & NELLY TGM - We Are One (Extended Mix) [6:31](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F8B4970020A542195CE016CF35E00DF3C1D69D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850311   (1054208) от 
+
+VA - Dance Charge Of The Night (2026) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054208.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Confidence Man - Control (02:52)
+ 002. Baby Jane - Reincarnate (02:26)
+ 003. Dj BalooMiss J - Afro Disco Jungle (04:22)
+ 004. Dj Renat - Alhawaa (04:47)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 11:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D252A57C3518BFACE3587957C88E51DB3882A99
 ```
 
 

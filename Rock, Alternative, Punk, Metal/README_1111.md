@@ -1,3 +1,340 @@
+###  Публикация: 1496412   (872702) от 17.09.2021
+
+Гарик Сукачёв & Александр Ф. Скляр - Боцман и бродяга. Часть 2 (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872702.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Привет морскому ветру
+2. Поезд уходит далеко
+3. И снова май месяц
+4. Когда придёт весна, не знаю(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552CC1488086074194B37A0E424E17C7063014E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496437   (872717) от 17.09.2021
+
+Billy Idol - The Roadside (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rita Hayworth
+02. Bitter Taste
+03. U Don't Have To Kiss Me Like That
+04. Baby Put Your Clothes Back OnЖанр: Punk Rock, RockПродолжительность: 00:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D289D9905BE0926EEBF715641A1C605A80EF5E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496224   (872722) от 17.09.2021
+
+Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [MP3|320 Kbps] <Score>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song of the Sisters [00:16:25]
+02. I See You in My Dreams [00:18:25]
+03. House Atreides [00:13:54]
+04. The Shortening of the Way [00:11:14](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF7CBD94EECA77EB0B1D5ECDD6CD816FD7DEB484
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496417   (872725) от 17.09.2021
+
+Billy F Gibbons - Stepping Out Of ZZ Top： Rare And Unreleased Vol. 1⁄ 2 (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock, Boogie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872725.jpg" />
+</div>
+
+
+###  Подробнее
+
+45 раз Билли Гиббонс выходил из топа ZZ.
+Billy F Gibbons — это человек, который все свои шедевры выдал с помощью монеты в 25 центов. В течение 30 лет гитаристу ZZ Top Билли Гиббонсу запрещали сотрудничать с другими артистами. Директива исходила от импресарио Билла Хэма, который начал работать с группой в самом конце 60-х и подтолкнул их к успеху. Он хотел защитить (   Читать дальше...   )--------------------------
+
+01. 2001: John Mayall ' Put it right back' (4:34)
+02. 2002: Hank Williams III, 'Trashville' (3:14)(   Читать дальше...   )Жанр: Hard Rock, Blues Rock, Boogie RockПродолжительность: 02:33:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957579F5ABF7E40CADDB4158EB25C4057988B140
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496465   (872847) от 17.09.2021
+
+VA - 100 Greatest Britpop Songs (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oasis - Wonderwall (Remastered) 4:19
+02. Pulp - Common People 5:50
+03. Oasis - Live Forever 4:37
+04. Blur - Song 2 (2012 Remaster) 2:01(   Читать дальше...   )Жанр: RockПродолжительность: 06:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9541DF8E091CA8DA6EE2D36BF626F1A04BF08DBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496395   (872857) от 17.09.2021
+
+Eternal Flight - SurVive (2021) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will We Rise Again
+02. Hear The Call
+03. Legions
+04. The Promise(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCEDA4FF28BA02FA3B3F02948823B4BB30D92AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300902   (872933) от 26.02.2011
+
+Shakra - Back On Track (2011) [MP3|320 kbps]<Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B True B You (3:55)
+02. I'll Be (3:34)
+03. Crazy (3:41)
+04. Back On Track (3:29)
+05. When I See You (3:58)
+06. MMTWGR (3:32)
+07. Yesterday's Gone (4:59)
+08. Someday (4:04)
+09. Lonesomeness (3:36)
+10. Unspoken Truth (4:42)(   Читать дальше...)Жанр: Hard rockПродолжительность: 47:51
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300975   (872934) от 26.02.2011
+
+Die Apokalyptischen Reiter - Moral & Wahnsinn (2011) [FLAC|Lossless]<Folk / Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Boten (3:28)
+02. Gib dich hin (3:51)
+03. Hammer oder AmboЯ (3:34)
+04. Dir gehort nichts (3:03)
+05. Dr. Pest (3:54)
+06. Moral & Wahnsinn (3:12)
+07. Erwache (3:33)
+08. Heimkehr (1:45)
+09. Wir reiten (3:57)
+10. Hort auf (3:30)(   Читать дальше...)Жанр: Folk / Melodic Death MetalПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374447   (872978) от 10.04.2020
+
+Laura Marling - Song for Our Daughter (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandra (03:19)
+02. Held Down (04:07)
+03. Strange Girl (03:21)
+04. Only the Strong (03:20)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CEAE938639CAE2FE57055201A08BCCBBA687EF3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374525   (872980) от 10.04.2020
+
+Frei.Wild - Corona Quarantane Tape (2020) [MP3|320 Kbps] <Deutschrock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corona Weltuntergang (3:19)
+02. Alles, alles was mir fehlt (3:28)
+03. Wir gehen Dir ewig auf die Eier (3:16)
+04. Nur das Leben in Freiheit (5:58)(   Читать дальше...   )Жанр: DeutschrockПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79CA3962108875EFC8A970277DADDCBEB71C0699
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374585   (872981) от 10.04.2020
+
+Mungo Jerry - Touch the Sky (2020) [MP3|320 Kbps] <Blues, Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch the Sky
+02. You'll Be Sorry
+03. Rhythm is a Healer
+04. I'll Be a Hippy 'Til I Die(   Читать дальше...   )Жанр: Blues, Rock, Classic RockПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABA25244931865EBDBE425B0D6054603BC1E2EF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374521   (872990) от 10.04.2020
+
+Dream On Dreamer - What If I Told You It Doesn't Get Better (2020) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel so Empty
+02. Disappear
+03. Explicit
+04. Fade Away(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:37:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4661B67156E0AE76D7735053AC61D8F4A1109DE9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374540   (872992) от 10.04.2020
 
 The Dream Syndicate - The Universe Inside (2020) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
@@ -376,342 +713,6 @@ Sturmmann - Sturmzeit (2017) [MP3|320 Kbps] <Industrial Metal, Neue Deutsche Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2E702481CF17BAFDF478A8A1DA2D17A612A37F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496398   (873221) от 17.09.2021
-
-Tales Of The Old - The Book Of Chaos (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavens In War
-02. Fallen Angels
-03. Beware
-04. Dark Witch(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0BCF2A91D52C2472752FB451C0BC0286B67930
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187806   (873233) от 30.03.2010
-
-Bon Jovi - Best Ballads (1997) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blaze Of Glory
-02. Diamond Ring
-03. Always
-04. Never Say Good-Bye
-05. Living In Sin
-06. This Ain't A Love Song
-07. Bed Of Roses
-08. Dying Ain't Much Of A Living
-09. Wanted Dead Or Alive
-10. One Light Burning(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186869   (873239) от 30.03.2010
-
-VA Rock Ballads - Сборник (2009) [MP3|320 kbps]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beatles - Yesterday (2:05)
-02. Smokie - What Can I Do (3:40)
-03. Helloween - A Tale That Wasn't Right (4:45)
-04. Kate Bush - Army Dreamers (3:15)
-05. Rod Stewart - Sailing (4:22)
-06. Smokie - Stranger (3:16)
-07. The Platters - Onlu You (2:39)
-08. The Beatles - And I Love Her (2:28)
-09. Rare Bird - Sympathy (2:45)
-10. The Beatles - I'll Be Back (2:20)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:07:58
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997515   (873281) от 17.03.2016
-
-Led Zeppelin - Ballads (2014) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Baby I'm Gona Leave You (06:46)
-02 - Thank You (04:51)
-03 - Since I've Been Loving You (07:27)
-04 - Stairway To Heaven (08:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43998707B1E01E2374CAE79861B9C9B8B8D36286
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997598   (873282) от 17.03.2016
-
-Van Canto - Voices Of Fire (2016) Limited Edition [FLAC|Lossless|image + .cue] <A Capella Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue 02:56
-02. Clashings On Armour Plates 04:06
-03. Dragonwake 05:12
-04. Time And Time Again 04:22(   Читать дальше...   )Жанр: A Capella Power MetalПродолжительность: 00:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D4B3F8C15B72D17EDE5D0AFB41257C3DBAFCD9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496414   (873352) от 17.09.2021
-
-Магелланово Облако - Вместе (2021) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873352.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лепесток
-2. Тысяча Лун
-3. Берег
-4. Доза красоты(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D0EC4DC0571D2ECAEEB98B25626AB911E9D485
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496416   (873357) от 17.09.2021
-
-Наконечный - Экзистенциализм (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873357.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Просыпайся (feat. Йорш)
-2. Ромашка
-3. Сердце
-4. Пылинки(   Читать дальше...   )Жанр: RockПродолжительность: 00:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD82BBAAD6FEDA6AA63E5DC924AAE1249B054B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496383   (873358) от 17.09.2021
-
-Spitfire - Do Or Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride It Like You Stole It
-02. Like A Lady
-03. Writings On The Wall
-04. Do Or Die(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040F5C1C253B8BB81A8A3CE4BF18AB44544518A3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496365   (873359) от 17.09.2021
-
-Carcass - Torn Arteries (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Torn Arteries
-02. Dance Of IXTAB (Psychopomp & Circumstance March No.1 In B )
-03. Eleanor Rigor Mortis
-04. Under The Scalpel Blade(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:49:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B5CD62ACD01D43CB2663D3A0824E62BE64F80F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496258   (873362) от 17.09.2021
-
-Rage - Resurrection Day (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкие пауэр-металлисты RAGE выпустят новый студийный альбом “Resurrection Day” 17 сентября на лейбле SPV/Steamhammer.01. Memento Vitae (Overture)
-02. Resurrection Day
-03. Virginity
-04. A New Land(   Читать дальше...   )Жанр: Heavy Metal, Speed Metal, Power MetalПродолжительность: 00:50:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C459BDF94CF47A8C9D8D8CC9F20A2FED35ACEF7E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496419   (873364) от 17.09.2021
-
-AveNue - Килиманджаро (2013) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873364.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Килиманджаро
-2. Чихуахуа
-3. Просто оставьте в покое
-4. Разговор(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E578B1535661212FBE500474508E1C4DA62F83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496393   (873366) от 17.09.2021
-
-Robin Red - Robin Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_873366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Leave Me (With A Broken Heart)
-02. (I’m A) Bad Habit
-03. Everlyn
-04. Freedom(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B410EB84E61BD89F8A5F34F62DB07EFC08711A0
 ```
 
 

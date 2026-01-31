@@ -1,3 +1,192 @@
+###  Публикация: 1037464   (613426) от 24.07.2016
+
+Paul Mauriat - C'est La Vie ... Lily & Comme J'ai Toujours Envie D'aimer (2016) [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613426.jpg" />
+</div>
+
+
+###  Подробнее
+
+C'est La Vie ...Lily (1970)
+01. Julietta [0:02:42.20]
+02. Raindrops Keep Fallin' On My Head [0:02:53.53]
+03. Paris S'allume [0:02:10.01](   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 01:19:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046BAD7CFC2A5363B271D244422A3479E9131622
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296112   (613446) от 16.04.2019
+
+Bernward Koch - Filled with Light (2017) Real Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summer Anthem (6:15)
+ 02. Crystal Light (4:11)
+ 03. Free (3:48)
+ 04. That June Feeling (6:55)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:55:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B017DDF31EDBD51E7E808C06C6B452E227BC4CC9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 804149   (613686) от 13.07.2014
+
+Blood And Sun – White Storms Fall (2014) [FLAC|Lossless|tracks + .cue]<Neofolk, Dark Ambient, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hewn   (0:42)
+02.  Merciless Master   (3:19)
+03.  Fell   (0:18)
+04.  Veiled Lady   (3:13)(   Читать дальше...   )Жанр: Neofolk, Dark Ambient, FolkПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C169EF48B23BF91693773EDD801852BCE9237EB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037277   (613768) от 24.07.2016
+
+VA - Putumayo Kids Presents - Hawaiian Playground (2008) [FLAC|Lossless|tracks + .cue] <World>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moonlighters / Right On [0:02:09.49]
+02. Willie K / Holoholo Ka'a [0:02:14.32]
+03. Ehukai / Moloka'i Slide [0:03:54.11]
+04. Teresa Bright / The Cockeyed Mayor of Kaunakakai [0:02:06.66](   Читать дальше...   )Жанр: WorldПродолжительность: 00:29:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3B0839711DDE30FBEEEDF81C5E8AB955FD8134
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037371   (613855) от 24.07.2016
+
+Andreas Vollenweider - ...Behind The Gardens - Behind The Wall - Under The Tree... (1981) released on CD 1984 [FLAC|Lossless|tracks + .cue] <Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Behind the Gardens/Behind the Wall/Under the Tree  7:20
+02.  Pyramid-In the Wood-In the Bright Light  7:53
+03.  Micro-Macro  2:49
+04.  Skin and Skin  3:22(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3630D6E463701AD000B55EAD80AE40FAF2D94DA9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037458   (613965) от 24.07.2016
+
+Jamie Llewellyn - Muzyka do spania: Marzy delfinow (To Dream of Dolphins) (2014) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_613965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dziewczyny delfin
+02. Syrenka (& Juliana)
+03. Muzyka do spania Marzy delfinow
+04. Szukam delfinami(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C4C63158300E826A551D8144FDEFA09680A1A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230622   (614052) от 13.06.2018
+
+Jonathan Goldman – Ambient Realms (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_614052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dreamtime Initiation
+02 – Crystal Journey
+03 – Ocean Calling
+04 – Equinox Ambience(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFDEBEBDA4C5F127F6B80B73536BACBE33EF6AF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912048   (614083) от 24.06.2015
 
 Leo Rojas - Das Beste (2015) [MP3|320 кб/с]<New Age, Native American, Panflute, Folk>
@@ -530,195 +719,6 @@ Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295510   (618799) от 13.04.2019
-
-Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J'trouve ça beau (3:26)
-02. Les pieds dans le vide (3:09)
-03. Mon âme soeur est ailleurs (3:26)
-04. Années lumière (4:05)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2C2F652E878C8B0E819734A91D278B08F215DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036606   (618992) от 21.07.2016
-
-Saint-Preux - Odyssee (1986) [FLAC|Lossless|image + .cue] <Instrumental, Neoclassical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Profondeurs
-02 - Le Royaume de Neptune
-03 - Symphonie du temps perdu
-04 - Fantasme(   Читать дальше...   )Жанр: Instrumental, NeoclassicalПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4F26F72B510B1B5DE9000200B56EDD63A90338
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230092   (619064) от 10.06.2018
-
-Paul Sills - Universe Within (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Emptiness
-02 – The First Heartbeat
-03 – Twin Worlds
-04 – Endless(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08406FDA36671600D17A0E1117A887882752166
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230108   (619070) от 10.06.2018
-
-Paul Sills - Aniem (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beyond Forever (6:45)
-02. Sea of Mountains (8:10)
-03. Aniem (8:25)
-04. Forever Together (6:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21F661F0F326440AD8A83B0718A253AFE53EEBD5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036710   (619137) от 21.07.2016
-
-VA - Celtic Collection 1 (2016) [MP3|320 Kbps] <New Age, World, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gandalf - Love is the Answer
-02. Paul Machlis - Greenwoods
-03. Ceredwen - Morwyn y Blodau (Lady of the Flowers)
-04. Eamonn Karran - Distant Sun(   Читать дальше...   )Жанр: New Age, World, CelticПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B959054252280DA631B11BC9C66AC18D25114A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 683411   (619656) от 28.07.2013
-
-Vangelis - Light And Shadow: The Best Of Vangelis (2013) [MP3|320 Kbps] <Electronic, New Age, Ambient>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619656.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Conquest Of Paradise (4:48)
-2.  Voices (6:52)
-3.  Blade Runner (Main Titles) (3:35)
-4.  Tears In Rain (2:54)(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1BA9FF71774FAC21E5DF3F78A2B92B7D2D000F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145054   (619710) от 26.06.2017
-
-David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fidei Defensor (4:56)
-02. Siempre Fidelis (4:08)
-03. In Hoc Signo Vinces (4:06)
-04. Domine Dirige Nos (3:44)(   Читать дальше...   )Жанр: Epic, New Age, EnigmaticПродолжительность: 01:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCCDDBD69A164C7E86B5C649CE1C96B7BA416A7
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1133945   (691304) от 14.05.2017
+
+VA - Vocal Deep House Vol.28 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691304.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Garibay Feat. Olaf Blackwood - I Need You 3:27
+002. Ilkay Sencan - Back To Life 3:11
+003. Gregor Salto Feat. Chappell - Your Friend (Nando Fortunato Edit) 6:35
+004. Rag'n'bone Man - Human (Andrey Exx & Sharapov Remix) 4:59(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:10:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D30B86092E46CB6DB1F09C48A4DF07CD68C322CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133621   (691308) от 14.05.2017
 
 VA - Весенний хит русского шансона. Сборник № 9 (2017) [MP3|256 Kbps] <Шансон>
@@ -668,33 +695,6 @@ VA - Hard'n'Heavy Collection (2016) [MP3|256 кб/с] <Hard'n'Heavy, Hardcore, N
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE47E1F7B43999224D307E2DDA7AC8BE17D06BAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028201   (692759) от 21.06.2016
-
-VA - Jazz Lounge: Beautiful Jazz Moments, Cool Piano, Jazz Friday Night, Smooth Jazz (2016) [MP3|320 кб/с] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_692759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz 2016 - Jazz Lounge
-02. New York Jazz Lounge - Romantic Jazz
-03. Coffee Shop Jazz - Bossa Scousa
-04. Chilled Jazz Masters - All That Jazz(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF63B5AE0E29F3D63577327F32309E577090C378
 ```
 
 

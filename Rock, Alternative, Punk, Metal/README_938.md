@@ -1,3 +1,323 @@
+###  Публикация: 1222093   (685165) от 29.04.2018
+
+Metаllica - The $5.98 E.P. - Gаrаge Dауs Re-Revisited (1987) 2018, Remastered, Blackened Recordings [FLAC|Lossless|image + .cue] <Thrash Metal, Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helpless (6:42)
+ 02. The Small Hours (6:40)
+ 03. The Wait (4:53)
+ 04. Crash Course in Brain Surgery (3:11)(   Читать дальше...   )Жанр: Thrash Metal, Heavy Metal, Speed MetalПродолжительность: 00:24:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EFF079A4E86A793AFAFF9FB9D662417936AF989
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222387   (685309) от 29.04.2018
+
+Soreption - Deterioration Of Minds (2010) [FLAC|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Suppressing The Mute  (3:35)
+02 - The Hypocrite, Undying  (3:04)
+03 - Breeding Exile  (4:37)
+04 - ...To Dim The Aching  (3:12)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA6C0DB39285CFC1A93877F9DE59141D088B9FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897437   (685646) от 13.05.2015
+
+Ted Nugent - Shutup & Jam! (2014) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shutup & Jam! (2:53)
+02. Fear Itself (4:40)
+03. Everything Matters (3:19)
+04. She's Gone (2:58 )
+05. Never Stop Believe (6:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE641550CD4908CDC513FF33849E49152DA4D884
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675527   (685750) от 03.07.2013
+
+Skillet - 14 Альбомов (1996-2013) Дискография [FLAC|Lossless]<Alternative Rock, Christian Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_685750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative Rock, Christian RockПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 897427   (685812) от 13.05.2015
+
+Robin George - Dangerous Music II (1986) [FLAC|Lossless]<Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous Music
+02. Streetwise
+03. I Believed In You
+04. Heart To Heart(   Читать дальше...   )Жанр: Soft RockПродолжительность: 01:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC33891B61486922AB5DD5FA3875276E18716D2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 796268   (685956) от 14.06.2014
+
+GILLAN - Gillan At The BBC (1997) 2 CD Live /1997, Nippon Crown Co. Japan/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain Your Brain (LIVE) (4:09)
+02. Are You Sure ? (LIVE) (4:42)
+03. Mr. Universe (LIVE) (6:44)
+04. No Easy Way (LIVE) (9:06)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D637A0D9FD3DB0F7E328D73262B0458B210F56
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178621   (685976) от 16.03.2019
+
+ELF | The Elves (featuring Ronnie James Dio) - 5 альбомов, 8CD (1971-2018) [FLAC|Lossless| image + .cue | tracks+.cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_685976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа "Elf" известна в основном благодаря участию в ней вокалиста Ронни Джеймса Дио (Рональд Падавона), продолжившего потом работу в таких коллективах, как "Rainbow" и "Black sabbath". Созданная в конце 60-х годов команда носила название "The electric elves". Изначальный состав выглядел так: Дио (бас, вокал), его двоюродный (   Читать дальше...   )Список альбомов:
+1971 | The Elves – And Before Elf there were Elves
+1972 | Elf
+1974 | Carolina County Ball(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 05:47:56 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85E3350D7A0C6A05DE179176FFD97CD450137560
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028701   (686089) от 24.06.2016
+
+The Beatles - Grand Collection (2003) Compilation [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Do (2:20)
+02. From Me To You (1:57)
+03. She Loves You (2:21)
+04. And I Love Her (2:29)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA26B8882B75F5D07306A6388D1E4F1131EE636
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028631   (686112) от 24.06.2016
+
+Би-2 - Spirit (2012) 2CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Main CD
+01.Девушки 	03:45
+02.Оптимист 	05:22
+03.Заноза 	04:03(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:47+00:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE636A18CFD5515FBC4999CCCBD68543E47E289
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507008   (686136) от 07.06.2012
+
+Butterfly Temple - 3 альбома-1 сингл (2009-2011) [MP3|320 кб/с]<Pagan Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Год: 2009-20111. Смерть дана одна на всех (5:48)
+ 2. Солнцестояние (4:41)Жанр: Pagan MetalПродолжительность: 00:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FC2C3DDA878702D751733D1DC324DA9D45A9E4A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289531   (686244) от 16.03.2019
+
+Константин Ступин и Алексей Ракитин - Год чумы (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Год чумы
+2. Холодный воздух
+3. Утренняя звезда
+4. Один аккорд(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2631809B7734C1B3B5F226046F8D6B1B54BDC1B9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 675654   (686337) от 03.07.2013
+
+Chris Norman - 25 Best Songs (2012) [MP3|211 - 271 кб/с]<Pop-Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hunters Of The Night 1986 (4:02)
+02. Some Hearts Are Diamonds 1986 (3:41)
+03. Midnight Lady 1986 (4:07)
+04. No Arms Can Ever Hold You 1986 (3:43)(   Читать дальше...   )Жанр: Pop-Rock, Soft RockПродолжительность: 01:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECCBABE168D7E2AA7EF58F3FFDC56B0A3D5D494
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289418   (686346) от 16.03.2019
 
 Beast in Black - From Hell with Love (2019) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal, Power Metal>
@@ -374,333 +694,6 @@ Dukes Of The Orient ‎ - Freakshow (2020) [FLAC|Lossless|image + .cue] <Progres
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B532DEE217E53B091F42F1D1606D671440C5F974
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403831   (686585) от 22.08.2020
-
-VA - Happy Acoustic (2020) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Bay - If You Ever Wanna Be In Love (James Bay Session 2015) (3:56)
-02. Noah Kahan - Young Blood (Acoustic) (3:21)
-03. Shawn Mendes - Mercy (Acoustic Guitar) (3:41)
-04. Kota Banks;Moza - Empty Streets (Acoustic Version) (3:49)(   Читать дальше...   )Жанр: Acoustic, RockПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3B2CBEB5A946A9F7C900471678E60E5C624B22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403874   (686589) от 22.08.2020
-
-VA - Play Station (приложение Audio CD к журналу Play #06'07) (2007) [FLAC|Lossless|tracks + .cue] <Indie Rock, Hip Hop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Natasha Bedingfield -	I Wanna Have You Babies	[03:41]
-02.	Travis -	Closer	[04:05]
-03.	Tori Amos -	Big Wheel	[03:20]
-04.	Black Rebel Motorcycle Club -	Berlin	[03:13](   Читать дальше...   )Жанр: Indie Rock, Hip HopПродолжительность: 01:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17993592AC6BD6430D95571E8AE73940C9A49AB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403782   (686591) от 22.08.2020
-
-Entombed A.D. - 4 Studio Albums (2014-2019) 4xCD [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686591.jpg" />
-</div>
-
-
-###  Подробнее
-
-Были созданы в 2014 году, когда Петров и другие участники ENTOMBED решили видоизменить название группы, чтобы избежать судебных разбирательств с гитаристом Alex Hellid, который не хотел, чтобы его бывшие коллеги использовали название ENTOMBED. Альбом "Back To The Front", записанный в 2013 году последним составом легендарных шведских дэт-металлистов ENTOMBED (   Читать дальше...   )Альбомы :
-2014 - Back To The Front
-2016 - Dead Dawn
-2016 - Dead Dawn(   Читать дальше...   )Жанр: Death MetalПродолжительность: 03:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C81D83C89E1DB877D3D8D3BF05F2592F403D9FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403938   (686592) от 22.08.2020
-
-Vathos - Underwater (2020) [FLAC|Lossless|image + .cue] <Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruins of Corrosion (05:32)
-02. The Suicide (06:58)
-03. Curse of Apathy (05:35)
-04. Corrupted Mind (03:16)(   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1DD6C28AEA477784A46D747637BBE602B5C976B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289376   (686628) от 16.03.2019
-
-Rotting Christ - The Heretics (2019) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Name of God
-02. Ветры Злые
-03. Heaven and Hell and Fire
-04. Hallowed Be Thy Name(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366631453C1561D50893D8F7A0281DBAC0BF26BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289397   (686629) от 16.03.2019
-
-King Diamond - Songs for the Dead - Live (2019) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686629.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Out from the Asylum
-2. Welcome Home
-3. Sleepless Nights
-4. Halloween(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8EA094DD1A05A743BA204523F274A7E7B2F5569
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289240   (686630) от 16.03.2019
-
-Elvis Presley - In Memory Volume 3 (1993) [FLAC|Lossless|image + .cue] <Rock & Roll, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dixiland Rock
-02. Don't Leave Me Now
-03. I Need You So
-04. I'll Never Let You Go(   Читать дальше...   )Жанр: Rock & Roll, BalladПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16BA802B30804D5ECD60B3E0269881CF12F299E0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289137   (686637) от 16.03.2019
-
-Tesla - Shock (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Won't Take Me Alive (03:34)
-02. Taste Like (03:12)
-03. We Can Rule The World (04:15)
-04. Shock (03:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40D731D94E14FD8C4BA85C342E2FAB475A0A9804
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535343   (686710) от 06.03.2022
-
-City Of Lights - Before The Sun Sets (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686710.jpg" />
-</div>
-
-
-###  Подробнее
-
-City Of Lights - новый мелодик-хард-рок проект британского начинающего автора песен и гитариста Нила Остина и греческого вокалиста
-Маноса Фатсиса (Odyssey Desperado/Hideaway).
-Проект родился, когда Остин, вооружившись коллекцией песен, вдохновленных
-классическим хард-роковым звучанием 80-х начал поиск вокалиста,(   Читать дальше...   )01. Racing On The Redline
-02. Heart's On Fire
-03. Emily
-04. Heat Of The Night(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0C5DA918E84A7E3B979C1F0F7252F8B2D5B194B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535349   (686713) от 06.03.2022
-
-Heartland - Into the Future (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foreign Land (5:21)
-02. Caught Up (4:14)
-03. A Living Thing (5:08)
-04. Giving It All Away (4:41)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7270DDF1F628DA21274E5DF33E3CD1788A74CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289463   (686743) от 16.03.2019
-
-Tess Parks & Anton Newcombe - Tess Parks & Anton Newcombe (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686743.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Life After Youth (04:03)
-2. Monochrome Wound (03:16)
-3. Mount Pleasant (04:40)
-4. Bindle (02:18)(   Читать дальше...   )Жанр: Rock, Indie Rock, Psychedelic RockПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345432BEAB89CB0A8455112A0162AC78323AD820
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289131   (686746) от 16.03.2019
-
-Neal Morse - Life & Times (2018) [FLAC|Lossless|tracks + .cue] <Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_686746.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Livin' Lightly (5:02)
-2. Good Love Is On The Way (3:52)
-3. JoAnna (4:34)
-4. Selfie In The Square (3:55)(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 00:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C104061AF05B5810F7EBF53E08C28DB3ADCE069C
 ```
 
 

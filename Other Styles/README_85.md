@@ -1,3 +1,202 @@
+###  Публикация: 926128   (535475) от 09.08.2015
+
+Medwyn Goodall - The Wisdom of Ages (2015) [MP3|320 кб/с]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anam Cara Reprise
+02. Love Conquers All
+03. Spin of the Reel
+04. The Wisdom of Ages(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31371629ABD73564FEBAB8B44B2F746C1EE7D51
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926227   (535582) от 09.08.2015
+
+VA - Blanck Mass Presents - The Strange Colour of Your Body's Tears Re-Score (2015) [MP3|320 кб/с]<Electronic, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roll the Dice - Portal
+02. Helm - Eye Balm
+03. Helm - Mirrored Palms
+04. Helm - Silencer II(   Читать дальше...   )Жанр: Electronic, ScoreПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E11CCC590C3AF3D328597858C2E66EBBF00ED7D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312132   (535661) от 02.07.2019
+
+Jean Michel Jarre - The Best Of (2015) 2CD [FLAC|Lossless|image + .cue] <Electronic, New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene4 [4:05]
+ 02. Equinoxe 4 [6:40]
+ 03. Magnetic Fields 2 [3:56]
+ 04. Orient Express [4:12](   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 02:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:999E690406BC79695202D451A9EB2BEC32347DD4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 227252   (535925) от 16.08.2010
+
+Music From The World Of Osho - Laughing Drums (2000) [WMA|357-449 kbps]<New Age, Worldbeat>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Свинг тенко		   (07:32)
+02 Танцующие барабаны	   (10:47)
+03 Ритм птицы		   (04:09)
+04 Тимфун		   (06:52)
+05 Ритм жизни		   (21:08)
+06 Спокойный Будда	   (08:09)Жанр: New Age, WorldbeatПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532827   (536166) от 08.08.2012
+
+Raimonds Pauls / Раймонд Паулс - Zelta 60 (2CD) (1996) [MP3|320 кб/с]<Pop,Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ояр Раймонд Паулс (латыш. Ojrs Raimonds Pauls; (р. 1936) — советский и латвийский композитор, дирижёр, пианист, политический деятель. Народный артист СССР (1985). Почётный доктор Латвийской академии наук.
+Автор музыки множества эстрадных хитов, мелодий к фильмам. Инициатор международных конкурсов молодых исполнителей популярной музыки «Юрмала» и «Новая волна».
+В 1958 Раймонд Паулс получил высшее образование в Латвийской государственной консерватории им. Я. Витола, у профессора Германа Брауна по классу фортепиано. После окончания курса в 1958 году Раймонд Паулс работал в Рижском эстрадном оркестре, выступал с концертами в Грузии, Армении, на Украине. С 1964 года до начала 1970-х годов являлся руководителем этого оркестра.1. Kurzeme (3:11)
+ 2. Perlu Zvejnieks (3:19)
+ 3. Pie Juras Dzive Mana (3:59)
+ 4. Vella Kalpu Dziesma (2:16)
+ 5. Ta Es Tevi Milesu (2:50)
+ 6. Tris Runci (3:58)
+ 7. Genoveva (3:25)
+ 8. Kerijas Dziesma (3:27)
+ 9. Vieglpratiga Sirds (3:19)
+ 10. Tala (3:27)(   Читать дальше...   )Жанр: Pop,InstrumentalПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D4A7701FD0A7959F61706CD4047CFB39A030A7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311630   (536318) от 02.07.2019
+
+Atom Music Audio - EON II (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serene [03:36]
+02. Oceans Apart [04:43]
+03. Wings of Eternity [03:38]
+04. Celestial Sphere [03:47](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:729FA7D60079502A13E66370D94493A74D053C9E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311625   (536387) от 02.07.2019
+
+Atom Music Audio - Transcendence (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_536387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Epiphany [03:03]
+02. Turning Point [03:17]
+03. Reflection [03:23]
+04. Innocence [02:55](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC2C31713C78A248D82E7BC1B0732A32D7A14624
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1239400   (536844) от 06.08.2018
 
 Mythos - Eros (2018) [MP3|320 Kbps] <New Age>
@@ -540,201 +739,6 @@ Kitaro - Asian Cafe (2002) 2016 Domo Records [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:535AFE6B783905B2862AC7925E0A2D97D7863FA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050159   (540378) от 07.09.2016
-
-Valentina Babor - Piano Princess (2015) [FLAC|Lossless|tracks + .cue] <Instrumental, Classical, Piano Solo>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children 4:21
-02. Nobody Does It Better 3:27
-03. I Believe I Can Fly 4:16
-04. When The Rain Begins To Fall 3:49(   Читать дальше...   )Жанр: Instrumental, Classical, Piano SoloПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819712ABBE8C36FBA8818C5FC2C18C3FC8117F83
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050290   (540515) от 07.09.2016
-
-VA - Angels of Hope (An Angelic Compilation) (2016) [FLAC|Lossless|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gandalf - Angel of Light [00:04:44]
-02. Kevin Kern - And the Light is Forever [00:03:23]
-03. Peter Kater - Heaven’s Window [00:08:00]
-04. Omar Akram - Angel of Hope [00:03:33](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB18F932CAA51BB53CB2A0FFA030A8CF214FEF79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531652   (540733) от 06.08.2012
-
-Stefano Mocini - A Cat Playing (2011) [MP3|128-256 кб/с]<Relax,New Age,Melodic,Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Injustice (2:51)
-2. The Dragonfly (2:01)
-3. Awesome Lie (3:02)
-4. Calm Before (3:06)
-5. Aginst Fate (3:13)
-6. Joke (3:02)
-7. Hope You Will Fine  (2:18)
-8. It Hurts (3:20)
-9. Leaving You (3:39)
-10. Half Moon Ball Pianosolo Version (3:50)Жанр: Relax,New Age,Melodic,PianoПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5112353AC2F21E3A9C31509A6F0FA74EC16B767A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050149   (540756) от 07.09.2016
-
-Timothy Olson - Bedtime (2016) [MP3|320 Kbps] <Electronic, Easy Listening, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_540756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awake All Night
-02. Baby Dream
-03. Bedtime Stories
-04. Breeze(   Читать дальше...   )Жанр: Electronic, Easy Listening, New AgeПродолжительность: 00:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAD00CA8F0644874238B9BAC80E34F037FAABED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925493   (541102) от 06.08.2015
-
-VA - LOVE Instrumentals (2002) [FLAC|image+.cue]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже сама восточная интерпретация известных лирических треков в таком инструментальном исполнении была для меня интересна. Но, к тому же, она ещё оказалась и очень мелодична. Думаю, что эти "любимые инструменталки" станут любимыми и для Вас.01. original singer LEANN RIMES - Can't Fight The Moonlight (Theme from 'Coyote Ugly')  (3:38)
-02. original singer SAVAGE GARDEN - I Knew I Loved You  (3:58)
-03. original singer CELINE DION - My Heart Will Go On (Love Theme from 'Titanic')  (4:37)
-04. original singer MARIAH CAREY - Without You  (3:38)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A565A5B66C7F8951438747B3B762211EDB32D819
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925308   (541109) от 06.08.2015
-
-Claude Ciari - Sentimental (2003) [FLAC|Lossless]<Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shinobi Meet Yogiri
-02. White Guitar
-03. Leave the Lapse Of Time
-04. See No One(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:07:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37415B47166AC4C3853DF024A9B2E912130C4EC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925471   (541322) от 06.08.2015
-
-Kaan Luum - Potala Mousse (2015) [MP3|320 кб/с]<New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_541322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Space
-02. Feathers
-03. Silver Lake
-04. Letter from Kaan Luum(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80738A44B01C470FDEBDCDE99B75C8E6C9717639
 ```
 
 

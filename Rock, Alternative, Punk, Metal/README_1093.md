@@ -1,3 +1,324 @@
+###  Публикация: 307434   (849465) от 11.03.2011
+
+Тараканы! - Собачье сердце (макси-сингл) (2011) [MP3|320 kbps]<Rock\Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849465.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Собачье сердце
+2. Дети внезапной свободы
+3. В день когда я сдамся
+4. Крысиные гонкиЖанр: Rock\PunkПродолжительность: 00:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFFA6E691AA845387CA6FA30277B47250C68F592
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377881   (849478) от 23.04.2020
+
+АукцЫон - Мечты (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Догоняя волны
+02. Сердце
+03. Мечты
+04. Очень белые глаза(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A12D236207D4FA6796EC88D2C781E87F9F17CB50
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499309   (849650) от 01.10.2021
+
+Crystal Blue - Detour (2003) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damage
+02. Back on Track
+03. Someone
+04. Move On(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A4538AC22A2B75850EEE0F02C69B5D095126CE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377767   (849734) от 23.04.2020
+
+John Fogerty - Solo Flight (Live) (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mary Don't You Weep (Live 1985) (2:44)
+02. Interview Pt. 1 (Live 1985) (2:40)
+03. My Pretty Baby Leave My Woman Alone (Medley) (Live 1985) (4:03)
+04. Interview Pt. 2 (Live 1985) (2:45)(   Читать дальше...   )Жанр: RockПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8568A15358E445A554477B80DC65807BC63E21B5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377864   (849889) от 23.04.2020
+
+Katatonia - City Burials (2020) [MP3|320 Kbps] <Doom Metal, Depressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_849889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Set to Divide
+02. Behind the Blood
+03. Lacquer
+04. Rein(   Читать дальше...   )Жанр: Doom Metal, Depressive RockПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D62CD81504A8A31A6315DDC53BAE36457905168
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377807   (850007) от 23.04.2020
+
+Сансара - Айсберги и радуги (2020) [MP3|320 Kbps] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850007.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бинокли
+2. Выше, чем облака
+3. Уголь 2
+4. Здесь никого нет(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC230A970596E1783CAE25B626F5738A5D9D44E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110849   (850015) от 04.03.2017
+
+Lumen - Хроника бешеных дней (2016) [MP3|320 Kbps] <Alternative-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Истина
+02. Сын. Дом. Дерево.
+03. Хроника Бешеных Дней
+04. Зов(   Читать дальше...   )Жанр: Alternative-RockПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844EB0ACBE12A7639612D0EADCB3F18CE3EFCC8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377809   (850079) от 23.04.2020
+
+Сергей Бобунец - Просто музыка, просто слова (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850079.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Просто музыка, просто словаЖанр: RockПродолжительность: 00:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C771F7A2191108E7D6CE72BC469A67AA19C26E2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377865   (850084) от 23.04.2020
+
+Trivium - What the Dead Men Say (2020) [MP3|320 Kbps] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. IX
+02. What The Dead Men Say
+03. Catastrophist
+04. Amongst The Shadows & The Stones(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCC6CB98BB126F6FD6BA2AC1120EEB0FC38E254
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377902   (850086) от 23.04.2020
+
+Dance Gavin Dance - Afterburner (2020) [MP3|320 Kbps] <Post-Hardcore, Progressive Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prisoner
+02. Lyrics Lie
+03. Calentamiento Global
+04. Three Wishes(   Читать дальше...   )Жанр: Post-Hardcore, Progressive Rock, ExperimentalПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC21AB611675C764B1BBBCEBC565F83659FA96B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001697   (850134) от 30.03.2016
+
+Земфира - Прости Меня Моя Любовь (2000) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шкалят датчики (3:37)
+02. Zero (2:46)
+03. Созрела (3:33)
+04. Хочешь? (3:17)(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AE4032706964A9AC02886CFFFCA3B44B38C5F5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377749   (850160) от 23.04.2020
+
+BONGTOWER - Oscillator (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Metal, Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phase I (2:35)
+02. Voskhod - 2 (10:10)
+03. Phase II (2:15)
+04. Apollo 11 (5:15)(   Читать дальше...   )Жанр: Doom Metal, Psychedelic Rock, Stoner RockПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D33EA4E2467D357F2987BEA2F70CCF44C148D9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377694   (850161) от 23.04.2020
 
 The Ghost Inside - Aftermath (2020) Single [MP3|320 Kbps] <Metalcore, Melodic Hardcore>
@@ -366,329 +687,6 @@ Nazareth - Expect No Mercy (1977) 2021 remaster [FLAC 2.0|96/24|tracks|WEB-DL] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55534A7F4F3E0C1F84F2E02B9B5F7DD782F6A105
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498819   (851145) от 30.09.2021
-
-Nazareth - Tattooed on My Brain (2018) [FLAC 2.0|44.1/24|tracks|WEB-DL] < Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Dance with the Devil [00:03:00]
-02. Tattooed on My Brain [00:02:49]
-03. State of Emergency [00:03:41]
-04. Rubik's Romance [00:04:05](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB8BBF49A80974C9301E4572E41302B2721ECFE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498812   (851148) от 30.09.2021
-
-Nazareth - Rock 'n' Roll Telephone (2014) Deluxe Edition Remaster 2021 [FLAC 2.0|44.1/24|tracks|WEB-DL] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boom Bang Bang [00:03:15]
-02. One Set of Bones [00:03:25]
-03. Back 2B4 [00:04:49]
-04. Winter Sunlight [00:03:27](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C64F6F7C2A4E8FCBC2E617DA4381B24F40A6644
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499200   (851155) от 30.09.2021
-
-KK's Priest - Sermons of the Sinner (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Incarnation [00:00:58]
-02 - Hellfire Thunderbolt [00:03:49]
-03 - Sermons of the Sinner [00:05:25]
-04 - Sacerdote y Diablo [00:05:35](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEECD0561F268B95B352D7AE2B7EDEBE3BDFD775
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499131   (851258) от 30.09.2021
-
-Be Cause - Anima Mundi (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do you remember? (04:37)
-02. Clouds (03:00)
-03. Wandering (03:58)
-04. Mother form (04:00)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:21:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED140171DB8AC51404C54C115644C42DA4D7D78
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377600   (851728) от 22.04.2020
-
-Лінія Маннергейма - Конфіскат (2020) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Інтро (05:29)
-02. Чорний (04:32)
-03. Отче (03:48)
-04. Де Твоя Лінія (05:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6F850A25D879DA3C44D2E1784B19D489288911
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515188   (851764) от 03.03.2017
-
-Jane's Addiction - Nothing's Shocking (1988) remastered, 2012, Audio Fidelity [FLAC|Lossless|image + .cue]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up The Beach (3:01)
-02. Ocean Size (4:19)
-03. Had A Dad (3:45)
-04. Ted, Just Admit It... (7:22)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2986D22BE710454104BB603199EB89D2BEBDF2DB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377599   (851822) от 22.04.2020
-
-Kozak System - Закохані злодії (2020) [MP3|320 kbps] <Ethno Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Повінь (03:06)
-02. Закохані злодії (03:35)
-03. Досить сумних пісень (03:34)
-04. Така, як літо (02:51)(   Читать дальше...   )Жанр: Ethno Rock, Folk RockПродолжительность: 00:30:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCC7C64E48F03E2BBC8147BE17A6A82A55428D7B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377457   (851832) от 22.04.2020
-
-VA - Classic Progressive Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851832.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yes - Yours Is No Disgrace
-2. Jethro Tull - Dark Ages
-3. Rush - Presto
-4. Utopia - Jealousy(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:16:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398A0C88CFDC58860A2657DE2B88E7E0BDC8382A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377547   (851834) от 22.04.2020
-
-VA - Guitar Heroes (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yngwie Malmsteen - C'est La Vie 5:18
-02. Foghat - Drivin' Wheel (Single Version) 4:29
-03. Little Feat - Rat Faced Dog (From Sessions For 'little Feat') 4:53
-04. Zz Top - Just Got Paid 4:27(   Читать дальше...   )Жанр: RockПродолжительность: 01:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282C2E162D90C5561760243AD138E8B0C45790D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377458   (851837) от 22.04.2020
-
-Other Lives - For Their Love (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Of Violence  [03:46]
-02. Lost Day  [02:55]
-03. Cops  [03:55]
-04. All Eyes / For Their Love  [06:04](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76F2AF497BEB6B20EDA96398F93DB4C9B8A8546
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110592   (851841) от 03.03.2017
-
-Танцы Минус - Три (2017) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851841.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Машины
-2. Психея
-3. ЖиваЖанр: RockПродолжительность: 00:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787CCC59A42D8AAA5006B3270AC493CC646FA646
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110515   (851842) от 03.03.2017
-
-Infant Annihilator - The Elysian Grandeval Galeriarch (2016) [MP3|320 Kbps] <Technical Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unholy Gravebirth (4:48)
-02. Crucifilth (4:55)
-03. Motherless Miscarriage (2:18)
-04. Baptised. Bastardised. Sodomised. (4:23)(   Читать дальше...   )Жанр: Technical DeathcoreПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CCD02162E65F1879782928CF601C841E0DC176
 ```
 
 

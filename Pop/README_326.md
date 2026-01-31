@@ -1,3 +1,84 @@
+###  Публикация: 985429   (934119) от 12.02.2016
+
+VA - It Started With A Kiss (2000) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demiss Roussos - Forever And Ever (3:43)
+02. Engelbert - Feelings (4:30)
+03. Connie Francis - Hurt (3:50)
+04. Jose Feliciano - Che Sera (4:09)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:175C72B5CAB5D05BC17084F08DC99CD47607FDEA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985412   (934128) от 12.02.2016
+
+VA - Megaspot 2004 (2003) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celine Dion - A new day has come (radio remix) (4:19)
+02. Keith Carradine - I'm easy (3:01)
+03. Mina - Can't take my eyes off of you (5:23)
+04. Doris Day - Whatever will be, will be (2:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5085ACA2EC792DF6F0DF5442FA603C112ACAD6E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 160085   (934332) от 04.03.2020
+
+Joe Dassin - Поёт Джо Дассен (1980) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Если Бы Тебя Не Было (Et Si Tu Nexistais Pas) (3:32)
+02. Альбатрос (L' Albatros) (3:14)
+03. Моя Музыка (Ma Musique) (2:59)
+04. Это Не Изменит Мир (Ca Va Pas Changer Le Monde) (3:05)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7EF0E22087659DA2D14790EF6A8D40C204426F9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861241   (934613) от 20.01.2015
 
 Meghan Trainor - Title (Deluxe Edition) (2015) [FLAC|Lossless]<Pop>
@@ -632,87 +713,6 @@ Asgeir (Ásgeir) - Bury The Moon (Sátt) (2020) [FLAC|Lossless|tracks + .cue] <I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAB22B9DBACF7374AD474C1E05E227AF30080CE9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092420   (939863) от 11.01.2017
-
-VA - NRJ Winter Hits (2017) 3CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_939863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Напомню, что NRJ Hits является французским телеканалом. Это 100% -ная дочерняя компания NRJ Group, и её предназначение круглосуточная ротация самых последних музыкальных клипов во Франции по кабельному и по спутниковому телеканалам. Дважды в год по итогам ротации выпускает совместно с Sony Music Entertainment France сборники поп-музыки. Один из них - зимний сборник (   Читать дальше...   )CD1:
-01. Maitre Gims - Tout donner (pilule violette)  (3:23)
-02. Rag'n'Bone Man - Human  (3:19)
-03. DJ Snake feat. Justin Bieber - Let Me Love You  (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 03:04:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B68C455F788AB2F719507BB467F19142F1D950
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092156   (940112) от 11.01.2017
-
-ABC - Skyscraping (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, New Romantic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Things 5:18
-02. Ask A Thousand Times 5:13
-03. Skyscraping 4:20
-04. Who Can I Turn To? 3:48(   Читать дальше...   )Жанр: Pop, Rock, New RomanticПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7B97977F64010B4DFA32925E1BE4BFB769D304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092347   (940125) от 11.01.2017
-
-The Ritchie Family - The Best Disco in Town (1994) [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940125.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Rithie Family (USA) Состав: Cheryl Jaks, Cassandra Wooten, Gwen Oliver - vocals. Группа The Rithie Family была сформирована в Philadelphia, PA, USA. Названная по имени их продюсера Pitchie Rome, группа была создана Jacques Morali (также создал Village People) чтобы произвести фурор в disco и dance музыке. Их главный хит - «The Best Disco in Town».01. Brazil  (5:14)
-02. Dance With Me  (3:55)
-03. Best Disco in Town  (6:45)
-04. Arabian Nights  (7:27)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC55467AE32B7DC1DA60ECA1525689DC0DAD0C6
 ```
 
 

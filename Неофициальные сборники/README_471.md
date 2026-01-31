@@ -1,3 +1,30 @@
+###  Публикация: 1217418   (741611) от 05.04.2018
+
+VA - Дискотека 2018 Dance Club Vol. 177 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1
+Продолжительность: 10:39:26
+
+001. Ana Mena, Becky G. & De La Ghetto - Ya Es Hora(   Читать дальше...   )Жанр: Club, Deep House, OtherПродолжительность: 15:28:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FCE512E566E8B2EEB78E2F5D5C7A830D44E50E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021113   (742188) от 28.05.2016
 
 VA - Позитивный заряд радио Шансон 2 (2016) [MP3|256 кб/с] <Chanson, Pop>
@@ -670,33 +697,6 @@ VA - Chillout Hits - Spring Session (2018) [MP3|320 Kbps] <Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70AF55A811C229CC1053E3DCA6808B146E3E5EAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217320   (743478) от 04.04.2018
-
-VA - Deep Inspirational Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743478.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Daniel Mayk - Best Jump (Quiteland Piano Mix)
-002. Kite Lost - Popular Odor
-003. Tony Ramblin - Ferries (Ron Morrison's Deephouse Mix)
-004. DJ Mr Gogo - The Cellar of the Secrets(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:26:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A09690B5EFEFE26FD8946F70F7B6A5A70E2A55F
 ```
 
 

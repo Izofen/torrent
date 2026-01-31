@@ -1,3 +1,30 @@
+###  Публикация: 1842312   (1048604) от 15.12.2025
+
+VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048604.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Jon Bon Jovi - Take The Leap (A State of Trance Year Mix 2025 Intro) [1:55]
+002. Armin van Buuren feat. JAI RYU - Let It Be For Love (Extended Mix) [5:29]
+003. Armin van Buuren & Omnia - Love (Extended Mix) [5:28]
+004. Ruben De Ronde & Amber Revival - Illuminate (Extended Mix) [5:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 12:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E02D3ED1750872045329D1ECE4BDEF9BC793EC7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842221   (1048665) от 15.12.2025
 
 VA - The Orient Collective: Mystic Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -661,33 +688,6 @@ VA - Armin van Buuren - A State Of Trance 1257 (Yearmix 2025) (2025) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B787F9C082E8B56064EAC082D1E4AFA61BEF7A79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844415   (1050111) от 26.12.2025
-
-VA - Ori Uplift - Uplifting Only Episode 672 (Ori's Top 52 Vocal Uplifters of 2025 - Part 1) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evebe feat. Danny Claire - Everything (Timo Pralle Remix)
-02. Roman Messer & Cari - Serenity (Alex M.O.R.P.H. Remix)
-03. Bodgan Vix and Adara - Weightless
-04. Xijaro & Pitch with Susana - Beauty In My Scars(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A11B0C76C02DB683C5CBD4DD432348CBD6F80CC
 ```
 
 

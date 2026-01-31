@@ -1,3 +1,83 @@
+###  Публикация: 1459561   (1023124) от 02.04.2021
+
+VA - Acoustic Hits 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Demons (Live London Sessions / 2013) (03:07)
+02. Justin Bieber - Holy (Acoustic) (03:25)
+03. Shawn Mendes - Wonder (Acoustic) (02:53)
+04. Topic - Breaking Me (Acoustic Version) (02:47)(   Читать дальше...   )Жанр: PopПродолжительность: 02:05:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD84DAB67A50A6DAFC2684AF3BDAC742979336D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459620   (1023131) от 02.04.2021
+
+Love Symphony Orchestra - Penthouse Presents The Love Symphony Orchestra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Make Love In Public Places (12:52)
+02. Let Me Be Your Fantasy (10:23)
+03. At The Football Stadium (4:16)Жанр: Electronic, Disco, Funk SoulПродолжительность: 00:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECE38DF04E48357FED22440666974B1AB957443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459288   (1023288) от 01.04.2021
+
+VA - Spring Mix 2021 (2021) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1023288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stephan F/Ya-Ya - New Spirit 2:59
+02. Rene Rodrigezz/Moodygee - Tom's Diner 2:25
+03. Deep Emotion - Done With You 2:48
+04. Blue Man - Just People 2:09(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:25:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83D3D727D90BA7E95F9D2AF351C59958A215ECB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1459447   (1023318) от 01.04.2021
 
 Zacar Orchestra - Disco-Take (1977) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
@@ -614,85 +694,6 @@ Stan Van Samang - Feel The Power (2021) [FLAC|Lossless|tracks + .cue] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B4B10F456952354089B53EF3E76D0F34D0DB80B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456383   (1025115) от 22.03.2021
-
-Domino - 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Hi-NRG, Eurobeat>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2021 (5:21)
-02. Tora Tora ToraЖанр: Italo-Disco, Hi-NRG, EurobeatПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D34EF9F992E34073F7797B61204BDAA6FA71A33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456070   (1025292) от 21.03.2021
-
-VA - Classic Pop Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talisha Karrer - One (Acoustic) (04:05)
-02. Shannon & Keast - Love Story (Acoustic) (03:55)
-03. John Burnsby - I’m a Believer (Acoustic) (03:00)
-04. Karizma Duo - Everybody Wants to Rule the World (Acoustic) (02:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A3FA6253F4BDCA5586FEC69EC4D6FA16C050DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456054   (1025293) от 21.03.2021
-
-Justin Bieber - Justice (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Much (2:33)
-02. Deserve You (3:07)
-03. As I Am (2:54)
-04. Off My Face (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40DE24B616C2610728496B89BB0301B4DEA0BEF
 ```
 
 

@@ -1,3 +1,201 @@
+###  Публикация: 1377018   (854787) от 20.04.2020
+
+Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Metal, Electro>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854787.jpg" />
+</div>
+
+
+###  Подробнее
+
+|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
+|05:33| 02. Mick Gordon - Cultist Base
+|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
+|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC05FB30D2C1B966AF5E7FF1041DB1E062F0C987
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 190007   (854818) от 10.04.2010
+
+Henry Mancini - Revenge Of The Pink Panther / Месть розовой пантеры (1988) [MP3|320 kbps]<Jazz/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Main Title (04:34)
+2. Simone (04:36)
+3. Give Me Some Mo'! (02:57)
+4. That She Blows (02:55)
+5. Ball's Caprice (02:37)
+6. Move 'Em Out! (03:27)
+7. A Touch of Red (05:13)
+8. After the Shower (03:43)
+9. Hong Kong Fireworks (03:23)
+10. Almond Eyes (03:14)(   Читать дальше...)Жанр: Jazz/Soundtrack
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376862   (854917) от 20.04.2020
+
+Ansia Orchestra - The Order, Vol. 1 (2020) [MP3|320 Kbps] <dubchestral, soundtrack, orchestral>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mercury
+2. For the Alliance
+3. Dreamer
+4. Cannonball(   Читать дальше...   )Жанр: dubchestral, soundtrack, orchestralПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB59813B1A062D255FDA24589BF501E29603933
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109905   (855213) от 01.03.2017
+
+VA - T2 Trainspotting (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iggy Pop - Lust For Life (The Prodigy Remix) [05:01]
+ 02. High Contrast - Shotgun Mouthwash [02:54]
+ 03. Wolf Alice - Silk [04:06]
+ 04. Young Fathers - Get Up [03:51](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F3C82D45BF7A5B60C6CA8EDFA7EE2983FD61A4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647865   (855287) от 24.04.2013
+
+Helen Rhodes & Joseph Wade - A Day At The Spa (2004) [MP3|320 кб/с]<New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(08:25) 1. Amazon Angels
+(10:24) 2. Dawn of Enlightenment
+(05:04) 3. Devas and Dolphins
+(10:16) 4. Eastern Sun
+(10:27) 5. Siesta
+(09:57) 6. Mountain Air
+(10:28) 7. The Tides of FulfilmentЖанр: New age, RelaxПродолжительность: 01:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F699463E0B7359D001CC5A4BF864F705BA3C735
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109928   (855566) от 01.03.2017
+
+Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yoga, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ong Namo (00:09:30)
+02. Ra Ma Da Sa (00:09:49)
+03. Living Song (00:05:19)
+04. Aad Such (00:09:00)(   Читать дальше...   )Жанр: New Age, Yoga, MantrasПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420224672BE80767F554C9E4B00C7CA8F86EB62A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000484   (855823) от 27.03.2016
+
+Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brushstokes   03:20
+02. West Wind   05:24
+03. Be Still My Soul   03:54
+04. Christmans Hymn   02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5659F494638BD5C5D650BE06B160AB66EFF94AED
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875799   (856094) от 07.03.2015
 
 VA - Spa of Roses Relaxation (Dream and Relax Lounge Tantra Massage Music) (2015) [FLAC|Lossless]<Relaxation, New Age, Lounge, Spa>
@@ -566,210 +764,6 @@ E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F479CB6BCEFDF9387459139DDBC843AE63645C86
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999883   (859067) от 25.03.2016
-
-VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumental, vocal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norwegian Mountains (O. Sevag) [03:37]
-02. Gala (Gala Gala) [04:52]
-03. Le Reve (M. Lepisto) [04:08]
-04. The Waves Of Life (Wimme) [04:09](   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:14:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7244863EBC84EB25F3BD28771BD9430DC24235
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000081   (859324) от 25.03.2016
-
-Ken Yang - Meet the Sky (2001) [FLAC|Lossless|tracks] <International, New Age, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet the Sky   02:37
-02. Hot Spring   04:10
-03. The Slop of Green Grass   04:59
-04. The Sea of Seven Stars   04:57(   Читать дальше...   )Жанр: International, New Age, Easy ListeningПродолжительность: 00:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C094B6B60F2D1F14D2C11022DB21B5F19167B1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646522   (859558) от 21.04.2013
-
-VA - Terminator 2 from Super Bass (2007) [FLAC|Lossless]<Instrumental, Demonstration & Test CD>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Fighting Foor The Freedom - Takeshi Inomata [07:59]
-02. Genesis - Earth Dance [04:11]
-03. The Mass - Era [03:46]
-04. Zorabss - The Bass Gang [04:07]
-05. Sometimes I Feel Like A Motherless Child - Grant Green [02:49]
-06. Touch - Andres Aestrand Ensemble [03:24]
-07. Mdnight Suger - Three Bli [05:04]
-08. Radetzky March, Op.228 - Ein Straussfest [03:12]
-09. The Magnificent Seven - Elmer Bernstein [05:39]
-10. Can Can - Harold Farberman [03:10](   Читать дальше...   )Жанр: Instrumental, Demonstration & Test CDПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646490   (859560) от 21.04.2013
-
-VA - Cafe De Paris 1930-41 - 24 Accordeon Classics (1993) [FLAC|Lossless]<Jazz, Chanson, Easy Listening>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Gus Viseur et son orchestre - Flambee Montalbanaise [02:41]
-02. Edith Piaf avec accompagnement de grande orchestre - L'Accordeoniste [03:08]
-03. Medard Ferrero et ses clochards - El Ferrero [03:08]
-04. Les Freres Peguri - Enivrante [03:04]
-05. Michel Warlop et son orchestre - Strange Harmony [02:36]
-06. Emile Vacher - Mado [02:42]
-07. Gus Viseur et son orchestre - Matelotte [03:19]
-08. Jean Gabin - Quand On Se Promene [03:18]
-09. Emile Vacher - Sporting Java [02:52]
-10. Tony Murena et son ensemble - Pepee [02:50](   Читать дальше...   )Жанр: Jazz, Chanson, Easy ListeningПродолжительность: 01:07:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 304822   (859981) от 05.03.2011
-
-Музыка Для Релаксации - Там где жизнь (2010) [MP3|256 kbps]<New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-2010Жанр: New Age, RelaxПродолжительность: 06:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF2E57A419A7A5192E781759E435527AD67CB0E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375776   (859982) от 17.04.2020
-
-David Arkenstone - The Delicate Balance (2020) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Isolamento
-02. What We Do In Life... Echoes In Eternity
-03. You Can Only Come To the Morning Through The Shadows
-04. The Measure of Existence(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:26:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A1F07185DD074E8DD51B5987A9D1283A55D219
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646710   (860587) от 21.04.2013
-
-Antonio Chainho - A Guitarra e outras mulheres (1998) [FLAC|Lossless]<Instrumental Guitar, Fado>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. A Sombra (Fado Nocturno) {with Teresa Salgueiro} [04:02]
-02. Juntei-me a Voz Verdadeira {with Elba Ramalho} [03:20]
-03. Percursos [01:37]
-04. Nossa Musica {with Nina Miranda} [03:49]
-05. Guitarra Sem Fronteiras [03:08]
-06. Fadinho Simples {with Marta Dias} [04:13]
-07. Valsinha Mandada [03:54]
-08. Tenho Ruas No Meu Peito {with Sofia Varela} [02:48]
-09. Fado da Desistencia {with Filipa Pais} [03:20]
-10. Rotas Maritimas [03:18](   Читать дальше...   )Жанр: Instrumental Guitar, FadoПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-нет
 ```
 
 

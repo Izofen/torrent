@@ -1,3 +1,30 @@
+###  Публикация: 1237330   (552095) от 23.07.2018
+
+VA - Club Dance Ambience Vol.157 (2018) [MP3|320 Kbps] <Dance, Club, House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_552095.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 0045  &  El Niño  - Act Like Ya Know (Justin James (Chicago) Remix)
+002. Adri Block - Be Good (Original Mix)
+003. al l bo & Victoria Romanova feat. DJ Alex N-Ice - We Are Winners (Original Mix)
+004. al l bo - Thriller (Hopeful Peace Instrumental Remix)(   Читать дальше...   )Жанр: Dance, Club, House, Electro HouseПродолжительность: 07:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87918721DFF3BFBA1A049A318DBE3404C456DA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237113   (552227) от 23.07.2018
 
 Metallica - Time For One...Or 3...Or 7 (EP) (2018) [MP3|320 Kbps] <Thrach Metal, Heavy>
@@ -671,33 +698,6 @@ VA - Шансон на лето. Версия 10 (2016) [MP3|256 Kbps] <Шанс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F58455A483C906C745B219B8F4933295F71FCBB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046191   (553068) от 26.08.2016
-
-VA - Летние хитовые песни 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_553068.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sofie H - Sense Of Insane
-002. Елка - Грею Счастье
-003. Dimitri Vegas & Like Mike Vs. Ummet Ozcan - The Hum
-004. Сергей Грейс - Любить Тебя Любить(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92AECB8C9704F9B017D5C5608D71E9C01738A05E
 ```
 
 

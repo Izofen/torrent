@@ -1,3 +1,30 @@
+###  Публикация: 1064897   (604259) от 25.04.2022
+
+VA - 2004' Ambient Album (2004) [APE|Lossless|image + .cue] <Ambient>
+
+>>Electronic
+>>Ambient, Experimental, Modern Classical (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From This Moment/Persis - Brian Eno
+02. Midnight Sun - David Sylvian
+03. Promis - ORB
+04. Sixty Sixteen (For Karina) - Banco De Gaya(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:18:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5218E01B990C5DAE8135D29EBF21DDACFA422DCF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148165   (604408) от 05.07.2017
 
 VA - Dark Trance Vol. 2 (2017) [MP3|320 Kbps] <Trance>
@@ -686,33 +713,6 @@ Japan - Exorcising Ghosts (1984) Anthology [FLAC|Lossless|tracks + .cue] <Synth-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E442422C552E03436745597CB8E9EDB4FDFFA41C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296971   (606805) от 20.04.2019
-
-Jay-Jay Johanson - Tattoo (1998) [FLAC|Lossless|tracks + .cue] <Electro, Trip Hop, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Even In The Darkest Hour (03:53)
-02. Quel Dommage (04:17)
-03. Murderans (00:32)
-04. Milan, Madrid, Chicago, Paris (04:11)(   Читать дальше...   )Жанр: Electro, Trip Hop, Synth-popПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB5A9C74285427AA8A707121292E834815552B2
 ```
 
 

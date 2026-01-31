@@ -1,3 +1,30 @@
+###  Публикация: 1048829   (545271) от 03.09.2016
+
+VA - Surfing Trance Distant (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Emotioal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myk Bee  -  Endless Drive (Original Mix)  7:46
+02. Mr Andre  -  Electic Rainbow (Original Mix)  6:28
+03. Liquid Souls  -  Faith (Bouncerz Remix)  8:32
+04. Ltn Pres. Blue Ghost  -  Chasing The Arrow (Radio Edit)  3:24(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, EmotioalПродолжительность: 02:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:889BEE976DCA15621656870BA5F6BC0260B8AF41
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310760   (545299) от 26.06.2019
 
 VA - German Top 50 Party Schlager Charts 24.06.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
@@ -667,33 +694,6 @@ VA - Prime Time Mix (2019) [MP3|320 Kbps] <Minimal, Techno House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:131B4B2A0A7E6CE9EEB51581C13A5C0D82106316
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189892   (547032) от 29.07.2018
-
-VA - По волне моей памяти 2: Том35 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Рок>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_547032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Смысловые Галлюцинации  -  Звёзды 3000  4:21
-02.  Жанна Агузарова и 'Браво'  -  Ленинградский рок-н-ролл  2:26
-03.  Чиж&C  -  Перекресток  7:01
-04.  Ва-Банкъ  -  Маршруты московские  4:40(   Читать дальше...   )Жанр: Поп, РокПродолжительность: 02:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247AE37944BA3B72D35983A395C7F091302E35D0
 ```
 
 

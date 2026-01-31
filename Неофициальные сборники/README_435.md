@@ -1,3 +1,27 @@
+###  Публикация: 333196   (694461) от 07.05.2011
+
+VA - Хиты Под Водочку (2011) [MP3|256 kbps]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_694461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ШансонПродолжительность: 05:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1682C13ABC1F01A1E085905B9D542F303439FA8
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027718   (694700) от 20.06.2016
 
 VA - Planet Pop Vol. 05: Lolipop Version (2016) [MP3|192-320 кб/с] <Pop>
@@ -663,33 +687,6 @@ magnet:?xt=urn:btih:09ED05A551D38ED7E5DAA62B12ED989BE2F43840
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74B34A85EFD19ED9B1A9F4D530D76CB01E6AC04A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132823   (696454) от 11.05.2017
-
-VA - Рок в Авто  Зарубежный - Collection  (2012-2017) [MP3|192-320 Kbps] <Rock, Hard Rock, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696454.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A Hero for the World - Eternal Shadows 5:25
-002. Abraxas - Cry Of The Nature 3:40
-003. Adrenaline Mob - Kill the King 4:33
-004. Age of Artemis - Echoes Within 4:04(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 19:25:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF898E99029C70709E41FB1748C3BDA6CBABAA6F
 ```
 
 

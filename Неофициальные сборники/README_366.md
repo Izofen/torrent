@@ -1,3 +1,30 @@
+###  Публикация: 1148657   (603410) от 07.07.2017
+
+VA - Unknown 80's (part VII) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, New Wave>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_603410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Truth - Weapons Of Love - 1987
+02. Beranek - Dum-Dee-Dum-Dee - 1988
+03. Scooter - Red Ruby Lips - 1981
+04. Transmuters - Things Are Getting Better - 1984(   Читать дальше...   )Жанр: Electronic Pop Rock, Synthpop, New WaveПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C993388E3A42F22D9354F670CB23FAA123A0AA7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148687   (603411) от 07.07.2017
 
 VA - Beatport Top 100 Dance June (2017) [MP3|320 Kbps] <Dance>
@@ -674,33 +701,6 @@ VA - Blues Rock Drive 3 [4CD] (2016) [MP3|320 Kbps] <Blues, Blues Rock, Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD622CFAEDBB3391558BD2B9F811ACB7CCFD1D0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297232   (604753) от 21.04.2019
-
-VA - Total Stress Relief (2019) [MP3|320 Kbps] <Meditation, Relax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_604753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patrick Bernard - Shiva Shakti Mantra
-02. Drogtech - Before The Storm
-03. Yoga Pop Ups - Smells Like Teen Spirit
-04. Gayalaxy - Duduk Spell(   Читать дальше...   )Жанр: Meditation, RelaxПродолжительность: 05:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2780B2532095CC526EDE66275224E80EE58EA6F
 ```
 
 

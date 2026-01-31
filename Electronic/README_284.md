@@ -1,3 +1,30 @@
+###  Публикация: 1307293   (555216) от 08.06.2019
+
+Planet Supreme - Planet Supreme (2019) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Ambient, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Descend (07:21)
+02. Holy Mountain (05:40)
+03. Gardens (05:13)
+04. Suns (04:45)(   Читать дальше...   )Жанр: Ambient, IndustrialПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48D6D2C8B408585BB7332A3647055226C39ACAA5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307236   (555228) от 08.06.2019
 
 Tom Adams - Particles (2019) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Post Rock>
@@ -665,33 +692,6 @@ Holomatrix ‎ - Calling earth (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35A89E67432F7FEAE117B30EA97217B3354E965
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305526   (556450) от 31.05.2019
-
-VA - House Of Ibiza (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hector Moralez & Tommy Vercetti  -  Countdown (Original Mix)
-02.  Kruse & Nuernberg  -  Summer Sanctuary (Original Mix)
-03.  Mood Ll Swing  -  Sunlight In My Eyes (Satoshi Fumi Re-Edit)
-04.  Roter & Lewis  -  Get Out Of My Life (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 04:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83EA3D0D4C807419991381BF3B74DAF64477947
 ```
 
 

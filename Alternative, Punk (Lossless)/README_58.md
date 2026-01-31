@@ -1,3 +1,30 @@
+###  Публикация: 1277704   (785031) от 21.01.2019
+
+Powerman 5000 - New Wave (2017) [FLAC|Lossless|tracks + .cue] <Industrial Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Footsteps and Voices (3:21)
+ 02. Hostage (2:44)
+ 03. Sid Vicious in a Dress (3:39)
+ 04. David Fucking Bowie (3:13)(   Читать дальше...   )Жанр: Industrial Rock, AlternativeПродолжительность: 00:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA58C710FCD9F7860FB683D54A224EB7BF6AF3D3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277712   (785062) от 21.01.2019
 
 Flasher - Constant Image (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -667,33 +694,6 @@ Mimicking Birds - Layers of Us (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie, Acou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0BA047164931231145071068670F8463C028364
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 413498   (790836) от 10.01.2019
-
-Daughtry - 6 альбомов (2006 - 2018) [FLAC|Lossless|tracks+.cue]<Alternative, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daughtry (Дотри) — рок-группа из Северной Каролины, основана и финалистом шоу American Idol Крисом Дотри с 2006 года. Их одноимённый альбом "Daughtry", выпущенный в 2006 году, попал в Billboard 200, было продано более 5 миллионов копий. Альбом стал самым быстро продаваемым рок альбомом в истории Soundscan. Так же было продано 7.1 миллиона синглов. Первый (   Читать дальше...   )Список альбомов:
-2006 - Daughtry
-2009 - Leave This Town
-2011 - Break the SpellЖанр: Alternative, Modern RockПродолжительность: 05:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EEF725117B4C9B0CFFAE24E46EA0254406388C5
 ```
 
 

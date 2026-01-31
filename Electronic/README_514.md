@@ -1,3 +1,30 @@
+###  Публикация: 1188374   (1027820) от 05.03.2021
+
+Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems Silently Moving, A601-2) - Discography (1996-2019) [FLAC|Lossless] <Dub Techno, Ambient, Techno, Experimental>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Octal 6 (B1) “Part 9” (03:54)
+ 02. Octal 6 (B1) “Part 4” (07:29)
+ 03. Octal 6 (B1) “Part 3” (09:18)
+ 04. Octal 6 (B1) “Part 7” (04:48)(   Читать дальше...   )Тип издания: CD, Vinyl, WebЖанр: Dub Techno, Ambient, Techno, Experimental •Продолжительность: 70:06:45 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6576D4B73CDC00B3F3D0630883CE48183A6D119D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201058   (1027864) от 05.03.2021
 
 Richard Devine (Richard Coleman Devine) - Discography 14 Releases (1996-2020) [FLAC|Lossless|tracks+.cue, tracks] <IDM, Experimental, Leftfield, Abstract>
@@ -665,33 +692,6 @@ Topdown Dialectic - Discography 6 Releases (2014-2019) /\\Aught, Peak Oil [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8E5F6DEB5BFD88CA9B9CA19ADF84D6F4D99F21D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152884   (1028272) от 02.03.2021
-
-The Midnight - Collection (2014-2020) [FLAC|Lossless|WEB|tracks] <Synthwave, Synthpop>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Years (prologue) (6:09)
-02. Gloria (4:50)
-03. WeMoveForward (8:08)
-04. Days of Thunder (5:24)(   Читать дальше...   )Жанр: Synthwave, SynthpopПродолжительность: 14:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12DD0B70655F0F7571A6C31315AFC829D029FFC6
 ```
 
 

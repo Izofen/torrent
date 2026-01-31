@@ -1,3 +1,198 @@
+###  Публикация: 185154   (888065) от 21.03.2010
+
+Balkan Beat Box - Blue Eyed Black Boy (2010) [MP3|320 кб/с]<Electronica / Rock Gypsy / Balkans Folk / Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Move It
+03. Blue Eyed Black Boy
+04. Marcha De La Vida
+05. Dancing With The Moon
+06. Kabulectro
+07. My Baby
+08. Balcumbia
+09. Look Them Act
+10. Smatron(   Читать дальше...   )Жанр: Electronica / Rock Gypsy / Balkans Folk / EthnicПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 664037   (888094) от 01.04.2020
+
+VA - Relax With... 11 альбомов (1993-1997) [FLAC|Lossless|image + .cue] <Nature Sounds, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+Relax With... Desert Winds (1993)
+Relax With... Singing Birds (1993)
+Relax With... Ocean's Relaxing Surf (1996)(   Читать дальше...   )Жанр: Nature Sounds, RelaxПродолжительность: 11:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5B2727FE8EEB37F5F098B0BDBA6D9ACE89E4FD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640835   (888174) от 01.04.2020
+
+Blue Seas Grand Orchestra - Poetry of The Natures (2013) 2CD Digipack Edition [FLAC|Lossless|image + .cue] <New Age, Easy Listening, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepy Lagoon (3:46)
+02. Theme From A Summer Place (2:50)
+03. Moon River (3:10)
+04. The Windmills Of Your Smile (3:13)(   Читать дальше...   )Жанр: New Age, Easy Listening, RelaxПродолжительность: 01:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671E8570ABBB64C42B87FFB92B70D15275EB2DFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994728   (888198) от 09.03.2016
+
+Sudha - Planet Love (2004) [APE|Lossless|image + .cue] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wendeyaho (05:50)
+02. La 'Ieikawai (06:55)
+03. Ishq Allah (04:48)
+04. Undea Hibi (07:22)(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825806DFE3E0E2675C809FE65ABB0029C0DB89FF
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 661224   (888275) от 01.04.2020
+
+Oystein Sevag - Space For A Crowded World (2012) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Landing (5:50)
+02. Urban Nocturne (4:14)
+03. Gentle (3:54)
+04. Song from another Place (3:30)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED63C4CA8FBB6F5D5AFD1408F8C0A661F66AEBE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 245526   (888298) от 01.04.2020
+
+Satyaa & Pari - To the One (2010) [FLAC|Lossless|tracks + .cue] <Spiritual, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sitaram Radheshyam (19:22)
+02. To the One (9:41)
+03. Shakti Om (9:06)
+04. Lokah Samasta (8:48)(   Читать дальше...   )Жанр: Spiritual, New AgeПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C60BCAA31ACC26F3A066BB60622CF974CBC02E0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371666   (888581) от 01.04.2020
+
+Art of Empathy - Posthuman Decadence (2012) [FLAC|Lossless|tracks + .cue] <Neofolk, Darkwave, Atmospheric>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_888581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Design [07:27]
+02. Good Morning Sick World [05:20]
+03. Don't Mind [04:21]
+04. Recreation [04:32](   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1CD013437DCCA3B16E87F520C8976572FA0FDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 762902   (888905) от 04.03.2014
 
 Arktor - Cotton Mather Estates (2013) [FLAC|Lossless]<Ambient, Downtempo, Drone, Ethereal, Illbient>
@@ -551,199 +746,6 @@ magnet:?xt=urn:btih:617ABB2594A99B43D883AC540E20299711B626E0
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F103713C1019B82535EEBEBECB6758EDA0EB9522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994376   (891577) от 07.03.2016
-
-Gomer Edwin Evans - Mystical Eastern Beauty (2016) [MP3|320 кб/с] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystical Istanbul
-02. The Golden Horn
-03. Evening Prayer
-04. Orange Sky(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA92468514816D0B6B410B9B032C5725E6168DD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994398   (891606) от 07.03.2016
-
-Richard Laurence - A Busy Couple of Years (2016) [MP3|320 кб/с] <Classical, New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Changes Key
-02. Final Words from a Best Man
-03. Song for Grey Skies
-04. Rainbow Moonstone(   Читать дальше...   )Жанр: Classical, New Age, PianoПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4D6AA5B019071EEEAC418C9C5240115F75F3E9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994266   (891618) от 07.03.2016
-
-Golana - Feather On The Wind (2000) [FLAC|Lossless|image + .cue] <New Age, International>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer To You  04:54
-02. All Good Medicine  06:03
-03. Allaluia  03:50
-04. Mojava Morning  03:52(   Читать дальше...   )Жанр: New Age, International, InstrumentalПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A64B838E7C3A7DDDCE6C8CC46CF8196B0A5FB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371009   (891872) от 30.03.2020
-
-Keiichi Okabe - NieR Orchestral Arrangement Album - Addendum (2020) Soundtrack /2CD/Limited Edition [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_891872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Manifestation (J'Nique Nicole Vocals)
-02. Peaceful Sleep
-03. Vague Hope (Emi Evans Vocals)Жанр: ScoreПродолжительность: 00:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D029FCD30A538693A768A904B3D6BAD71B747955
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776937   (892010) от 08.02.2017
-
-Ennio Morricone - Collected (2014) 3CD Box Set [MP3|320 кб/с]<Soundtrack, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эннио Морриконе родился 10 ноября 1928 года в семье профессионального джазового трубача Марио Морриконе и домохозяйки Либеры Ридольфи, он был старшим из 5 детей.01. The Fascist (Theme) (From the movie 'The Fascist') (2:04)
-02. A Fistful Of Dollars (Theme) (From the movie 'A Fistful Of Dollars') (1:48)
-03. Bullets Don't Argue (Theme) (From the movie 'Bullets Don't Argue') (2:34)
-04. A Gun For Ringo (Theme) (From the movie 'A Gun For Ringo') (2:19)(   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 03:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8738D6B1C3F3229CC0016BCD762BF04CB7451A20
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371159   (892019) от 30.03.2020
-
-Alexander Ryabtsev (Александр Рябцев) - Europe: Space Theme Vol. 12 (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Иванович Рябцев родился 12 марта 1963 году в семье военнослужащего. Окончил радиотехнический факультет Новороссийского высшего инженерного морского училища. Начинал работать на судах загранплавания Новороссийского морского пароходства начальником радиостанции. В 1998 году заочно окончил судоводительский факультет Новороссийской государственной морской академии (   Читать дальше...   )01. Make A Wish (4:50)
-02. In Harmony (3:32)
-03. On The Crest Of A Wave (4:06)
-04. Between The Past And The Future (4:48)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CFB1D28204DB0152A3B1565C50E32ED6273B2F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184483   (892336) от 18.03.2010
-
-Omnia - 8 альбомов (2001-2007) [MP3|192-256 кб/с]<Folk, Medieval, Celtic, Pagan, Neofolk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Wytches Brew 4:09
-02. The Raven 9:07
-03. Allive! 4:45
-04. Were You at The Rock? 1:04
-05. Richard Parkers Fancy 3:39
-06. The Elven Lover 4:24
-07. Satyr Sex 4:10
-08. Equinox 5:21
-09. Fairy Tale 5:07Жанр: Folk, Medieval, Celtic, Pagan, NeofolkПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-нет
 ```
 
 

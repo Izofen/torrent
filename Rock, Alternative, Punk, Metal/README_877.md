@@ -1,3 +1,345 @@
+###  Публикация: 1036244   (621096) от 20.07.2016
+
+Mitch Ryder And The Detroit Wheels - Breakout !!! (1966) 1993, Sundazed Music [MP3|320 Kbps] <Rock, Rockabilly, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking The Dog
+02. I Had It made
+03. In The Midnight Hour
+04. Ooh Poo Pah Doo(   Читать дальше...   )Жанр: Rock, Rockabilly, Rock & RollПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB34E3E7C2E7FE703A158553B8B9A80CF67700B6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522132   (621141) от 14.07.2012
+
+Black Breath - Sentenced To Life (2012) [FLAC|Lossless]<Death 'n' Roll/Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_621141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feast of the Damned (2:52)
+02. Sentenced To Life (2:24)
+03. Forced Into Possession (1:57)
+04. Home of the Grave (3:30)
+05. Endless Corpse (4:31)
+06. Mother Abyss (2:33)
+07. Of Flesh (3:32)
+08. Doomed (2:00)
+09. The Flame (4:09)
+10. Obey (5:12)Жанр: Death 'n' Roll/Thrash MetalПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522261   (621148) от 14.07.2012
+
+Reverence - When Darkness Calls (2012) [MP3|320 кб/с]<Heavy/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Darkness Calls (5:00)
+ 02. Bleed For Me (4:11)
+ 03. Phantom Road (3:47)
+ 04. Devil In Disguise (4:31)
+ 05. Too Late (5:17)
+ 06. Gatekeeper (3:55)
+ 07. The Price You Pay (4:19)
+ 08. Monster (4:54)
+ 09. Revolution Rising (5:33)
+ 10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C956D86962F05008B962756B9BDD053437E180
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 521959   (621150) от 14.07.2012
+
+Reverence - When Darkness Calls (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_621150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Darkness Calls (5:01)
+02. Bleed For Me (4:11)
+03. Phantom Road (3:47)
+04. Devil In Disguise (4:31)
+05. Too Late (5:17)
+06. Gatekeeper (3:55)
+07. The Price You Pay (4:19)
+08. Monster (4:54)
+09. Revolution Rising (5:33)
+10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy Metal/Power MetalПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036169   (621160) от 20.07.2016
+
+Diana Rein - Long Road (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Long Road (6:36)
+2. Wild One (4:46)
+3. Livin' Loud (4:59)
+4. Green Light (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 0:58:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4BC72744641B25182E76CF1278E0348A06D5BDB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036114   (621161) от 20.07.2016
+
+Orden Ogan - Vale (2007) Reissue, Remastered, 2015 [MP3|320 Kbps] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Graves Bay    01:16
+02.  To New Shores Of Sadness    06:14
+03.  Winds Of Vale    03:27
+04.  Farewell    03:50(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A0A20ABAB631A916248EFBA822F552719F457C
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036500   (621162) от 20.07.2016
+
+Fields - Fields (1969) [MP3|320 Kbps] <Heavy Psych>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621162.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Elysian Fields
+2. Bide My Time
+3. Take You Home
+4. Jump On You(   Читать дальше...   )Жанр: Heavy PsychПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9E92E23F51703AD74CEF17BEA2DE6556167628
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036272   (621163) от 20.07.2016
+
+Dust Bolt - Mass Confusion (2016) Japanese Edition [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SickxBrain
+02. Mass Confusion
+03. Allergy
+04. Turned to Grey(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271A041F4FA6A15327CCCEC4CC249477D3560ADA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145238   (621420) от 25.06.2017
+
+Сурганова и Оркестр - Парижская акустика (2017) 2CD [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621420.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не тобой болеет сердце
+2. За тобой
+3. Не покидай
+4. Ну почему же я вру(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710FA1AF7838AD10474C8100F22EF96DDD351341
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910169   (621551) от 20.06.2015
+
+The Beatles - Abbey Road (1969) Remastered, Stereo /Parlophone, Toshiba EMI/ [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Together (4:21)
+02. Something (3:03)
+03. Maxwell’s Silver Hammer (3:27)
+04. Oh! Darling (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA49983CF7068A0DE4D07C10B7EF57D1B128E460
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910257   (621552) от 20.06.2015
+
+Lumen - Всегда 17, всегда война (2015) 2CD Live [FLAC|image+.cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дыши
+02. Не надо снов
+03. Гонка
+04. Три пути(   Читать дальше...   )Жанр: RockПродолжительность: 01:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22F4DD0164278F9BD408903BA90A7AE5DB45219
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910303   (621553) от 20.06.2015
+
+Smokie - Gold (1975-2015) Deluxe Edition (2015) 2CD [MP3|320 кб/с]<Pop rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babe It's Up To You
+02. It's Your Life
+03. Oh Carol
+04. Baby It's You(   Читать дальше...   )Жанр: Pop rockПродолжительность: 02:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3272A17666DE7A3E82FAC8188176A423976D0C0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 219683   (621599) от 20.07.2010
 
 Аквариум - День Радости (2010) [WavPack|Lossless]<Rock>
@@ -383,330 +725,6 @@ Tony Carey - The Boystown Tapes Reissued (2006) [FLAC|image+.cue]<Progressive Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E890DC3ADA5BB2E5B0C5FC21109FDDD47B3AAC6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544288   (622190) от 15.04.2022
-
-Circle Of Friends - The Garden (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Piece Of Heaven (vocals – Doro) (4:48)
-02. Take My Love To Heart (vocals – Jaime Kyle) (3:22)
-03. Never Gonna Make Me Cry (backing vocals – Robin Beck, vocals – James Christian) (4:16)
-04. Bad Blood (vocals – Jeff Scott Soto) (4:42)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3344E34969399F2AE5B5B989A9BE8881F2D2B00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544357   (622206) от 15.04.2022
-
-The Chronomaster Project - The Android Messiah (2022) [MP3|320 Kbps] <Melodic Progressive Metal, Metal Opera>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Mission (feat. Mark Boals) [00:04:31]
-02 - The End Of My World [00:04:44]
-03 - The Ancient Throne of Tessev V [00:05:03]
-04 - The Invaders’ Chronicle, Pt.1 – We Came in Peace (feat. Amanda Somerville) [00:04:34](   Читать дальше...   )Жанр: Melodic Progressive Metal, Metal OperaПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA04C56C330ACE368054B76C4E48EDC839E75480
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544166   (622215) от 15.04.2022
-
-Saints 'n' Sinners - Rise Of the Alchemist (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Above So Below
-02. Sign Of Things To Come
-03. Sacred Ground
-04. Saviour Of The Damned(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39DB78D5F8E4E4CB2399BD6DD3890736FBFA528B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910218   (622224) от 20.06.2015
-
-Weird. - A Long Period Of Blindness (2015) [OGG|453-477 кб/с]<Psychedelic Rock, Shoegaze, Post Rock, Noise>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Circle Is Closed Except Where It Bleeds
-02. Dead Wax
-03. Infinite Decay
-04. The Sound Of Your Heartbreak(   Читать дальше...   )Жанр: Psychedelic Rock, Shoegaze, Post Rock, NoiseПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E877D4A397AA1701DDA79BCCB7A83253F9ED005
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910433   (622225) от 20.06.2015
-
-Bill Ward - Accountable Beasts (2015) [MP3|320 кб/с]<Hard Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622225.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Leaf Killers
-2. Accountable Beasts
-3. Katastrophic World
-4. D O T H(   Читать дальше...   )Жанр: Hard Progressive RockПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F326F58F4CB91776F476D55190630BA97A982C5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910163   (622228) от 20.06.2015
-
-Chappo - Future Former Self (2015) [OGG|493-552 кб/с]<Alternative, Indie Space Rock, Psychedelic, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello
-02. Hang On
-03. I’m Not Ready
-04. I Don’t Need The Sun(   Читать дальше...   )Жанр: Alternative, Indie Space Rock, Psychedelic, ElectronicПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:826246132E57F01C574D2A0BD50B80C96FBBEDBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910494   (622233) от 20.06.2015
-
-Chris and Juno - Pastime (2015) EP [MP3|320 кб/с]<Alternative, Indie Pop, ELectronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure (03:18)
-02. Whatever (03:27)
-03. And I Dance (03:43)
-04. On Time (03:57)Жанр: Alternative, Indie Pop, ELectronicПродолжительность: 00:14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC9A94C2CD93BF7D677D72732F91C03BF1178DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910239   (622235) от 20.06.2015
-
-Weird. - Desert Love For Lonely Graves. (2013) [OGG|404-434 кб/с]<Shoegaze, Psychedelic Rock, Space Rock, Ethereal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Was The Sky, Cold Was The Rain
-02. Echo & The Lullaby
-03. A New Beginning
-04. Desert Love(   Читать дальше...   )Жанр: Shoegaze, Psychedelic Rock, Space Rock, EtherealПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99F20E429E9FC5D3F42F37FD792309CBF359D838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544291   (622347) от 15.04.2022
-
-Monuments - In Stasis (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Djent, Math Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One Will Teach You (feat. Neema Askari) (4:59)
-02. Lavoss (feat. Mick Gordon) (4:10)
-03. Cardinal Red (feat. Mick Gordon) (4:42)
-04. Opiate (4:18)(   Читать дальше...   )Жанр: Progressive Metal, Metalcore, ElectronicПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DB3391AE6EC071CC5C4BD001A45D0285F922F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544238   (622363) от 15.04.2022
-
-Kreator - Endorama (1999) 2CD, Ultimate Edition, Remastered, 2021, AFM Records [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622363.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Golden Age
-2. Endorama
-3. Shadowland
-4. Chosen Few(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:55:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C9CEB8B2364B11FAA1BE8DE257786C1FA1E154
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295023   (622378) от 11.04.2019
-
-Eluveitie - Ategnatos (2019) Limited Bonus Edition [FLAC|Lossless|tracks + .cue] <Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ategnatos (4:53)
-02. Ancus (0:11)
-03. Deathwalker (4:53)
-04. Black Water Dawn (4:18)(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEF41903C0F72B1F69C72FDC7A2F5B59E96DCF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295121   (622498) от 11.04.2019
-
-Screamin' Rebel Angels - Heel Grinder (2019) [MP3|320 Kbps] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh! My Soul (02:08)
-02. Baby Gets Down (02:13)
-03. Heel Grinder (02:19)
-04. Hands Off (02:26)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:144A6FA33599D22DF142480F8D06544F1EF800A1
 ```
 
 

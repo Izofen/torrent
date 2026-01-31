@@ -1,3 +1,57 @@
+###  Публикация: 605457   (995789) от 19.01.2013
+
+Лучшие клипы / The best videos of all time (Glamrock) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Accept - Teutonic Terror
+02. Aerosmith - Crazy
+03. Alice Cooper - Bed of nails
+04. Antony Bellicourt - Glam Rock(   Читать дальше...   )Жанр: Музыка, GlamrockПродолжительность: 01:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720963E7CE5D0B53030A6C78FCEBF540E7424B8F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604785   (995794) от 19.01.2013
+
+Лучшие клипы / The best videos of all time (Blues) H.264 (2012) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alvin Youngblood Hart - Illinois Blues
+02. B.B. King - Rock Me Baby
+03. Blues Brothers & Ray Charles - Shake a tailfeather
+04. Big Bad Blues -  Furthur(   Читать дальше...   )Жанр: Музыка, Blues, Blues-rockПродолжительность: 01:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B17F7A6C30583BD1AE734FC6E026A4B3A2ACE0
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605384   (995809) от 19.01.2013
 
 Лучшие клипы / The best videos of all time (Country) H.264 (2012) DVDRip
@@ -674,54 +728,6 @@ magnet:?xt=urn:btih:0F5D490A0612CC872EF13B93F28331426578557D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E68F832D244EF779D33679AB1F5D10550627EBE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601455   (998260) от 10.01.2013
-
-Лучшие клубные видеомиксы / Euroadrenaline Video Yearmix 2012 [720p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вниманию зрителей представлен новый, 6-й по счету, видеомикс лучших клубных треков (по версии Supremo) в стиле Trance, Dance & House - Euroadrenaline Video Yearmix 2012.Жанр: Trance, Dance & HouseПеревод: ОригинальныйПродолжительность: 01:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FBAE1F9757DD370D6ED614F6D4D2C550FD1488
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601102   (998332) от 10.01.2013
-
-Kim Sori - Dual Life (2013) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, PopПродолжительность: 00:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E358197BBEBF601A7A1C4EA70519F93A21B60CDF
 ```
 
 

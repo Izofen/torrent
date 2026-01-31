@@ -1,3 +1,30 @@
+###  Публикация: 1199552   (801133) от 16.01.2018
+
+Žofka - Melancholia (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Acid Folk, Chanson, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melancholia (4:24)
+02. Divan (4:30)
+03. Si Jamais (4:25)
+04. Signore Banfi (3:56)(   Читать дальше...   )Жанр: Electronic, Acid Folk, Chanson, LoungeПродолжительность: 00:39:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CDD89AEC831A7F0C19F18F86788605D8506BF2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199606   (801137) от 16.01.2018
 
 VA - Silk Music Pres. Trance Treasures 09 (2018) [MP3|320 Kbps] <Trance>
@@ -668,33 +695,6 @@ Dark Soul - Take Control (2016) [MP3|320 кб/с] <Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBF5D5F8726FD48F6A1B3D3A308BFD9F570EA3E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010416   (802430) от 25.04.2016
-
-All India Radio - CD4: The Slow Light (2016) Bandcamp Edition [MP3|320 кб/с] <Downtempo, Ambient, Trip-Hop>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blueshift
-02. Dark Star
-03. Can You Hear The Sound
-04. The Slow Light(   Читать дальше...   )Жанр: Downtempo, Ambient, Trip-HopПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6485A40CCA57A54BB07114EB4B226FCF57D6B27B
 ```
 
 

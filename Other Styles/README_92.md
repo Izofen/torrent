@@ -1,3 +1,197 @@
+###  Публикация: 1043144   (572371) от 16.08.2016
+
+Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечность (Music From The Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Logo And Prosper (01:45)
+02. Thank Your Lucky Star (02:13)
+03. Night On The Yorktown (05:34)
+04. The Dance Of The Nebula (02:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:988DB1F52AD8FE0EC354C1E2E9B7A5EEE8BFE53F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234227   (572491) от 04.07.2018
+
+Deep Forest & Gaudi - Epic Circuits (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interstellar
+02. Taiyo
+03. Brassy Sunrise
+04. Ghostly Disco(   Читать дальше...   )Жанр: Ambient, Downtempo,New AgeПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A46CEB1A0BFDF0392C0B7E0CD2DA815D41B6B07
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043146   (572683) от 16.08.2016
+
+VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonnie "Prince" Billy - The Dragon Song (02:29)
+02. Lindsey Stirling - Something Wild (feat. Andrew McMahon In the Wilderness) (03:44)
+03. The Lumineers - Nobody Knows (03:09)
+04. St. Vincent - Something on Your Mind (03:01)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BC25BB8D15609D2BE62169B7038C40CD18A1B89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043147   (572709) от 16.08.2016
+
+VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonnie "Prince" Billy - The Dragon Song (02:29)
+02. Lindsey Stirling - Something Wild (feat. Andrew McMahon In the Wilderness) (03:44)
+03. The Lumineers - Nobody Knows (03:09)
+04. St. Vincent - Something on Your Mind (03:01)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:15:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD17C13FBFDF1B71C7FAFCADF9A2849A00A83499
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303446   (572750) от 21.05.2019
+
+Ilyin - EP-0002. Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572750.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Faith
+2. Conscience
+3. WordЖанр: Instrumental, Neo-Classic, MetalПродолжительность: 00:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FE38AEB34C5FB197F2665D5E2B402EACC2097AA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527922   (573300) от 28.07.2012
+
+X Cultures - One World, One People (1999) [MP3|320 кб/с]<New Age, Ethnic, Folk, Trans-Global Mix>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573300.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Welcome To Crossing Cultures
+2. Dreams of Happiness
+3. Sufi Mali
+4. Baganda / Dance Of Life
+5. Temptations
+6. Sudanese Dance
+7. Waterfalls
+8. One World One People
+9. Larissa
+10. Free Your Mind(   Читать дальше...   )Жанр: New Age, Ethnic, Folk, Trans-Global MixПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A171A0C7A8B4E93EE8A94CAA344ECFA7210C3078
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920759   (573573) от 26.07.2015
+
+Andrew Lockington - Землетрясение в Сан - Андреас / Разлом Сан-Андреас / San Andreas: Original Motion Picture Soundtrack (2015) [FLAC|tracks+.cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Andreas Main Theme (1:42)
+02. Natalie's Rescue (5:17)
+03. Caltech (2:06)
+04. Divorce Papers (3:28)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94A5E1D27C772AE4E142AE7A574C61E89C4BC42D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921611   (573592) от 26.07.2015
 
 Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<New age, Meditative>
@@ -503,192 +697,6 @@ Mgzavrebi - Mgzavruli (2014) [FLAC|Lossless|tracks + .cue] <Folk, Pop-Rock, Geor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29599D5D28F1C1405A36F2555DC22A37723D9883
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042093   (580581) от 11.08.2016
-
-Lisa Downing - The Wisdom of My Shadow (2016) [MP3|320 Kbps] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_580581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forbidden Dance
-02. Tragic Dream
-03. Black Wedding
-04. Mischief(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD10BFE5722F450DBAC0119492F1E25A36AB00BC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919753   (581056) от 21.07.2015
-
-Barry Goldberg & John Philip Shenale - Return of the Living Dead 3 (1993) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Title
-02. Enter The Isolation Room
-04. Osc'scope Zombie
-05. Zombie A Go Go(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7B3EF4C8280792BB28572BEF29E641F7F8C661F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041811   (581464) от 10.08.2016
-
-Eamonn Karran - Celtic Skies (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Irish Skies
-02. New Life
-03. As One
-04. Boy Buries Mother(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFA416EC135DF10387EF12CBC8FDE1D59D4D4E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041523   (582178) от 09.08.2016
-
-Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Task Force X (04:53)
-02. Arkham Asylum (03:24)
-03. I'm Going To Figure This Out (01:42)
-04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:682080C84E86703FEA60A5884EC51F492A42A9EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041521   (582244) от 09.08.2016
-
-Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Picture Score) (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Task Force X (04:53)
-02. Arkham Asylum (03:24)
-03. I'm Going To Figure This Out (01:42)
-04. You Make My Teeth Hurt (02:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7824935393EF7E3F596AEDEBEC95B23B8B952C72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041510   (582423) от 09.08.2016
-
-Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finally, Sun - 4:04
-02. Let The Children Frolic - 2:04
-03. Acoustic Painting - 4:02
-04. Young King David - 3:32(   Читать дальше...   )Жанр: Contemporary Jazz, Instrumental GuitarПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8BD8F26E77C8E03BF52637F40D951F3A6D6175
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357764   (582664) от 05.07.2011
-
-Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 05:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCCF0FB945BA482625C8DBB21FFEC05A544BAC1
 ```
 
 

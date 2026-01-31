@@ -1,3 +1,30 @@
+###  Публикация: 1198647   (804409) от 13.01.2018
+
+VA - Lounge Vanilla (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blue Side  -  Final Word  3:15
+02.  Momylove  -  Bedroom Nine  2:39
+03.  Vintage Bullet  -  Club 80  2:40
+04.  Roben Bucks  -  Shallow  2:25(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6237DEAE2F52EB890639060CF383F02D655ED213
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198406   (804415) от 13.01.2018
 
 VA - Chilled Coffee Vol.1 (Amazing Backround Music For Cafe, Restaurant Or Home) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -660,33 +687,6 @@ Boris Brejcha - 22 (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D37EEBB41C4B909CB2DA31CBE27016DBEAAC053C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119672   (807597) от 28.03.2017
-
-VA - Dreams Builder 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magda Shortankard – Relaxing Night (00:05:20)
- 02. Jago Alejandro Pascua – Epica (00:06:12)
- 03. Maximo Gladius – Back In Lebanon (00:05:39)
- 04. Mark Gaetani – I’m Sorry (00:04:58)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CBAEBBD36CB690DE22BCDE26C17A4DE0F22C25
 ```
 
 

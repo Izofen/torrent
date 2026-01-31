@@ -1,3 +1,30 @@
+###  Публикация: 1292549   (645089) от 30.03.2019
+
+Chronos - Inner Darkness (2017) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybient, Psydub, Downtempo>
+
+>>Electronic
+>>Psybient, Psychill, Psydub (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Darkness (07:35)
+02. I'm Not Pretty (10:24)
+03. NESK (Mother Healing Version) (08:48)
+04. Anatomy Of The Fear (08:42)(   Читать дальше...   )Жанр: Psychill, Psybient, Psydub, DowntempoПродолжительность: 01:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F0D1C08499F0F67BD5647F821F6E008B7D884F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292713   (645185) от 30.03.2019
 
 Chris van Buren - Tierra Del Fuego (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
@@ -668,33 +695,6 @@ VA - Acoustic Unplugged. Bar Lounge Compilation Playlist 2017.2 [MP3|320 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E69B4DB645E19621CFB3909556BF5086B19265B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141954   (646729) от 12.06.2017
-
-VA - Beats For Life Vol.2: 20 Deep-House Daiqueries (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Cutie' - Gitano
-02. Cephalonya - Settembre
-03. Dj Aleksij & Klod Rights - Feelin' Nice - Kamisshake British Summer Remix
-04. Alfredam - The Sun - Steve Troiani Pool Party Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:753A1E56ED82C58E48AD6B60A3F2ED50F3DE7BE7
 ```
 
 

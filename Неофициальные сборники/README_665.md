@@ -1,3 +1,30 @@
+###  Публикация: 1465901   (1018681) от 28.04.2021
+
+VA - The Best Pop Rock Ballads 2000s (2021) [MP3|320 Kbps] <Pop, Rock, Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы ценитель качественной музыки? У вас в наушниках постоянно звучат мелодичные гитарные рифы? Тогда вы очутились здесь не случайно! Старое, доброе, настоящее и милое сердцу! - Это девиз музыкального сборника «The Best Pop Rock Ballads 2000s». На лонгплее, кроме всеми признанных музыкальных шедевров, звучат и малоизвестные композиции андерграундной сцены.001. Daniel Schuhmacher - Why
+002. Zella Day - The Outlaw Josey Wales
+003. Brandon Heath - Sunrise
+004. Alex Lloyd - Bring It On(   Читать дальше...   )Жанр: Pop, Rock, BalladsПродолжительность: 06:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4C4A16FCA22E4C43E7CAA3D1F13D11A1FE31D48
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466171   (1018762) от 28.04.2021
 
 VA - Beast Mode Hip Hop (2021) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -668,33 +695,6 @@ VA - Beatport Electro House: Sound Pack #277 (2021) [MP3|320 Kbps] <Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C52F1607DE9E724569CE966C8A6450459833EEAA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464186   (1019958) от 21.04.2021
-
-VA - Deep House Relax 2 (2021) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019958.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Hook, Rene - No More Lies (Tosel & Hale Remix) (7:48)
-002. Deepjack - Can't Stop (Original Mix) (7:04)
-003. Sako Isoyan, Irina Makosh - Dreamer (7:03)
-004. A-Mase, Sharliz - My Love (6:45)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A7D1CAE5FF8AC4D9F9D5C0B68924C45A11E3CF5
 ```
 
 

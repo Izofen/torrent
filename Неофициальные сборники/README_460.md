@@ -1,3 +1,30 @@
+###  Публикация: 1218202   (725101) от 08.04.2018
+
+VA - Kiss FM: Top 40 Апрель (2018) [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Post Malone feat. 21 Savage - Rockstar (Ilkay Sencan Remix) 4:10
+02. Vanotek feat. Eneli - Tara (Andrew Brooks Remix) 5:04
+03. Platon feat. Joolay - Taking Me Higher 4:25
+04. Matt Nash & Delayers - Run 4:02(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 02:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A27F9872A6669059CDC94E453755CD03EC8F16D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1217931   (725104) от 08.04.2018
 
 VA - ЕвроХит Топ 40 Europa Plus 06.04.2018 [MP3|320 Kbps] <Pop, Dance>
@@ -670,33 +697,6 @@ VA - Total Trance: Selections February (2019) [MP3|320 Kbps] <Trance, Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DCCA387B68DE75A7EC9980956E18725DE2862F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530929   (726535) от 13.02.2022
-
-VA - Friday Vibes: Dance House Music (2022) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Культура клубной музыки — явление довольно уникальное. Особенная атмосфера и, конечно, музыка — это то, что создаёт настроение тех, кто пришел отдохнуть на танцполе. Клубная музыка отличается от других музыкальных стилей прежде всего особым драйвом, заставляющим Вас снова и снова выплескивать бурю эмоций в энергичном танце.001. G-Prod - Let Me Feel
-002. Biz - Skyhigh
-003. Edy Marron - Do The Same
-004. Tilman - Make You Hot(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCA1D4DECF87D2ADE621AFF2FE3D324BA4F872E3
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1299200   (600858) от 30.04.2019
+
+VA - Delicious Bar Grooves Barcelona (2019) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delano's Friends - Top Of The Rhythm (Miami Rhythms's Deep Machinery) 3:33
+02. Yoshi Yoky - Gypsy Rain (Tokyo Deep Mix) 3:23
+03. Steven Light - The Magic Box (5th Avenue Mix) 3:12
+04. Long Island Groove - Gonna Meet You (Original Mix) 3:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D0070727D9E1D75290571D1BC8D973631A3D13
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548010   (600887) от 01.05.2022
 
 Royksopp (Röyksopp) - Profound Mysteries (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Electroclash, Electro Punk>
@@ -665,33 +692,6 @@ VA - Orchestral Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24A81440A9B69164DAE84EA39998A77EBF01DE4B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232284   (602331) от 23.06.2018
-
-Modd - Mesmerize Me (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_602331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mesmerize Me (4:30)
- 02. Flight Flow (4:34)
- 03. Velotrip (4:30)
- 04. Abenaki (4:42)(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E6F733D073012D6A1E187D17651BB92BD8BFF6F
 ```
 
 

@@ -1,6 +1,30 @@
-###  Публикация: 604945   (995899) от 19.01.2013
+###  Публикация: 606272   (995317) от 21.01.2013
 
-Tor.Ma - Inside Universe (2012) [MP3|320 кб/с]<Downtempo, Psy Chill, Psy Dub, Ambient>
+Rabbit Wallpapers (21.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA230DE6882BD91BCBEE2F0C6D5DE0AA7AFA67F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606495   (995319) от 21.01.2013
+
+Mirko Edelmann - Dirty Things (2012) [MP3|320 кб/с]<Techno, Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -12,28 +36,477 @@ Tor.Ma - Inside Universe (2012) [MP3|320 кб/с]<Downtempo, Psy Chill, Psy Dub,
 
 ###  Подробнее
 
-01. Message of Joy (6:39)
-02. These are not My Ears (6:30)
-03. Dreaming Machine (5:22)
-04. Changes (6:16)
-05. Where are You? (5:19)
-06. One Way (Tor.Ma In Dub Rmx) (5:41)
-07. Fungi Inside (6:18)
-08. Silver String (7:420
-09. Close your Eyes (6:41)
-10. Contemplation (7:53)(   Читать дальше...   )Жанр: Downtempo, Psy Chill, Psy Dub, AmbientПродолжительность: 01:07:51
+01. Prima Ballerina on Ketamina (05:48)
+02. Stampfquietschen (06:05)
+03. Doch Doch Genauso (06:16)
+04. Enforce (06:24)
+05. Quantensimulator (05:08)
+06. Synapsen Echo (05:26)
+07. Dirty Gate (06:37)
+08. Olbert (05:31)
+09. Wrong Way Ticket (04:57)
+10. Madfuck (04:32)(   Читать дальше...   )Жанр: Techno, ExperimentalПродолжительность: 01:03:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15A72BD8DBBD0F39F875B0D4F2F9E39DE7959205
+magnet:?xt=urn:btih:B45E4F6BC76B81EFB0D36C2097C615EA1AB0D291
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605554   (995900) от 19.01.2013
+###  Публикация: 606464   (995320) от 21.01.2013
 
-Light Image Resizer 4.4.1.0 [Мульти / Русский]
+VA - Elpa Ninth Compilation - Transparency of Density (2012) [MP3|320 кб/с]<Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Thompost - Trickle (07:16)
+02. Northcape - Morning Bell (07:55)
+03. Massimo Ruberti - Sensation (07:52)
+04. mint - Clouded (05:39)
+05. Data Unit -Жанр: Downtempo, AmbientПродолжительность: 01:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94AFD8F4FE3019F5A8E5E95FB515E116E4529EFD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603649   (995323) от 21.01.2013
+
+VA - Trance Remixes: Volume Two (2012-17-12) [MP3|320 kbps] <Uplifting/progressive trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Lukosz - Watch Your Step (Cressida remix) (08:13)
+02. Gabriel Batz - Inner Touch (Mike Shiver Catching Sun remix) (07:49)
+03. Sunny Lax - Always (Colonial One remix) (07:18)
+04. Mark Eteson - Universal Language (Tritonal club mix) (07:42)
+05. Sneijder - We Are Living (feat Elsa Hill - Sneijder remix) (07:56)
+06. Cold Blue - Paradise (Anhken remix) (08:00)
+07. ReOrder & Stine Grove - Seize The Day (Timur Shafiev remix) (07:52)
+08. Hydro Aquatic & Vir2l Vision - Vigor (Cold Blue remix) (08:12)
+09. Digitalis - Memento (Suncatcher remix) (08:45)
+10. Brisky - Celestial (John O'Callaghan Presents Mannix remix) (08:17)(   Читать дальше...   )Жанр: Uplifting/progressive tranceПродолжительность: 02:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A4FD16FE000BB6FD93C93241BA7BFF36B20ED5
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605719   (995324) от 21.01.2013
+
+Basic Perspective - Small Step On The Other Side (2006) [FLAC|Lossless]<Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Small Step On The Other Side (Original Mix) (8:04)
+02. - Small Step On The Other Side (Elevation Remix) (8:58)Жанр: Progressive TranceПродолжительность: 00:17:03
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606460   (995327) от 21.01.2013
+
+VA - Elpa Eighth Compilation - Leaving Summer (2011) [MP3|320 кб/с]<Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Rekalix - Under the Night Sky (04:54)
+02. Counterphase - Lonely Path (09:26)
+03. Delayscape - Analog August (03:21)
+05. Texense - 180 Days (03:56)
+06. Planetarium - Melody of a Live Planet (06:10)
+07. EugeneKha - Butterfly Flight (06:11)
+08. Invector - Tu un Es (04:11)
+09. Massimo Ruberti - Wandering (05:58)
+10. Thompost - Away (05:07)
+11. Vadatajs - Wonderfool Needles (05:08)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3421DC1021DEF5071E0BE5DC31E81EA959495CD9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605717   (995330) от 21.01.2013
+
+Mark Hunton - Annapurna: The Towering Sky (1999) [MP3|320 кб/с]<New age, World Fusion>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995330.jpg" />
+</div>
+
+
+###  Подробнее
+
+(5:12) 01. In the Shadow of Everest
+(5:01) 02. Annapurna: The Towering Sky
+(4:45) 03. Trekking
+(6:42) 04. Out on the Edge
+(5:32) 05. Waterfalling Before the Storm
+(6:37) 06. Mysteries Of The Mountains
+(5:22) 07. 15k To Lhasa
+(1:23) 08. Rendezvous At Sherpa's Teahouse
+(5:44) 09. Doorways Beyond
+(5:11) 10. Sunrise(   Читать дальше...   )Жанр: New age, World FusionПродолжительность: 01:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15A2CED3574EBAB948AAC7DD00C74AF75D7BB69
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606491   (995331) от 21.01.2013
+
+Dominic Infurna - Leap Year EP (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Second Moment Spring (10:34)
+02. Leap Year (Original Mix) (08:17)
+03. Leap Year (Infurna Edit) (08:17)
+04. Leap Year (Strehm Remix) (09:02)Жанр: TechnoПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7276769214B067CE5CE57FA3B427C7C7556ECAA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605088   (995332) от 21.01.2013
+
+VA - Клубные Новинки Vol.219 (2013) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Receptor - Strike For Oil (Original Mix)
+02. Omar - It s So (Bob Sinclar Instrumental Remix)
+03. Sou Kanai - Child (Original Mix)
+04. Origin - Moment of Sunrise (Original Mix)
+05. Sonic Element - Away Without You (Thomas Datt Remix)
+06. Sidney Samson feat. Will.I.Am - Better Than Yesterday (Leroy Styles Remix)
+07. Prism - Nothing To Do For The Next Three Hours (Original Mix)
+08. Synesthetic - Addicted To Music (Original Mix)
+09. Tim Royko feat. Mike Leon - We Are One (Goose Bumps Remix)
+10. PHM - Marionette (Original mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AF953FF615193CFB1E15A2C5961EAF6922900C6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606487   (995333) от 21.01.2013
+
+Deep Paranoya - Difinicion EP (2012) [MP3|320 кб/с]<Dub Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Difinicion (Original Mix) (07:28)
+02. Difinicion (Atabey Remix) (07:19)
+03. Difinicion (Pluge Remix) (08:48)
+04. Difinicion (Vytis Remix) (09:13)Жанр: Dub TechnoПродолжительность: 00:32:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F39C44D910B210CC7D5EABABEE9B113EC7F20BC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605625   (995334) от 21.01.2013
+
+Alchemist - Jar Of Kingdom (1993) [WavPack|Lossless]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstraction [04:45]
+02. Shell [04:12]
+03. Purple [04:47]
+04. Jar Of Kingdom [05:59]
+05. Wandering And Wondering [03:44]
+06. Found [01:28]
+07. Enhancing Enigma [05:15]
+08. Whale [01:11]
+09. Brumal A View From Pluto [05:40]
+10. Worlds Within Worlds [07:45]Жанр: Death MetalПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606496   (995335) от 21.01.2013
+
+Koolkilla and Strehm - Monotoys EP (2011) [MP3|320 кб/с]<Techno, Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Milestone Grinding Machine (06:20)
+02. Earwigs (06:36)
+03. Madness Mechanics Chor (06:13)
+04. The Brainkilla Syndrom (08:27)
+05. Madness Mechanics Chor (Nadejda Goes To Stardom Remix) (06:10)Жанр: Techno, MinimalПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0460DE53C709778CF6F946A2FA15C11BB30BC443
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606501   (995336) от 21.01.2013
+
+Strehm - Zeit EP (2011) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Urzeit (05:27)
+02. Zeitsprung (06:45)
+03. Zeitpunkt (06:44)Жанр: TechnoПродолжительность: 00:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109374CD5C8F377DDA68967353751E4D8A88775B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605051   (995337) от 21.01.2013
+
+VA - Electro House Pro V.2 (2012) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. ZXX - Aegis (Original Mix)
+02. W&W - Moscow (Matei Craciun Remix)
+03. SL Curtiz & Domovnik - Impact (Vicente Roca Remix)
+04. DJ Fist & Rio Dela Duna - Ciudad Cali (Remode Version)
+05. Luke Blanc - Good Times (Extended Mix)
+06. Paul Anthony, ZXX, Vash - Electro-Sexual (Original Mix)
+07. Avicii, Lazy Rich & Global Deejays - High Silhouettes (3RD Prototype Mashup)
+08. Chris Lake - Sundown (Fyor Remix)
+09. Christina Aguilera - Your Body (Audien Remix)
+10. Asalto - Nimbus (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 04:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD60A2EDEF6F8970C7B694C4140F9A4737B75E93
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605052   (995338) от 21.01.2013
+
+VA - Electro House Pro V.3 (2012) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. HeavyWeight - Neverland Anthem (Original mix)
+02. Keva - Jackin Chan (Original Mix)
+03. Pyero - Bura (Original Mix)
+04. Zedd feat. Matthew Koma - Spectrum (Saints Of Sound Remix)
+05. Osprey Heights - Take Me Higher (Dave Winnel Remix)
+06. Skrillex, Deadmau5 Feat Wolfgang Gartner - Animal Of The Year (Cheb'Five Mashup)
+07. MC Flipside - vs. ZERO (Original Mix)
+08. David Costa & Nick Fisher - Dynamite (Original Mix)
+09. Panic City - Mark Wahlberg (Original Mix)
+10. Peaches - Burst! (Bart B More Remix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 04:25:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACF204E4A2D7BC3E2BEED1C25FFD3A4A6353563A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605053   (995339) от 21.01.2013
+
+VA - Electro House Pro V.4 (2012) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Heren - Never Let Me Go (Rawrberry Remix)
+02. Jibberdee - Pipano (EllarSound Remix)
+03. Jack&Jordan - Rocka' (Original Mix)
+04. Kyau & Albert - Another Time (3rd Prototype Remix)
+05. Darryl Green - Brrr Stick Em (Original Mix)
+06. Paul Anthony and Atom Pushers - Meat and Potatoes (Original Mix)
+07. Buck Lesson, Tricky Play, RockSaw - Revolt (Original Mix)
+08. Avicii - Silhouettes (Lazy Rich Remix)
+09. Marco V & Doctors In Florence - Lotus (Christopher Ank Remix)
+10. Delirium vs. Zedd - Shot Silence (Kitsch 2.0 Bootleg)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 04:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9D86B2BFE0CE5AF174784CE795DE97FF96402E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 562954   (995355) от 20.01.2013
+
+Анатомия страсти / Grey's Anatomy [Сезон 9, серия 1-9] (2012) [720p] WEB-DLRip [Кубик в Кубе] (Обновляемая)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В центре событий — молодая женщина-хирург Мередит Грей, дочь известного врача Эллис Грей. Она работает в городской больнице Сиэтла, и её коллеги, такие же начинающие врачи, как она. Хирурги оперируют и влюбляются, заводят истории болезни и служебные романы, хранят свои врачебные тайны, борются с осложнениями у пациентов и в собственной личной жизни. И зачастую отношения с противоположным полом волнуют их не меньше, чем вопрос приобретения ими профессионального опыта.Жанр: Мелодрама, Драма, КомедияРежиссер: Роб Корн, Тони Фелан, Чандра УилсонАктеры: Эллен Помпео, Сандра О, Патрик Демпси, Джастин Чэмберс, Чандра Уилсон, Джеймс Пикенс мл., Сара Рамирез, Эрик Дэйн и др.Перевод: Профессиональный двухголосый закадровый(Кубик в Кубе)Продолжительность: 00:42:35
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605796   (995356) от 20.01.2013
+
+AusLogics BoostSpeed 5.5.1.0 RePack by elchupacabra [RUS | ENG]
 
 >>Архив торрентов
 >>Архив Программ
@@ -45,7 +518,7 @@ Light Image Resizer 4.4.1.0 [Мульти / Русский]
 
 ###  Подробнее
 
-Light Image Resizer - многофункциональная программа для изменения размеров цифровых картинок и изображений в различные графические форматы (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Помимо этого в утилите имеются возможности для компрессии файлов, преобразования из одного формата в другой, экспорта, наложения и управления картинками. Light Image Resizer интегрируется в оболочку Windows, может работать в пакетном режиме, обладает расширенными опциями настройки для продвинутых пользователей.Название программы: Light Image ResizerЯзык интерфейса: Мульти / Русский
+AusLogics BoostSpeed - единственная программа, которая позволит Вам быстро и качественно произвести настройку Вашей системы на максимальную производительность. Встроенный System Adviser проверит настройки Вашей системы с помощью 50 различных тестов и предложит Вам рекомендации по каждому тесту. Программа в реальном времени проверяет Вашу систему и если находит, что какой-то из параметров можно оптимизировать, то обязательно проинформирует Вас.Название программы: AusLogics BoostSpeedЯзык интерфейса: RUS | ENG
 
 ## Скачать торент
 ```bash
@@ -55,396 +528,57 @@ Light Image Resizer - многофункциональная программа 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605507   (995902) от 19.01.2013
+###  Публикация: 345369   (995360) от 20.01.2013
 
-Слишком грубо для Ю-Тюба / Надто грубо для Ю-Тюба. Выпуск №72 (2013) SATRip [RUS/UKR]
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Все самое смешное из сети, Собрано в одной телепрограмме. Разве мы задумываемся над собственным поведением, когда кажется, что нас никто не видит? Кто-то представляет себя Майклом Джексоном во время поездки в лифте. А кто-то в примерочной магазина представляет себя супермоделью на подиуме. Как бы вы отреагировали, если бы узнали, что за вами наблюдают в этот момент? Наверно, покраснели бы от стыда. А если бы кто-то из "доброжелателей" снял ваши выкрутасы на видео и сделал звездой YouTube? Все смешное из сети собрано в одну телепрограмму. Бессмысленные случайности и крутые приколы. Иногда на это просто стыдно смотреть. Но так уже случается, что скрытые камеры встречаются в самых неожиданных местах.Жанр: Юмор, эротическое шоуПродолжительность: ~ 00:23:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8176BB1882A71763DE4932C41E7D940994EC2DB6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605324   (995903) от 19.01.2013
-
-Atlas Sound - Logos (2009) [FLAC|Lossless]<Alternative, Art Rock, Post Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Человек непростой судьбы Брэдфорд Кокс (Bradford Cox) - анаморфическое тело на обложке диска принадлежит ему - пишет музыку под стать своей личности: субтильную и в большинстве своем лишенную очевидных половых признаков. Занимается он этим под двумя вывесками - в качестве участника Deerhunter и в сольном проекте Atlas Sound. При этом, если Deerhunter и обременен залихватскими шугейзинговыми экспериментами, то сольное творчество Кокса - образец незамысловатых мелодий, которые обрастают сэмплами невиданной красоты, космическими созвучиями, одолженными у Вселенной и другими вещами, вытащенными из закромов домашнего лэптопа.01. The Light That Failed :: 04:47
-02. An Orchid :: 03:05
-03. Walkabout w. Noah Lennox :: 03:58
-04. Criminals :: 02:55
-05. Attic Lights :: 03:44
-06. Shelia :: 03:32
-07. Quick Canal w. Laetitia Sadier :: 08:38
-08. My Halo :: 03:16
-09. Kid Klimax :: 02:59
-10. Washington School :: 03:25(   Читать дальше...   )Жанр: Alternative, Art Rock, Post RockФормат: CD, AlbumПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604958   (995904) от 19.01.2013
-
-Фотография - Фотограф Ирина Жиркова
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Ирина ЖирковаРазрешение файлов: ~  500x750 ~ 800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7E8375BF643A2F1DE8C8DC06C07D34DEDA1C99
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605431   (995906) от 19.01.2013
-
-Слишком грубо для Ю-Тюба / Надто грубо для Ю-Тюба. Выпуск №70 (2013) SATRip [RUS/UKR]
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Все самое смешное из сети, Собрано в одной телепрограмме. Разве мы задумываемся над собственным поведением, когда кажется, что нас никто не видит? Кто-то представляет себя Майклом Джексоном во время поездки в лифте. А кто-то в примерочной магазина представляет себя супермоделью на подиуме. Как бы вы отреагировали, если бы узнали, что за вами наблюдают в этот момент? Наверно, покраснели бы от стыда. А если бы кто-то из "доброжелателей" снял ваши выкрутасы на видео и сделал звездой YouTube? Все смешное из сети собрано в одну телепрограмму. Бессмысленные случайности и крутые приколы. Иногда на это просто стыдно смотреть. Но так уже случается, что скрытые камеры встречаются в самых неожиданных местах.Жанр: Юмор, эротическое шоуПродолжительность: ~ 00:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB63DBD3F765C9FE390DB958A69234399E1E435C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605437   (995907) от 19.01.2013
-
-Биатлон. Кубок Мира 2012-13. 6-й этап. Антхольц-Антерсельва (Италия). Женщины. Преследование (2013) HDTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Жанр: СпортПеревод: Одноголосый закадровый, профессиональный (Дмитрий Губерниев)Продолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42BA51A14EA326C4969F774B52EEB8F28CCF60D4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604941   (995908) от 19.01.2013
-
-Hot Chip - One Life Stand (2010) [FLAC|Lossless]<Electro, Indie Rock, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Hot Chip образовались в 2000 году. Алексис Тейлор (Alexis Taylor) и Джо Годдар (Joe Goddar) впервые познакомились в средней школе Elliott в Патни, где на школьной площадке они устраивая импровизированные бои. Они стали хорошими друзьями, и в возрасте 17 лет начали создавать музыку. После нескольких лет выпуска записей своими силами, в 2003 году они подписали контракт с лейблом Moshi Moshi.
-"One Life Stand" - новый альбом самой ироничной поп-группы "нулевых", решившей поиграть с ранними "девяностыми". Включает хит-сингл "One Life Stand".01. Thieves In The Night :: 06:09
-02. Hand Me Down Your Love :: 04:33
-03. I Feel Better :: 04:41
-04. One Life Stand :: 05:23
-05. Brothers :: 04:21
-06. Slush :: 06:29
-07. Alley Cats :: 05:21
-08. We Have Love :: 04:28
-09. Keep Quiet :: 04:02
-10. Take It In :: 04:10Жанр: Electro, Indie Rock, ExperimentalФормат: CD, AlbumПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351784   (995909) от 19.01.2013
-
-Document 3 - 4 Albums (2010-2011) [MP3|320 kbps]<IDM, Industrial, Breakbeat, Abstract, Modern Classical, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1.  Perversion 04:21
-2.  Mutilation 06:18
-3.  Twist And Warp 03:53
-4.  Piece Of Shit 01:22
-5.  Contortion 04:34
-6.  Monstrosity 04:54
-7.  Vile Bourgeois Beast 05:30
-8.  Bipolar Disorder 03:26Жанр: IDM, Industrial, Breakbeat, Abstract, Modern Classical, Experimental |Продолжительность: 02:08:22 |
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605287   (995910) от 19.01.2013
-
-Armin van Buuren - A State of Trance Episode 596 (17-01-2013) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Moor & Betsie Larkin - Love Again (Andrew Rayel Remix) (Ava)
- 02. Denis Kenzo feat. Sveta B. - Lullaby Lonely (Progressive Mix) (Infra Progressive)
- 03. Audien - Warfayer (Anjunabeats)
- 04. Vadim Spark - Lost Angeles (Club Mix) (Vendace)
- 05. Kyau & Albert - All Your Colours (Euphonic)
- 06. Steve Brian & Cressida - Casablanca (Tool Trance)
- 07. Eximinds - Revolved (Anjunabeats)
- 08. Antillas & Dankann - Synapse (Soundpiercing)
- 09. Dennis Sheperd & Cold Blue feat. Ana Criado - Fallen Angel (Lange Remix) (High Contrast)
- 10. Armin van Buuren & Markus Schulz - The Expedition (ASOT 600 Anthem) (Original Mix)Жанр: TranceПродолжительность: 01:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B757B2FF87A07BD8489944223D2BDD74745B56C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605184   (995913) от 19.01.2013
-
-Журнал | Conde Nast Traveller №2 (Россия) [февраль 2013] [PDF]
+Эрин Хантер | Коты-воители. Странники (28 книг)  [2007-2011] [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал Conde Nast Traveller — новый журнал в мире о путешествиях. Это своего рода практическое пособие для путешественников содержит массу полезной и актуальной информации для каждого, кто хочет отправиться в путешествие: материалы о ресторанах, отелях, авиакомпаниях, курортах. Главными героями и авторами журнала являются знаменитые путешественники, известные люди мирового сообщества — актеры, бизнесмены и политики.Формат: PDF
+На самом делеЖанр: ФэнтезиФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9B15F1FC2B0A71AC343685998980C836D5AF517
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605627   (995915) от 19.01.2013
+###  Публикация: 605680   (995364) от 20.01.2013
 
-Звезды YouTube / Зірки YouTube. Выпуск №36 (2013) SATRip [RUS/UKR]
+Batman: Arkham City [PS3] [Ru/En] [Repack] 2011 | R.G. Inferno
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:28:16
+Аркхем — район, где бесчинствуют выпущенные из психиатрической клиники и предоставленные сами себе безумцы, матерые преступники и маньяки. Это черное пятно в самом сердце Готэма, отгороженное от окружающего города неприступной стеной. А как известно, где зло — там и Бэтмен! В Аркхеме легендарный Человек-летучая мышь встретится со многими знаменитыми героями и злодеями, а игроки испытают на себе, каково это — быть Темным Рыцарем.(   Читать дальше...   )Тип издания: RepackРазработчик: Rocksteady StudiosЖанр: Action / 3D / 3rd Person / StealthЯзык озвучки: АнглийскийЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D02FEF45633E496C8022DDFC4C16D9A2D2D984CE
+magnet:?xt=urn:btih:D655C2E0261C3E9FB83CCC2AAF900B317A5C59F8
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605027   (995916) от 19.01.2013
+###  Публикация: 605885   (995369) от 20.01.2013
 
-Каникулы в Мексике - 2. Выпуск №242 (2013.01.18) (2013) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Новая ведущая Виктория Боня! Роскошные бунгало и Башня одиночки! Новые герои, новый приз и новые правила! Катрин выиграла главный приз, и герои «Каникул» уже собирались домой… Как вдруг судьба дала им еще один шанс! Они получили возможность остаться в Мексике и продолжить игру. И некоторые остались! Еще несколько выбывших участников вернулись на проект, чтобы снова попытать счастья, а кто-то приехал в Мексику впервые...Героев ждут лучшие каникулы в жизни: шоколадный загар, жаркие ночные клубы, бесконечный кредит в баре и классная тусовка… А еще страсть, интриги, умопомрачительные свидания, крепкая дружба, взрослые ссоры и настоящая любовь!Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47B9A9AA6E33A427681FBFC85D70C768DD0D061F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605569   (995917) от 19.01.2013
-
-[Wallpapers] The magnificent collection of wallpaper №5 [990 шт.]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] The magnificent collection of wallpaper №5Название: The magnificent collection of wallpaper №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 7800х5000
-Количество: 990 шт.
-Расширение (тип) файлов: jpgСкриншоты:
-  
- Время раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF9E89220CA235CC29EFCACC789BEABF9DD5575
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605434   (995918) от 19.01.2013
-
-Профессия  репортер. Из логова зверя (2013.01.19) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995918.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Профессия-репортер" - это цикл телевизионных репортажей на актуальные темы современного мира. Это интересный, острый социальный или экстремальный репортаж. В каждом еженедельном репортаже заложен свой конфликт, актуальность и проблематика. Каждый корреспондент программы - уникален и преподносит свою, индивидуальную точку зрения на ту или иную проблему, событие или явление. Если в Вашем городе, регионе или стране происходят важные события или необычные явления, если это остро и актуально, пишите нам, и мы обязательно приедем к Вам.В выпуске: Он плакал и просил о помощи. Ему поверили и вышли на улицы. И только он знал, что Ирина никогда не вернется. О чем молчал Алексей Кабанов? Кто помогал ему, а кто не поверил? Что станет с детьми убийцы?
-Эксклюзивные кадры из логова зверя и хронология преступления — в специальном выпуске программы «Профессия — Репортер».Жанр: ДокументальныйПродолжительность: ~ 00:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B43CDE3F5E7ABA21169971C00BEFE661E41417
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605008   (995919) от 19.01.2013
-
-VA - Deep House Masters (2013) [MP3|320 кб/с]<Deep House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Marchisio and Keshia - I Don't No (Retro Lounge Mix)
-02. Pedro Costa - By Your Side (Chris Rubz Remix)
-03. DL3R - Sarasvati
-04. Hector Moran - Ying Feng
-05. Mark Faderfaz - Take Me to the Rhythm
-06. Sandro Peres feat. Raphael - Music Is My Life (Soul Mix)
-07. Funk Force - Walking Dance
-08. Atomic Electrolab - Me and You
-09. Pedro Costa - Indian Flute
-10. Jeancarlo Santin - AmelieЖанр: Deep HouseПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615686AAE837CAB7333910DBFDB8787E8AE06591
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605429   (995920) от 19.01.2013
-
-Wise Disk Cleaner Portable 7.74.535 by PortableApps [Multi/Русский]
+FastPictureViewer Codec Pack 3.4.0.75 RePack [Eng]
 
 >>Архив торрентов
 >>Архив Программ
@@ -456,7 +590,7 @@ Wise Disk Cleaner Portable 7.74.535 by PortableApps [Multi/Русский]
 
 ###  Подробнее
 
-Wise Disk Cleaner - быстрая и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Поддерживается работы с более чем 50 типами файлов. При желании можно самостоятельно добавлять новые форматы. Возможно выборочное удаление файлов после сканирования, а также автоматическое удаление. Интерфейс - многоязычный.Название программы: Wise Disk Cleaner PortableЯзык интерфейса: Multi/Русский
+FastPictureViewer Codec Pack добавляет предварительный просмотр эскизов и поддержки Photoshop PSD, OpenEXR, TGA, DDS, HDR, Maya IFF, SGI RGB, JPEG 2000 и более, а также RAW форматов от 430 + цифровые камеры для рабочего стола Windows 8, Windows 7, Windows Vista и Windows, XP SP3. Обеспечивает показ эскизов для Google SketchUp, Adobe InDesign, Illustrator, EPS и PDF-XMP. Пакет FastPictureViewer Codec содержит 64-разрядные и 32-разрядные кодеки RAW, который позволяет надежную поддержку для 45 + форматов изображений, включая RAW форматы с более чем 400 цифровых камер в Windows Explorer, Windows Photo Gallery, Windows Photo Viewer, Windows Live ™ Photo Gallery и на Windows 7, а также в Windows Media Center и Windows Media Player 12, с полной 64-битной совместимостью. Codec Pack поддерживает raw форматы цифровых камер от Canon, Nikon, Olympus, Sony, Hasselblad, Fuji, Panasonic, Leica и более, а также Adobe DNG, Photoshop PSD, Google SketchUp (эскизы), и компьютерные графические форматы изображений, включая OpenEXR (   Читать дальше...   )Название программы: FastPictureViewer ProЯзык интерфейса: Eng
 
 ## Скачать торент
 ```bash
@@ -466,148 +600,23 @@ Wise Disk Cleaner - быстрая и простая в использовани
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605273   (995921) от 19.01.2013
+###  Публикация: 605914   (995377) от 20.01.2013
 
-VA - 15 Top Trance Hits (2013-01) [MP3|320 кб/с]<Trance>
+Phase One Capture One PRO 7.0.2 build 65074 (x64) [MULTi + Русский]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995921.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995377.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. W&W - Lift Off (Original Mix)
- 02. Markus Schulz ft Ana Diaz - Nothing Without Me (Antillas & Dankann Club Mix)
- 03. Planet Perfecto - Bullet In The Gun (Eddie Halliwell Remix)
- 04. Emma Hewitt - Rewind (Mikkas Remix)
- 05. Solarstone vs Scott Bond - 3rd Earth (Heatbeat Remix)
- 06. Roger Shah ft Adrina Thorpe - Island (Antillas Club Mix)
- 07. Tritonal vs Super8 & Tab - Arc (Radio Edit)
- 08. Heatbeat - Chow Mein (Noah Neiman Remix)
- 09. Yahel & Liya - Creatures (Paul Oakenfold Remix)
- 10. RAM & Alex M.O.R.P.H. - Grotesque (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE23C3BC611F0A5B003FE08BCC9E5DAA3ED387BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605529   (995926) от 19.01.2013
-
-[Wallpapers] vodopad
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены фотографии водопадов разных стран.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE21FE67E8E69353349D8A4DF667F92171011D77
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605309   (995927) от 19.01.2013
-
-Markus Schulz - Global DJ Broadcast (17-01-2013) [MP3|256 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lange - Hold That Sucker Down (Intro Mix)
- 02. Ferry Corsten - Kudawudashuda
- 03. Aerofoil vs. E&G - One Word (Markus Schulz Big Room Reconstruction)
- 04. Markus Schulz Featuring Ana Diaz - Nothing Without Me (Markus Schulz Return to Coldharbour Remix)
- 05. Gal Abutbul & Sigal Cohen - Patana (Tucandeo Remix)
- 06. Lana Del Rey - Summertime Sadness (Cedric Gervais Remix)
- 07. SkyKeeper - Tornado 2013 (Reload Mix)
- 08. DNS Project - ShatterЖанр: TranceПродолжительность: 01:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F659797979F8DD5BEBEE190584933AEDC5B3DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605567   (995928) от 19.01.2013
-
-[Wallpapers] The magnificent collection of wallpaper №3 [1170 шт.]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] The magnificent collection of wallpaper №3Название: The magnificent collection of wallpaper №3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х720 - 7300х5000
-Количество: 1170 шт.
-Расширение (тип) файлов: jpgСкриншоты:
-  
- Время раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47C747CE459F35B6F180742017FE553E96CA1B46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604971   (995929) от 19.01.2013
-
-Kava Kava - Maui (2004) [FLAC|Lossless]<Electro, Electronic, Funk/Soul, Big Beat>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В свое время NME охарактеризовал творчество Kava Kava как "пышный психоделик-фанк". С психоделикой, конечно, "экспрессовцы" погорячились, а со всем остальным попали в самую точку. "Maui" - первый официальный релиз йоркширских альтернативщиков. Выпущенные до этого момента альбомы "You Can Live Here" (1995) и "Supaiube" (1997) растворились где-то в дебрях британского андеграунда, закрепив среди знатоков за коллективом звание монстров живой фанк-сцены.01. Intro :: 00:30
-02. Don't Stop The Music :: 05:40
-03. Space People (a&rlien) :: 06:14
-04. Terrorists :: 06:42
-05. Sicfuck :: 06:40
-06. Maui :: 07:07
-07. Bankjob :: 07:22
-08. Swans :: 01:15
-09. Funked Up And Freaked Out :: 05:33
-10. Beats For Cheats :: 05:53(   Читать дальше...   )Жанр: Electro, Electronic, Funk/Soul, Big BeatФормат: CD, AlbumПродолжительность: 01:18:23
+Capture One Pro - один из самых мощных профессиональных конверторов цифровых фотографий в формате RAW с поддержкой широкого модельного ряда современных фотокамер. Программа позволяет в одиночном и пакетном режимах конвертировать "на лету" файлы в полноразмерный TIFF (RGB / CMYK) и JPG форматы, корректировать баланс белого, эффективно обрабатывать "пересвеченные" и "недосвеченные" снимки, тонко настроить резкость снимка и устранять цветные шумы.
+
+(   Читать дальше...   )Название программы: Phase One Capture One PROЯзык интерфейса: MULTi + Русификатор by nktch
 
 ## Скачать торент
 ```bash
@@ -617,12 +626,12 @@ Kava Kava - Maui (2004) [FLAC|Lossless]<Electro, Electronic, Funk/Soul, Big Beat
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605568   (995930) от 19.01.2013
+###  Публикация: 605691   (995380) от 20.01.2013
 
-[Wallpapers] The magnificent collection of wallpaper №4 [1110 шт.]
+Auslogics Duplicate File Finder 2.5.1.0 [Multi/Русский]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -631,28 +640,22 @@ Kava Kava - Maui (2004) [FLAC|Lossless]<Electro, Electronic, Funk/Soul, Big Beat
 
 ###  Подробнее
 
-[Wallpapers] The magnificent collection of wallpaper №4Название: The magnificent collection of wallpaper №4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 6800х3900
-Количество: 1110 шт.
-Расширение (тип) файлов: jpgСкриншоты:
-  
- Время раздачи: С 08:00 до 22:00
+Auslogics Duplicate File Finder - эффективная и легкая в использовании бесплатная программа, предназначенная для поиска и удаления ненужных дубликатов файлов. Используя эту программу можно очистить до 50% дополнительного пространства на жестком диске. Duplicate File Finder также позволяет искать одинаковые файлы на USB-носителях, картах флеш-памяти и прочих переносных накопителях информации. Кроме того, удаление ненужных файлов может улучшить быстродействие компьютера, сокращает время необходимое для дефрагментации жесткого диска, а также время сканирования компьютера антивирусной программой.Название программы: Auslogics Duplicate File FinderЯзык интерфейса: Multi/Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D7569D0F4D127AE615BE3CA5BB70F7C457D8BB4
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605574   (995931) от 19.01.2013
+###  Публикация: 605687   (995381) от 20.01.2013
 
-Звезды YouTube / Зірки YouTube. Выпуск №33 (2013) SATRip [RUS/UKR]
+Auslogics BoostSpeed 5.5.1.0 Portable by BurSoft [Eng/Rus]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Программ
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -661,65 +664,60 @@ magnet:?xt=urn:btih:8D7569D0F4D127AE615BE3CA5BB70F7C457D8BB4
 
 ###  Подробнее
 
-Ведущий Егор Крутоголов познакомит вас с лучшим видео с YouTube. Миллионные просмотры и тысячи комментариев. Веселее, интереснее и экстремальные. Любой может стать "Звездой YouTube!" Достаточно снять видео и выложить его в интернет.Жанр: ЮморПродолжительность: ~ 00:24:21
+Auslogics BoostSpeed – это мощная программа, предназначенная для централизованного обслуживания и оптимизации компьютера, с помощью которой Ваш компьютер будет всегда оставаться быстрым и надёжным. Утилита увеличивает скорость работы оперативной памяти, ускоряет загрузку Windows, повышает быстродействие Microsoft Office, The Bat, FireFox, Opera, Skype, чистит реестр и диск компьютера. BoostSpeed содержит известный Auslogics Disk Defrag и набор новых утилит для современных компьютеров. В последствии дефрагментации реестра BoostSpeed, производительность компьютера увеличится за счет фрагментации файлов реестра, уменьшения их размера, а также благодаря устранению ошибок в реестре. Кроме этого эта программа предлагает мощные возможности для очистки реестра и диска, что в свою очередь позволит вашему компьютеру работать более быстро и эффективно. Имеет дружественный интерфейс и поддержку русского языка.
+Программа позволит вам быстро и качественно произвести настройку вашей системы на максимальную производительность. (   Читать дальше...   )Название программы: Auslogics BoostSpeed PortableЯзык интерфейса: Eng/Rus
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B76F7FA8279EBDA0A07CFA17F89248B55EA07411
+нет
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 604999   (995932) от 19.01.2013
+###  Публикация: 606198   (995382) от 20.01.2013
 
-Журнал | Кулинарные советы моей свекрови №1 (242). Нежное мясо птицы [январь 2013] [PDF]
+Saints Row 2 [Ru/En/Multi13] (L) 2009 | *PROPHET*
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Кулинарные советы моей свекрови" - журнал для тех, кто любит красиво приготовить, вкусно поесть и угостить друзей. В каждом номере кулинарные рецепты изысканных и повседневных блюд.Формат: PDF
+Уличные банды, тонны огнестрельного оружия, сверкающие хромом автомобили, раскатистый хип-хоповый бас, литры тестостерона и адреналина - все это заботливо смешано в единственно правильных пропорциях в гангста-боевике "Saints Row 2". Улицы городка Stillwaters мало чем отличаются от настоящих: вопросы здесь решаются перестрелками, а единственное, что имеет ценность - это что говорят о тебе люди. Безжалостная война, в которой решится, кто же будет полноправным хозяином каменных джунглей, начнется уже этой зимой!.(   Читать дальше...   )Тип издания: ЛицензииЖанр: Action (Shooter) / Racing (Cars) / 3D / 3rd PersonЯзык озвучки: Русский, Английский / MULTi13Язык субтитров: Русский, Английский / MULTi13Язык интерфейса: Русский, Английский / MULTi13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46BEE02154611F33638D87BE29BB4B24892FB6D1
+magnet:?xt=urn:btih:4BB8DABF171BBB725D7E62383B73CDDFA7A23977
 ```
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 605155   (995933) от 19.01.2013
+###  Публикация: 605746   (995386) от 20.01.2013
 
-Angellore - Errances (2012) [MP3|192 кб/с]<Atmospheric Doom Metal/Gothiс Metal>
+SQLite Expert Professional 3.4.48.2275 Portable by Baltagy [Английский]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995933.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dans Les Vallсes Eternelles (8:23)
-02. Tears Of Snow (8:23)
-03. I Am The Agony (6:49)
-04. Weeping Ghost (4:30)
-05. Errance (2:14)
-06. ...Where Roses Never Die... (7:30)
-07. Shades Of Sorrow (8:28)Жанр: Atmospheric Doom Metal/Gothiс MetalПродолжительность: 00:46:12
+Мощный визуальный инструмент, который позволяет Вам легко работать с базами данных SQLite3. Содержит эффективные инструменты управления данными. Предоставляет все необходимые инструменты для работы: просмотр, создание, редактирование, копирование, удаление, экспорт объектов, управление учетными записями базы, управление функциями и процедурами. Программа имеет простой и интуитивно понятный графический интерфейс.Название программы: SQLite Expert Professional 3.4.48 build 2275 PortableЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0F0DAE61DB25548CFF170A182A89680C63548D4
+нет
 ```
 
 

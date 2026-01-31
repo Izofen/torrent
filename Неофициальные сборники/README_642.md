@@ -1,3 +1,30 @@
+###  Публикация: 974245   (978178) от 10.01.2016
+
+VA - Deep Sound Icons (2016) [MP3|320 кб/с] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978178.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cosmo Klein - Diggin for Gold (Extended Mix)
+002. Roberto Rich - Santorini Night - Riviera Mix
+003. Alle Farben - Danse (Drauf & Dran Remix)
+004. Ataneus - Aquamarine (Aike Remix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:59:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACC08B6F918832ABCC5174CB2E93B7B84EA4461
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612038   (978873) от 07.02.2013
 
 VA - Drum and Bass Pro V.6 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
@@ -680,33 +707,6 @@ VA - Blissful Journey: Vocal Chillout (2019) [MP3|320 Kbps] <Chillout, Ambient, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D04483136ED3E629C5AA972262D7D7667ABB7CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356268   (980543) от 29.01.2020
-
-VA - Heaven With You: Chill House Mixtape (2020) [MP3|320 Kbps] <Chill, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980543.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jack Burton - Beacon Of Light
-002. James Corquita - Distancia Paralela
-003. The Ambientalist - Cast A Spell
-004. Lounge Pilots - Any Lounge Color(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC20FA9C894B497BB8C7D3A9B1FA375B0E519428
 ```
 
 

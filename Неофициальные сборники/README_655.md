@@ -1,3 +1,30 @@
+###  Публикация: 1486595   (1004567) от 01.08.2021
+
+VA - German Top 100 Single Charts 30.07.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1004567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RAF Camora & Bonez MC - Blaues Licht
+02. Ed Sheeran - Bad Habits
+03. Pashanim - Sommergewitter
+04. The Kid Laroi & Justin Bieber - Stay(   Читать дальше...   )Жанр: PopПродолжительность: 04:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC37B59ECF8FE2955DA845BACE92E49D20F98958
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486601   (1004573) от 01.08.2021
 
 VA - Get Lucky Punk Rock (2021) [MP3|320 Kbps] <Punk Rock, Alternative>
@@ -668,33 +695,6 @@ VA - Новички в попсе Vol 9 (2021) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:043558CD2722A00E4480ACD097553AACABC12116
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483444   (1006883) от 13.07.2021
-
-VA - That Other World: Indie & Alternative Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006883.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Pale Waves - Wish U Were Here
-002. The Natvral - Sylvia, The Cup Of Youth
-003. That Handsome Devil - Punch In The Face
-004. Flock Of Dimes - Hard Way(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 08:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA386C4CE0D5E38A077E339948380FFCFF4304B
 ```
 
 

@@ -1,3 +1,84 @@
+###  Публикация: 1389639   (783937) от 12.06.2020
+
+The Replacements - Let It Be (Deluxe Edition) (1984) [FLAC|Lossless|tracks + .cue] <Rock & Roll>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Dare (3:17)
+02. Favorite Thing (2:20)
+03. We're Comin' Out (2:21)
+04. Tommy Gets His Tonsils Out (1:54)(   Читать дальше...   )Жанр: Rock & RollПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88650D50D2EDCA4B9C4BE9E49E2E5D131C1BDA96
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1389829   (783947) от 12.06.2020
+
+Orlando Weeks - A Quickening (2020) [MP3|320 Kbps] <Indie Rock, Indie Pop, Singer-Songwriter>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_783947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milk Breath (03:16)
+ 02. Blood Sugar (03:36)
+ 03. Safe In Sound (04:25)
+ 04. St. Thomas' (03:17)(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Singer-SongwriterПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4E2382012078D4FCFC0654C0F354D8005D439F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204721   (784015) от 08.02.2018
+
+Pharao - Best Of Pharao 1994-1998 (2018) [MP3|320 Kbps] <Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eternity  4:50
+02.  I Show You Secrets  4:02
+03.  World Of Magic  4:10
+04.  It's Your Way  3:54(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F1B3C11A7F9856F780835B9C9B69C59CAAAEBB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205201   (784044) от 08.02.2018
 
 Телефон доверия - Прости меня (1994) [MP3|320 Kbps] <Pop, Retro>
@@ -612,87 +693,6 @@ magnet:?xt=urn:btih:CDCCC394C984115E53A8920BA6061C37A626389A
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11637F2DBBA56AF15D0CCAA054D8BAAEC27C680C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277292   (785364) от 20.01.2019
-
-Demis Roussos - The Demis Roussos Collection (2008) 4CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1: Forever And Ever - The Greatest Hits
-01. Forever And Ever
-02. Happy To Be On An Island In The Sun
-03. Marie Jolie(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2240C2EE9CE4872155F01E1B2D6EE5C9C4B152C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204029   (785393) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Over My Heart (1993) Atlantic, 7567-82489-2, Europe [MP3|320 Kbps] <Pop Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. How Can I Help You To Say Goodbye 4:29
-02. The Sweet Hello, The Sad Goodbye 5:07
-03. Over My Heart 4:25
-04. It's Been Hard Enough Getting Over You 3:42(   Читать дальше...   )Жанр: Pop Rock, SoulПродолжительность: 00:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3368D24B8120D5BEFA2C5E5F1CC6684FC27FD63D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204010   (785396) от 04.02.2018
-
-Laura Branigan (Лора Брэниган) - Hold Me (1985) Atlantic, 7 81265-2, Europe [MP3|320 Kbps] <Pop Rock, Synth-pop, AOR>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее имя и фамилия вместе звучат так же завораживающе мелодично, как и ее лучшие песни ("Gloria", "Self Control", "Solitaire"). Лора Брэниган. Ее длинные темные волосы в сочетании с потрясающе пластичным телом сделали ее секс-символом женской поп-сцены 80-х. А уж ее потрясающий по красоте голос в четыре октавы вы вряд ли спутаете с чьим-либо (   Читать дальше...   )01. Hold Me 4:46
-02. Maybe Tonight 3:40
-03. Foolish Lullaby 4:18
-04. Spanish Eddie 4:08(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, AORПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7B37B16D78EB65F768BBE24309C247BBCC39AB
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1497326   (864675) от 22.09.2021
+
+Depeche Mode - Ultra (The 12 Singles) (2021) Remastered [MP3|320 Kbps] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_864675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Barrel of a Gun [00:05:30]
+02 Barrel of a Gun (Underworld Hard Mix) [00:09:37]
+03 Barrel of a Gun (3 Phase Mix) [00:05:25]
+04 Barrel of a Gun (One Inch Punch Mix (V2)) [00:05:29](   Читать дальше...   )Жанр: Synth-popПродолжительность: 03:31:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D549B079C6DF1FA88E21C1F64286491884F4F564
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108357   (864730) от 24.02.2017
 
 VA - Chill Out Waves Vol.2: Finest In Smooth Electronic Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -668,33 +695,6 @@ VA - 35 Relaxation Meditation Multibundle (2017) [MP3|320 Kbps] <Downtempo, Chil
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:960AE5C60C1639C90FAC39DBFB17ABD1EFCAD82B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107998   (866477) от 23.02.2017
-
-VA - The Sweetest Taboo Vol.2: 20 Lounge Negligees (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_866477.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensotango - Libre
-02. Gabriel Calia - Brilliant Case
-03. La Vida Loca - Gonna Fly Now
-04. Paul Stevens - Nice to Be with You(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76484635CE9A57CC096A0D6DBA582C4428B70F14
 ```
 
 

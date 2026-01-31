@@ -1,3 +1,208 @@
+###  Публикация: 1134508   (682911) от 18.05.2017
+
+Daniel Pemberton - The Counselor / Советник (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hunter (01:47)
+02. The Counselor (Titles) (04:10)
+03. The Lovers (01:51)
+04. A Warning (Moral Decisions) (02:10)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82825B6BD5A90B07E80AA40F81EA5CDD897F283D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506751   (682990) от 08.06.2012
+
+Ара Геворкян/Ara Gevorgyan - 6 Альбомов (1997-2010) [MP3|128-320 kb/s<Армянская музыка>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_682990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ani
+02. Ararat
+03. Armavir
+04. Artashat
+05. Artsakh
+06. Musa ler
+07. Mush
+08. Ov hayots ashkhar
+09. Ovkianosic Ayn koxm
+10. Tsovic tsov(   Читать дальше...   )1997-2010Жанр: Армянская музыкаПродолжительность: 01:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7352C806CBFA3DACB475AB64EEB108F76AD18669
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507739   (683153) от 08.06.2012
+
+Keiko Matsui - Hidamari No Ki (2000) [FLAC|Lossless]<Score, Smooth Jazz>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_683153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidamari No Ki ~Akatsuki~ (4:16)
+02. Umi E. (5:08)
+03. Seimei No Ki (3:48)
+04. Hashire (4:30)
+05. Umi E ~Piano Version~ (4:00)
+06. Seimei No Ki ~Piano Version~ (3:18)
+07. Hidamari No Ki ~Piano Version~ (4:03)
+08. Yasashii Kaze (2:39)
+09. Anun (0:58)
+10. Omowarete (1:02)(   Читать дальше...   )2000Жанр: Score, Smooth JazzПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+нет
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507361   (683953) от 08.06.2012
+
+Lynn Wright - Total Meditation (2011) [MP3|320 кб/с]<Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683953.jpg" />
+</div>
+
+
+###  Подробнее
+
+(08:46) 1. To Be With You
+(09:15) 2. Lonesome
+(10:57) 3. Be Gentle
+(06:07) 4. Silent Attitude
+(04:50) 5. Near And Far
+(10:18) 6. Follow The Senses
+(09:27) 7. Soft Touch
+(05:17) 8. Bкeak AwayЖанр: MeditativeПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14861CBBB3EFDF314C4873B598B11BC6AFDEB680
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289713   (684333) от 17.03.2019
+
+Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .cue] <Industrial, Experimental>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684333.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Information 5:42
+2. Becoming Aware 4:53
+3. The Act 8:57
+4. Contemplation 4:27(   Читать дальше...   )Жанр: Industrial, ExperimentalПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028971   (684545) от 25.06.2016
+
+Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рип сделан на основе образа игры, музыка была извлечена из самого образа игры01. Main Menu
+02. Stage 1
+03. Stage 2
+04. Stage 3(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B458B4B9455B67E35C5BE408305802B441C49C1
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222331   (684816) от 29.04.2018
+
+Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_684816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God of War (4:07)
+02. Memories of Mother (3:39)
+03. Witch of the Woods (3:02)
+04. Lullaby of the Giants (3:44)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1C2C6BC63D5A74940DA71F5B17CB8F289639621
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134981   (684857) от 17.05.2017
 
 VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2017) [MP3|320 Kbps] <New Age>
@@ -506,191 +711,6 @@ VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:719A77F031D273B5A355BB12F9820E32B2C76EC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134553   (687429) от 16.05.2017
-
-Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original National Geographic Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_687429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Watts (01:14)
-02. Opening (02:54)
-03. Titles (02:30)
-04. LA 1991 (01:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:32:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B11B9ABBF47E778CA6CBC7E1FB778E979C287C9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551974   (688238) от 23.06.2016
-
-Mumford & Sons - 20 Albums (2008-2016) 7 Albums, 13 EP & Singles [FLAC|Lossless]<Indie Folk, Alternative Rock, British Folk, Folk rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative/Indie Rock, British Folk, Indie Folk, Indie Pop, Alternative Pop/RockФормат: Deluxe EditionПродолжительность: 00:20:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C265B41CA9F1833C697020BAFD9CD19603DB2536
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028678   (688246) от 23.06.2016
-
-Marcin Przybylowicz, Mikolai Stroinski & Piotr Musial - The Witcher 3 Wild Hunt - Blood and Wine (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - Blood and Wine (02:57)
-02. Mikolai Stroinski - Fanfares and Flowers (03:11)
-03. Piotr Musial - For Honor! for Toussaint! (02:04)
-04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F688084F44105D9D556DE23B30CBC0C8ACFF55A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289335   (688278) от 15.03.2019
-
-АЛЁNA - ЧАС (2019) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688278.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Час по часу
-2. Зародила меня матушка
-3. Эх, молодой
-4. Лежу я в больнице(   Читать дальше...   )Жанр: FolkПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656997ACFECE84400AA9CDC1AAFAECC847352167
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028665   (688392) от 23.06.2016
-
-Marcin Przybylowicz and Mikolai Stroinski - The Witcher 3 Wild Hunt (Original Soundtrack) (2015) (Extended Edition) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - The Trail (02:50)
-02. Marcin Przybylowicz - Geralt of Rivia (02:22)
-03. Marcin Przybylowicz - Eredin, King of the Hunt (02:27)
-04. Mikolai Stroinski - Wake Up, Ciri (01:34)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CE68DDC81912008F612950CDD209F523916EE6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028669   (688506) от 23.06.2016
-
-Marcin Przybylowicz - The Witcher 3 Wild Hunt - Hearts Of Stone (Original Soundtrack) (2015) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hearts of Stone (02:54)
-02. Go Back Whence You Came (01:45)
-03. You're... Immortal? (02:54)
-04. Evil's Soft First Touches (02:48)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5E594E28C7C75E42DAB1DBB063761FDC3A9AF9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028479   (688688) от 23.06.2016
-
-Mick Douglas - Healing Sound of the Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Nature>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_688688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Healing Sound of the Rain [00:30:07]
-02. Rain Song [00:08:00]
-03. The Sound of the Rain (with Thunder) [00:31:10]Жанр: New Age, NatureПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F415FC1A7FFD4B8EE59B25B49778DBCAA793E5F
 ```
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1278156   (773293) от 24.01.2019
+
+VA - Fitness & Jogging Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <House, ElectroHouse, BigRoom>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Maximus - We Rave (Original Mix) 3:47
+02. Raffee - Society (Original Mix) 3:45
+03. Angelo Adinolfi - Wet (Original Mix) 4:59
+04. Axel & Jeizer - You Ready (Original Mix) 4:38(   Читать дальше...   )Жанр: House, ElectroHouse, BigRoomПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3270826F581064A62430447A2CACE41FDB1676A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278209   (773296) от 24.01.2019
 
 VA - Lazarus - Rise Above 363 (Yearmix) (2018) [MP3|320 Kbps] <Trance, Progressive Trance,Uplifting Trance>
@@ -667,33 +694,6 @@ Gescom - Discography 17 Releases (1994-2011) Skam, OR, Warp [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1A2EC1FD4E07996C16A5494E74E1BB12092AB6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277797   (775019) от 22.01.2019
-
-VA - Abora Recordings Best Of 2018 (Mixed By Ori Uplift) (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance,Uplifting Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Syntouch & Spins - Desolation (Intro Mix)
-02.Playme - The Great Bay (Original Mix)
-03.Akku - Megumi (Emotional Mix)
-04.Sandro Mireno - It's Your Day (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C298530DD87A3D188483E887314FD291A0BE5A1C
 ```
 
 

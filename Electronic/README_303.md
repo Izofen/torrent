@@ -1,3 +1,30 @@
+###  Публикация: 1150098   (596625) от 13.07.2017
+
+VA - Ibiza 2017 - Dance For Love Vol 2 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_596625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massimo Solinas - Thriller Re-Edit (Original Mix) 06:39
+02. Ainur Davletov - St. Petersburg Promised (Feat. John Robertson) (Original Mix) 04:07
+03. Daviddance - What Are You Doing To Me? (Remastered) (Original Mix) 07:19
+04. Mark Fall - Big Eyes (Original Mix) 09:01(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EA3F08EDA827020262441F285D509BCDE416480
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150030   (596626) от 13.07.2017
 
 VA - Euphoric House Anthems 2017 [MP3|320 Kbps] <Funky, Club House>
@@ -669,33 +696,6 @@ Troxellemott - Blood Moon (2019) Someone Records [FLAC 2.0|48/24|tracks|WEB-DL] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A825BC2232A4CFB31EA1446B87B14C73739DC41
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299109   (599910) от 01.05.2019
-
-MRUKS - Level Up (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, R&B, Retrowave>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Project HP
-02. Knowledge
-03. Visual
-04. Green Door(   Читать дальше...   )Жанр: Funky, R&B, RetrowaveПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97EB4B6EAEBFF88F68AA73F4AB2984039A9D504
 ```
 
 

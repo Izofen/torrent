@@ -1,3 +1,30 @@
+###  Публикация: 1204536   (784664) от 06.02.2018
+
+VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0014 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ankie Bagger - Where Were You Last Night ( Remix 1989 )
+02. Diux - Comet ( 1986 )
+03. Synth Dimension - Way To New Start ( 2013 )
+04. Danielle Deneuve - Love Is Free ( 1984 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CDCE11E0B0E3B8B447C37B38E4E789D087DD19
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204540   (784668) от 06.02.2018
 
 VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0016 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
@@ -667,33 +694,6 @@ VA - Танцевальная вечеринка на Hit FM. Сборник №
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E2A5ECDBD6322BC0E12FA7D537831F167FE9225
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124566   (785627) от 12.04.2017
-
-VA - Песни для души радио Шансон (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785627.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Игорь Кибирев - Сладкий Мед 5:15
-002. Андрей Никольский - От Весны И До Весны 3:36
-003. Владимир Пахновский - Возвращайся 3:42
-004. Храмыч - Отпускаю 3:38(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598D0323B9BD07D88D0AD743352E059BC8626E2B
 ```
 
 

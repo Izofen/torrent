@@ -1,3 +1,30 @@
+###  Публикация: 1155839   (529892) от 05.08.2017
+
+VA - Clubbing On Sunshine (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_529892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pulsedriver, Chris Deelay - Geiles Gefuhl (Short mix) 03:06
+02. Sal De Sol - Happy Ending (Vocal Club Mix) 03:45
+03. Franky Tunes - Free (Summer Breeze Remix) 03:26
+04. Topmodelz - Summer of 69 03:46(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C68AF987EA3B8DB0C9DCE5513DFD6866A9A1317
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558560   (530074) от 21.06.2022
 
 Melanohelios - Дискография (9 альбомов) (2017-2021) [FLAC 2.0|24/44,1|tracks|WEB-DL] <Dark ambient>
@@ -666,33 +693,6 @@ VA - Armada Today - Ibiza 2022 [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A25C5CF6D72012A6838B329656E7B62768754E2B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312410   (532557) от 04.07.2019
-
-VA - Uplifting Trance Sessions Vol.15 (2019) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_532557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flatlex - Frozen Sunset (Original Mix) 6:33
-02. Nico Cranxx - Only A Memory (Extended Mix) 6:58
-03. DreamLife & Aleksey Gunichev - Wonderful Morning (Original Mix) 7:43
-04. Henry Moe x Mike Phoebus & Amidst - Spring Blossoms (Original Mix) 5:17(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:56:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3264C83C3E3409A66281AFC106E588379DEC52F
 ```
 
 

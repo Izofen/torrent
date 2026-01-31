@@ -1,3 +1,36 @@
+###  Публикация: 597126   (1000335) от 02.01.2013
+
+VA - Happy New Year! Инструментальная музыка 2013 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1000335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анс. Мелодия - День добрый!
+02. Per Gessle - Ett Perfekt Agg
+03. Manuel Granada - Las Hojas Muertas
+04. The Romantic Accordeon - Hooked On Country
+05. The Daydream - Ocean And D Major
+06. F.Papetti - Caruso
+07. 101 Strings Orchestra - The Blue Danube
+08. B.Malgo - Du Bist Mein Zufluchtsort
+09. Bahramji & Maneesh De Moor - Return Of The Nightingale
+10. Chip Davis & CPO - Hark! The Herald Angels Sing (christmas theme)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 07:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807B7304C24797B81A625E286905069E1C78D51F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595757   (1000460) от 02.01.2013
 
 VA - Дискотека 2013 Dance Club Vol. 98 (2012) [MP3|320 кб/с]<Pop>
@@ -686,33 +719,6 @@ VA - Beatport Tech House: Sound Pack #330 (2021) [MP3|320 Kbps] <Tech House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FEA3DCB607F3801E6C93EFD8E5771781B3B4193
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488937   (1001442) от 13.08.2021
-
-VA - Music News vol.122 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1001442.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Любятинка & Рома Штайн - Набери (03:11)
- 002. Adam Maniac & Jaral - Пьяный Без Вина (02:26)
- 003. AJ Tracey & T-Pain - Summertime Shootout (03:39)
- 004. Akcent & Midi Culture - Kylie (Remix) (02:36)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:36:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D8C50078A1CCAA8C83A2D811C275CDA366A2A22
 ```
 
 

@@ -1,3 +1,192 @@
+###  Публикация: 1300707   (592774) от 07.05.2019
+
+Henry Jackman - Pokémon: Detective Pikachu / Покемон. Детектив Пикачу (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_592774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mewtwo Awakes (01:19)
+02. Catching A Cubone (02:05)
+03. Bad News (01:17)
+04. Howard Clifford (00:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BECF53F865F012399DE549A3C298E5F751902E8E
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233364   (593296) от 29.06.2018
+
+Emir Kusturica and the No Smoking Orchestra - Corps Diplomatique (2018) [FLAC|Lossless|WEB-DL|tracks] <Balcan Folk Rock, Gypsy Jazz, Folk Punk, Ska>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scared of Dental Drills (3:28)
+02. Tarentella (3:40)
+03. Mila Gora (4:16)
+04. Comandante (2:40)(   Читать дальше...   )Жанр: Balcan Folk Rock, Gypsy Jazz, Folk Punk, SkaПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808D5613F1AD22FD480FCF6D97CB1E44D36D332B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300182   (593697) от 05.05.2019
+
+Joy Williams - Front Porch (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Canary
+02. Front Porch
+03. When Does A Heart Move On
+04. All I Need(   Читать дальше...   )Жанр: Folk, Country, AmericanaПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D5B4ECCAAB8A56C04F8AAF764CDA989E9EEA9BE
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548640   (593903) от 06.05.2022
+
+Кметъ - Солнце, Ладога И Киев (2022) [FLAC|Lossless|WEB-DL|tracks] <Pagan Folk Metal, Groove Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Кий, Щек, Хорив и Лыбедь (00:05:07)
+02 - Выше Солнца (00:04:32)
+03 - Капище (00:04:54)
+04 - Иду на Вы (00:04:12)(   Читать дальше...   )Жанр: Pagan Folk Metal, Groove MetalПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20AD6701DCDF7E8BCC3D4E2E5867561A1967EE6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548938   (593906) от 06.05.2022
+
+Vartra - Basma (2022) [MP3|320 Kbps] <Dark Folk, Ethereal, Doom>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aina [00:05:54]
+02 - Jerovine [00:06:01]
+03 - Inanna [00:04:41]
+04 - Hajd u Kam [00:05:13](   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7685465CE31A0CD2D20AFDE06D8061925AF92845
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233084   (593937) от 28.06.2018
+
+Robin Spielberg - On the Edge of a Dream (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Easy Listening, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Edge of a Dream
+02. We Meet Again
+03. Drifting
+04. Spellbound(   Читать дальше...   )Жанр: New Age, Easy Listening, PianoПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BA7DEF5E1822B743D56607C60057DAE782014F6
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039543   (594560) от 02.08.2016
+
+Patrick Doyle - Игорь / Igor (2008) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eva (Pianist: Patrick Doyle)
+02. Igor
+03. Scamper & Brain
+04. Schadenfreude(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD166E2862EE403277058EB6FCCBA9B9F41BC5BD
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548349   (594731) от 05.05.2022
 
 Paddy and the Rats - From Wasteland to Wonderland (2022) [MP3|320 Kbps] <Folk Punk, Sailor Punk, Celtic>
@@ -545,201 +734,6 @@ Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North Ameri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68F3C4E5E1BAB5E1EE54A0FB200D27F19A0CDB23
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038772   (599531) от 30.07.2016
-
-Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .cue] <Heavy Metal, Instrumental, Shred>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corrida (4:57)
-02. Love In Her Eyes (5:21)
-03. French Blues (4:37)
-04. The Storm (3:10)(   Читать дальше...   )Жанр: Heavy Metal, Instrumental, ShredПродолжительность: 0:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2B30A09E01998141F9F156A1DAF8852E537EC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038808   (599532) от 30.07.2016
-
-VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599532.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Roger Miller - King of the Road
-2. Kenny Rogers - Ruby Don't Take Your Love to Town
-3. Johnny Cash - Ring of Fire
-4. Frankie Laine - High Noon(   Читать дальше...   )Жанр: CountryПродолжительность: 01:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DF57AC550DD458D0DF192A93ED63EB8FD6869FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525923   (599618) от 23.07.2012
-
-Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native American, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain Dance
-02. Flying Condor
-03. Allin Quampi
-04. Love Mountain
-05. May you walk in sunshine
-06. Five Spirit
-07. Sunquyman
-08. Four Circles of Live
-09. Tatanka
-10. Axtu Sumix(   Читать дальше...   )Жанр: New Age, Native American, FolkПродолжительность: 01:00:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48CAEC2A0B725BB1DD0156EBE61631924DC78F6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299143   (599901) от 01.05.2019
-
-Kenio Fuke - Atlantida (2008) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599901.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Spirit of the Water (5:07)
- 02. Atlantis Memory (5:25)
- 03. Atlantida (5:28)
- 04. Lost Continent (6:04)(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF021B5F7BB057972672624B41A17E32DEC5758B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232523   (599928) от 24.06.2018
-
-Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Wonderland (03:47)
-02. Sketchbook of Untold Magic (03:32)
-03. Falling Stars (03:33)
-04. Fairy Tale (04:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69BEB4327C932A1E1E22EB74BC700B66758C491
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299117   (600022) от 01.05.2019
-
-Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acoustic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lilac Skies
-02. Unspoken Words
-03. Dochas
-04. Blue Whispers(   Читать дальше...   )Жанр: New Age, Jazz, AcousticПродолжительность: 48:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD75305131E20A6099036F5F738C1A9C71062B6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548117   (600134) от 02.05.2022
-
-Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire In Your Heart (07:07)
- 02. Old Medicine Man (06:31)
- 03. Call Of The Great Spirit (06:47)
- 04. Sacred Space Of Love And Wisdom (07:13)(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 01:05:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:278F776BCFE7CE769EDAAD6358093D4DB08D6C97
 ```
 
 

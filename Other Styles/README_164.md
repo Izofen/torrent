@@ -1,3 +1,203 @@
+###  Публикация: 1369204   (903547) от 23.03.2020
+
+Guenter Haas - Tales of a Broken Planet (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Chillout, Downtempo>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tales of a Broken Planet (4:32)
+02. Cayo Coco (6:18)
+03. The Choice (4:35)
+04. 1st Floor Lobby (4:08)(   Читать дальше...   )Жанр: Instrumental, Chillout, DowntempoПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D01A4BC0C7BB49CCF4C16ED322C991354A3F89
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368871   (903649) от 23.03.2020
+
+Indian Calling, Alison - Native American Soundtracks (10 Best Native Indian Soundtracks) (2014) [MP3|320 Kbps] <Native American, World, Film Scores>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return to Innocence (From "Man of the House")
+02. The Last of the Mohicans (From "The Last of the Mohicans")
+03. Hinayana Vision (From "Pocahontas")
+04. Dances with Wolves (From "Dances with Wolves")(   Читать дальше...   )Жанр: Native American, World, Film ScoresПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892B23A912194E5BCC41B404B41C062D161DD6AB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369290   (903803) от 23.03.2020
+
+Gaetir The Mountainkeeper - Vetrarljós (Vetrarljos) (2020) [FLAC|Lossless|Web-DL|tracks] <Ambient, Atmospheric Folk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norðanátt (6:24)
+02. Eilífðina á Veturna (7:29)
+03. Jökulvíðerni (3:43)
+04. Maðr af Manni (7:10)(   Читать дальше...   )Жанр: Ambient, Atmospheric Folk, Dark Folk, Dark Ambient, NeofolkПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA20F4613F5A2710A21C899E2F1B16E811709A05
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 636161   (904199) от 29.03.2013
+
+D.J. Chill - Jazz Chill Music - Cool Instrumental Background Guitar Lounge Songs (2013) [MP3|320 кб/с]<Instrumental, Jazz, Lounge>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.  My Funny Valentine (Funky Lounge Mix) (3:03)
+02.  In a Sentimental Mood (Cool Jazz) (4:43)
+03.  Stella by Starlight (Guitar Saxophone & Flute) (4:50)
+04.  Satin Doll (Brazilian Rhythm) (4:33)
+05.  Georgia on My Mind (Lounge Music) (5:22)
+06.  Summertime (Lounge Music) (3:04)
+07.  The Night Has a Thousand Eyes (Cool Mix) (5:23)
+08.  Autumn in New York (Ultra Lounge Music) (4:46)
+09.  Moon River (Lounge Guitar) (2:27)
+10.  Here's That Rainy Day (Lounge Jazz) (2:55)(   Читать дальше...   )Жанр: Instrumental, Jazz, LoungeПродолжительность: 01:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35AD55596C2027C5FB82C0BCA8D1A193F31162D7
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991722   (904238) от 29.02.2016
+
+Russill Paul - P.M. Yoga Chants (2001) [FLAC|Lossless|tracks + .cue] <World Music, Mantras, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By The Stream (10:55)
+02. PM Dance (8:30)
+03. Dream the Dark (10:02)
+04. The Beloved (11:05)(   Читать дальше...   )Жанр: World Music, Mantras, HealingПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B8939EA4EBE677FC8A2EB9DA7C5A308473031F
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991907   (904357) от 29.02.2016
+
+Timothy Wenzel - Distant Horseman (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Bend in the River (feat. Josie Quick)
+02. Distant Horseman (feat. Josie Quick)
+03. Turn and Walk Away
+04. A Night so Cold (feat. Josie Quick)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63A0DE84BEFE8BB213BC2C250E539F26A3FF090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 497737   (904503) от 23.02.2014
+
+Казачья воля - 4 альбома (2002-2008) [MP3|320 кб/с]< Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+
+2002 - Славьтесь, славьтесь, казачки!
+
+2005 - Андалузская ночь
+
+2005 - Золото Тихого Дона
+
+2008 - Была веснаЖанр: Folk Казачья песняПродолжительность: 04:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4CD0EBE4150ECD88EAB1BC72853FD0F02D3AE3A
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 44058   (904665) от 22.03.2020
 
 Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
@@ -544,196 +744,6 @@ Andrew Bird - Echolocations: Canyon (2015) [FLAC|Lossless|WEB-DL]<Instrumental, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65F9EF16886B7FEFCBC4E7A28BD746821456F10C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 292382   (907002) от 07.02.2011
-
-Cornelius + Cretu - Cornelius + Cretu (1992) [FLAC|Lossless]<Downtempo, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cornelius + Cretu - совместная работа Peter Cornelius и Michael Cretu.
-Michael Cretu в представлениях не нуждается, а Peter Cornelius - австрийский музыкант, певец и композитор, участвовавший в создании второго и третьего альбомов Enigma.01. Nur Die Hoffnung Nicht
-02. Nichts Ist Vollkommen, Nicht Mal Das Gluck
-03. Rettungsringe Sterben Aus
-04. Alcatraz(   Читать дальше...   )Жанр: Downtempo, EnigmaticПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099020   (907211) от 31.01.2017
-
-Dennis Michael Tenney - Night Of The Demons /  Ночь демонов (1988) 2015 / Lunaris Records [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_907211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Of TheDemons Theme
-02. Suzie Hides The Lipstick
-03. The Burn
-04. Henry Jogs(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C75EB9E42B8B51854ECE31C6050055F2260AFA46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 235773   (908437) от 20.03.2020
-
-VA - The Best Of Piano (2009) [FLAC|Lossless|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omar Akram - Surrender     (06:43)
-02. Isaac Shepard - Before Dawn   (03:58)
-03. Robin Spielberg - Circle of Life   (04:10)
-04. Love Theme From Romeo & Juliet   (02:52)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 01:14:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD5CA38D0D7987E6C8C52DE1B6C1E1E60D59CAD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227951   (908465) от 20.03.2020
-
-Алекс Сильванни - Электроорган (1975) Vinyl Rip, Remastered, 2007, Raritet Music [FLAC|Lossless|image + .cue] <Easy Listening, Jazz, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это исключительно мягкий, классический Easy Listening с обилием звуков "Hammond Organ" в весьма интересной интерпретации автора.01. Музыкальный Автомат - Disco Stomp (H. Bohannon) (4:03)
-02. Вечером В Субботу - Sabato Pomeriggio (C. Baglioni - A. Coggio) (4:56)
-03. Чтобы Ты Знала - Para Que No Me Olvides (R. Girado) (3:55)
-04. Какой Он Спокойный - Sereno E ... (E. Riccardi  - L. Albertelli) (4:28)(   Читать дальше...   )Жанр: Easy Listening, Jazz, PopПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C086B3FF08AABA85A96486C95E66D4DA72F1FA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 257973   (908494) от 20.03.2020
-
-Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magnetic Fields 1 (5:59)
-02. Oxygene (Pt.4) (4:15)
-03. Equinoxe (Pt.5) (3:47)
-04. Magnetic Fields (Pt.2) (4:02)(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413119B3D01A6CAF2AD025EE27A77C132E54DE5F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 342583   (908569) от 20.03.2020
-
-Greg Maroney - 2 альбома (2003, 2005) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908569.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грег Марони очень одаренный пианист. Его песни, тепло и естественность, которые говорят со слушателем - приближают их к своим собственным сердцам. Его жизнь и окружение, вместе со своим прошлым и настоящим, все это является частью его музыки.
-Он изучал классическое и джазовое фортепиано с пяти лет и в настоящее время выступает на концертах в качестве сольного пианиста, (   Читать дальше...   )Список альбомов:
-2003 - Harmony Grove
-2005 - Wind ChimesЖанр: New Age, Instrumental, Solo PianoПродолжительность: 01:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE69EA68568404CDFB9E3A10CAC7F5B9E248A004
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367830   (908697) от 20.03.2020
-
-American Indian Coalition - Native Spirit (2008) [MP3|320 Kbps] <Native American, Tribal, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_908697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quanah Parker
-02. Great Father
-03. Talking Owl
-04. Victory Dance(   Читать дальше...   )Жанр: Native American, Tribal, FolkПродолжительность: 01:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B0E1359BECDC51CD357EEC001610117DF1DE0B
 ```
 
 

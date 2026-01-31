@@ -1,3 +1,30 @@
+###  Публикация: 1096230   (920996) от 23.01.2017
+
+VA - Empire Records - Dancenudisco 4 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jackie Tech - You Can Have It All (Filatov & Karas Remix)
+02. Emy Care - Fly In The Sky (Dance Mix)
+03. Deep Fresh feat. Alina Petko - So Hight (Original Mix)
+04. Irina Makosh, Wallmers, Lisitsyn - Silent Tears (Original Mix)(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 02:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481A97EF06190487A21FAD3ED2BD9E93AF10B961
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096254   (921072) от 23.01.2017
 
 VA - Stay With Producer Construction (2017) [MP3|320 Kbps] <House,  Progressive, Soulful, Nu Disco, Club>
@@ -666,33 +693,6 @@ VA - Стопудовые зимние хиты. Сборник № 5 (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BFF3850CD3C1B5C7F8794D121061D69487C6560
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987871   (922805) от 19.02.2016
-
-VA - Club Of Fans Dance Vol. 6 (2016) [MP3|320 кб/с] <Club, Dance, Hands Up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cleo - Zabiore Nas (Basto Remix Extended)
-02. Miss Diva - Love Me (Marious Remix Edit)
-03. Giorno - The Floor (Mr. G! Vs Dancefloor Kingz Edit)
-04. S3RL - Pretty Rave Girl (Hands Up Edit)(   Читать дальше...   )Жанр: Club, Dance, Hands UpПродолжительность: 04:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE0605F7D46B89B00EF8F89828EDE6B9C37CE3C5
 ```
 
 

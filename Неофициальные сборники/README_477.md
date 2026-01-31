@@ -1,3 +1,30 @@
+###  Публикация: 1396300   (748680) от 14.07.2020
+
+VA - Soft Emotion: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo, Background>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_748680.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Martin Vogel - Heaven Can’t Wait
+002. Back 2 U - Morning Sun
+003. The Soul Crusaders - Sway
+004. Funky Valley - Merefa(   Читать дальше...   )Жанр: Lounge, Downtempo, BackgroundПродолжительность: 08:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF51C01D833898109E396377640B41A09E68472
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216476   (749316) от 31.03.2018
 
 VA - ЕвроХит Топ 40 Europa Plus 30.03.2018 [MP3|320 Kbps] <Pop, Dance>
@@ -665,33 +692,6 @@ magnet:?xt=urn:btih:D379026971AEC06D38225FEBE4CC3F7F2369FE4C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B18327E41DB4AB5717697BC30F5F9C68493C8A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216273   (751226) от 30.03.2018
-
-VA - Deep House Collection Vol.162 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751226.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 7even (GR) - Have It All  (RAFO Remix)
-002. Aeron Aether - Release the Kraken (Erdi Irmak Remix)
-003. Akio Imai & Claudio Giordano - Enigma (Original Mix)
-004. al l bo - Walls Of Tears (De Graal' Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:23:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FF7F93016197FB9A4EF00247927899D5632323
 ```
 
 

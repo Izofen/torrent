@@ -1,3 +1,30 @@
+###  Публикация: 1317625   (500415) от 01.08.2019
+
+Sexy Chillout Music Cafe, Chillout Music Ensemble - Sexy Exotic Music (2019) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_500415.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Bossa Chillout (3:38)
+2.Deep UK Bounce (3:13)
+3.Miami Summer Time (3:48)
+4.La Luna a Ibiza (3:46)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE5B2585A2D2501897023421A39188E4C7FD022
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317546   (500416) от 01.08.2019
 
 VA - Summertour (2019) [MP3|320 Kbps] <Progressive House>
@@ -688,33 +715,6 @@ VA - Uplifting Only Top 15: June (Extended Mixes) (2022) [MP3|320 Kbps] <Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7A3B0446CF5136A242B6C201CF28687E5D2033C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563711   (503716) от 15.07.2022
-
-VA - Uplifting Trance Vol.2 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_503716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somna & Yang feat. Noire Lee - Till Oblivion (Asteroid Remix)
-02. Ana Criado - Lockdown Heart (Daxson Remix)
-03. Main Engine & Eline Flohr - A Sacred Place (Original Mix)
-04. Kaimo K - Artemis (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9575E6B6F3D3771DFD2BBC7F7C44BC94E3C4CE08
 ```
 
 

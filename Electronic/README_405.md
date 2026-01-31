@@ -1,3 +1,30 @@
+###  Публикация: 1123919   (785978) от 10.04.2017
+
+VA - Deep Progressive, Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manu Riga – Disconnected 07:17
+02. Killerpunkers – You Be My Life (Feat. Miah) 06:05
+03. Kush (MU) – Trigger 07:14
+04. Andy Leavy – Welcome the Darkness 09:22(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B630C1740278CD5736303FB4E078ED54F8824B92
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123493   (785979) от 10.04.2017
 
 VA - Armada Deep Top 10 April (2017) [MP3|320 Kbps] <House>
@@ -668,33 +695,6 @@ VA - Dance Mix Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCED6C595754207308D2BBA415B9F47273045FCC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277235   (787029) от 19.01.2019
-
-VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unhappiness - Leaving Behind The Darker Days (Original Mix) 5:08
-02. March - Behind The Dark Matter (Original Mix) 1:36
-03. Roberth - Behind (Original Mix) 7:30
-04. Fortune - Behind You (Original Mix) 5:22(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECA1F74586435EA1C2B5D6C59AA7E8F06A109AB
 ```
 
 

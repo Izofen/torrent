@@ -1,3 +1,30 @@
+###  Публикация: 997844   (871762) от 18.03.2016
+
+VA - Blues Forever vol.33 - vol.36 (2015) [MP3|320 кб/с] <Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mike Zito - Dirty Things
+02. Blues Merchants - Getting Used
+03. David Gogo - Jet Set
+04. Stevie Cochran - Between The Lines(   Читать дальше...   )Жанр: Blues RockПродолжительность: 05:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE8EABA29BEEEFC601AFCFA6EC1126FDF82203D
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997970   (871769) от 18.03.2016
 
 VA - Танцевальная Весна (2016) [MP3|320 кб/с] <Pop, Dance>
@@ -674,33 +701,6 @@ VA - Beatport Bassline: Electro Sound Pack #50 (2020) [MP3|320 Kbps] <D&B, Bassl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2EBCBB49AB6AD683395FCE81C8BCC7A0BDC0456
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496424   (872855) от 17.09.2021
-
-VA - RnB: Music Is My Life (2021) [MP3|320 Kbps] <Rnb, Soul, Funk>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872855.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Chantels - Never Let Go
-002. Pia Mia, Chris Brown - Do It Again
-003. Davide Shorty - Regina
-004. Sada Baby - Whole Lotta Choppas(   Читать дальше...   )Жанр: Rnb, Soul, FunkПродолжительность: 07:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADBA86CA6CB731382259F9CD0F81CE258A3A822
 ```
 
 

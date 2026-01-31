@@ -1,3 +1,36 @@
+###  Публикация: 517855   (645830) от 02.07.2012
+
+VA - Dance Club Party Vol.3 (2012) [MP3|256 кб/с]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645830.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nickelback - If Today Was Your Last Day (Dj Fisun Remix) (3:23)
+2. Dj Kez - Bat Outta Hell (Original Mix) (5:31)
+3. Oliver Koletzki feat. Fran - Sunset (Original Mix) (3:44)
+4. Dario Nunez & Javi Colina - Andale (Original Mix) (5:20)
+5. 2345 & 5Ivesta Family - Я Буду (DJ Fisun remix one) (2:38)
+6. Jdg & Jayyfresh - Check My Swagger (Original Mix) (6:32)
+7. Flashtronica - Sunshine People (Original Mix) (4:06)
+8. Sunrise Inc - Mysterious Girl (Addictive Elements Remix) (5:18)
+9. DJ Mexx feat. Вика Гранд - White Night (Russian Vocal Version) (4:41)
+10. Almyron feat. Jones Bonz - Real Lover (Original Mix) (5:16)Жанр: ClubПродолжительность: 09:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A8B005CC4E5FFAA767D612A93273F1ED9CCDB03
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032308   (645843) от 07.07.2016
 
 VA - Пляжный Союз (2016) [MP3|256 Kbps] <Pop>
@@ -668,33 +701,6 @@ VA - Metal Track: Hard Musical Collection (2022) [MP3|320 Kbps] <Metal, Hardcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A13196854E58CEE295824E44A24CAE040D5D7EC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292022   (646669) от 29.03.2019
-
-VA - Coming Back To You (2019) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZZ Top - Blue Jean Blues
-02. T. Rex - Lean Woman Blues
-03. Jimi Hendrix - Electric Church Red House
-04. Fleetwood Mac - Just The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 02:13:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:231AA0023F046136B2EE9ED414A06812D2A16FBD
 ```
 
 

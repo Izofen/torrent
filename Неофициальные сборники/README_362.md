@@ -1,3 +1,30 @@
+###  Публикация: 1548303   (597593) от 03.05.2022
+
+VA - Bass Drive Madness (2022) [MP3|320 Kbps] <Bassline, DnB, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bass Drive Madness - это новый всплеск саунда высокого давления, предназначенный для того, чтобы изменить ваш взгляд в целом на музыку Bassline в лучшую сторону!001. Kill Feed - Forsaken
+002. Tr Tactics - Poisoned
+003. Ntropy - Unforgiving World
+004. Xav - Gyal Dem(   Читать дальше...   )Жанр: Bassline, DnB, Electro BassПродолжительность: 11:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CF402FAAFC566E2DA97BA41A220DCAE8D4CBC00
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039227   (597629) от 31.07.2016
 
 VA - German Top 100 Single Charts 08.08.2016 (2016) [MP3|320 Kbps] <Pop, Dance>
@@ -692,39 +719,6 @@ VA - Empire Records - Deep Disco 3 (2017) [MP3|256-320 Kbps] <Dance, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF3E03257D724C995AAA5280E60D418B8B270A45
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526018   (598719) от 23.07.2012
-
-Агата Кристи - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock / Gothic Rock / Post-Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Два корабля
-02.Гномы-каннибалы
-03.Позорная звезда
-04.Танго с дельтапланом
-05.Как на войне
-06.Нисхождение
-07.Сказочная тайга
-08.Ураган
-09.Трансильвания
-10.Сирота(   Читать дальше...   )Жанр: Rock / Gothic Rock / Post-PunkПродолжительность: 02:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906B80B206E0806E67179E91FFD417F888C157AC
 ```
 
 

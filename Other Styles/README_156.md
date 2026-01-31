@@ -1,3 +1,206 @@
+###  Публикация: 1106400   (873641) от 19.02.2017
+
+VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelly O'Neill – Mystic Dream
+02. Emerald Singers – Adiemus
+03. Massini – Mystera
+04. Tranceparence – Sadeness Part I(   Читать дальше...   )Жанр: Gregorian, New Age, EnigmaticПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE40006D68CF45C3C624E6F82D01F32B1D5F090
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997576   (873676) от 17.03.2016
+
+Mystica - Best Of Gregorian Voices (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hymn
+02. (Everything I do) I do it for you
+03. Yesterday
+04. Deep Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EA4E4652D200F07245EE82CAFCB363319D6267B
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106282   (873736) от 19.02.2017
+
+Devaldi - Petrichor (2016) [MP3|320 Kbps] <Electronic, Relaxing>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Singur
+02. Bri
+03. Petrichor
+04. Ta Matia Sou(   Читать дальше...   )Жанр: Electronic, RelaxingПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63CA6E483D9F290E0B82677C179384B1F015CA3
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872447   (873802) от 25.02.2015
+
+Moderator - The World Within (2015) [FLAC|Lossless|WEB-DL]<Trip-Hop, Jazzy hip-hop, Downtempo>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Blind You To My Spell (ft. Jeanette Robertson & Witness) (3:20)
+02. Harlem River (3:53)
+03. Words Remain (3:27)
+04. Almost There (3:10)
+05. It Wasn't For You (2:48)(   Читать дальше...   )Жанр: Trip-Hop, Jazzy hip-hop, DowntempoПродолжительность: 00:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2052D2FDCA25FC282CFE8FD9A420711D844440B4
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 872521   (873812) от 25.02.2015
+
+Ensiferum - One Man Army (2015) Limited Edition 2CD [FLAC|Lossless]<Viking, Folk Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. March of War (instrumental)
+02. Axe of Judgment
+03. Heathen Horde
+04. One Man Army
+05. Burden of the Fallen(   Читать дальше...   )Производство: Metal Blade (Sony Music)Жанр: Viking, Folk Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F3672957439BBD87A96984EF21D66FA38E5CBC
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643446   (873857) от 14.04.2013
+
+VA - The Indian Road. The Best Of Native American Flute Music Vol.1 (2002) [MP3|256 кб/с]<Folk, Instrumental, Native american, Flute>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+(2:37) 01. Mary Youngblood - The Offering
+(4:38) 02. Mary Youngblood & Joanne Shenandoah - Fog
+(4:16) 03. Mary Youngblood & Tom Wasinger - Unrequited
+(3:28) 04. Joanne Shenandoah & James Hoskins - Peace And Power
+(3:14) 05. Mary Youngblood - Within My Heart
+(3:45) 06. R. Carlos Nakai & Peter Kater - Flight Song
+(4:34) 07. Lawrence Laughing & Tom Wasinger - Eagle Come Pray For Me
+(2:58) 08. Robert Mirabal - Yellow Ram's Song
+(2:56) 09. Mary Youngblood - Eagle Clan
+(3:41) 10. Mary Youngblood (   Читать дальше...   )Жанр: Folk, Instrumental, Native american, FluteПродолжительность: 00:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6660DE656688DF1588BAA4837F56B8DE69041BB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643341   (873865) от 14.04.2013
+
+Анна Каренина /  Anna Karenina (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1.  Overture (3:20)
+2.  Clerks (1:06)
+3.  She Is of the Heavens (2:00)
+4.  Anna Marches into a Waltz (0:58)
+5.  Beyond the Satge (1:24)
+6.  Kitty's Debut (2:36)
+7.  Dance with Me (4:22)
+8.  The Girl and the Birch (1:01)
+9.  Unavoidable (1:42)
+10.  Can-Can (2:01)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1A6A6A359631A9B178008AEF2B304C144366C9
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 871357   (873891) от 25.02.2015
 
 Hayseed Dixie - Killer Grass (2010) [FLAC|Lossless]<Bluegrass>
@@ -554,214 +757,6 @@ Slow Leaves - Enough About Me (2017) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51290CE84072D29B5D905755392961CA95405F8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372840   (876875) от 08.04.2020
-
-Slow Leaves - Beauty Is So Common (2014) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Wants to Be in Love [03:54]
-02. Nostalgia | Nostalgia [02:53]
-03. Life of a Better Man [03:08]
-04. Dreamer [02:31](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:35:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE4962E8A909350FAB19ADC4C134ED8BE08696C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372805   (876883) от 08.04.2020
-
-Slow Leaves - Shelf Life (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking out My Window (04:11)
-02. Miss You (03:18)
-03. Sink Full of Dishes (04:16)
-04. Time Was on Your Side (03:24)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77398BD83DFFAC315766AFA86980FC5E27BECCE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187060   (876991) от 28.03.2010
-
-Guy Sweens - Legend Of Ganesha (2009) [MP3|320 кб/с]<New Age, Spiritual, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876991.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Worship (Feat. Medwyn Goodall)
-2. Embodiment Of Good Luck
-3. Universal Parents (Feat. Sangit Om)
-4. Skanda (Feat. Medwyn Goodall)
-5. Guarding Her Home
-6. Bhuta Gana (Feat. Medwyn Goodall)
-7. Remover Of ObstaclesЖанр: New Age, Spiritual, EthnicПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187163   (876998) от 28.03.2010
-
-Cell - Phonic Peace (2005) [MP3|320 kbps]<Dub, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_876998.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sensitiv Garden
-2. Mister Ayatih
-3. Zaz
-4. Magic Karma
-5. Soon
-6. Lord Of Silk
-7. White Call
-8. Phonic Peace For Tibet
-9. OrangeЖанр: Dub, Downtempo, AmbientПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495701   (877436) от 14.09.2021
-
-Various artists - Mulheres apaixonadas [Internacional] (2003) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The hobeats - I've gotta live.flac
-02. Pedro Migueis - Hold on.flac
-03. Juanita Dailey - Inside  my love.flac
-04. Karynn - My image the mirror.flac(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5F47818A4B62017C4038A9E73894B0637A446F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299602   (877520) от 23.02.2011
-
-Ryan Farish - 8 albums (2000-2009) [MP3|192-320 kbps]<New Age, Ambient, Relax, Mediative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Serengeti Run
-02. Allure
-03. Closer Away
-04. Colortones
-05. The Way Home
-06. Movement In Light
-07. Look To You
-08. Beautiful Moments
-09. Mechanical Beauty
-10. SateliteЖанр: New Age, Ambient, Relax, MediativeПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE99963CB9BBB355721019DF4C26A628A10F9CF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 421450   (877578) от 10.03.2014
-
-Celtic Woman - 8 альбомов (2005-2014) [MP3|112-320 кб/с]<Celtic folk, World, Classical, Pop-rock, New age>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-2005 - Celtic Woman
-2006 - A New Journey (Deluxe Edition)
-2008 - The Greatest Journey. Essential Collection
-2010 - Lullaby
-2010 - Songs From The Heart
-2011 - A Celtic Christmas
-2012 - Home for Christmas
-2014 - Emerald. Musical GemsЖанр: Celtic folk, World, Classical, Pop-rock, New ageПродолжительность: 07:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA04E31BAFC848F2BBE94514EF69EC16DB94DE8
 ```
 
 

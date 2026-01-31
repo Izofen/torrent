@@ -1,3 +1,30 @@
+###  Публикация: 1443375   (1035752) от 28.01.2021
+
+VA - Beatport Chill House: Electro Sound Pack #230 (2021) [MP3|320 Kbps] <Chill House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1035752.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самая одушевляющая музыка, под которую приятно просто лежать и мечтать. Расслабляющий, вдохновляющий, душевный и искренний - именно так можно охарактеризовать этот потрясающий релиз. Треклист был собран из 130 треков, которые обязательно должны Вам понравится.001. Dark0 - Lilith
+002. Paper Hills - Voices In The Distance
+003. Mossignor - Il Mostro
+004. M - Innocent Love(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 10:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCFB0A1BA575EB31F6313E70AC46CFA2D2E74036
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443369   (1035753) от 28.01.2021
 
 VA - Beatport D&B: Electro Sound Pack #229 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
@@ -668,33 +695,6 @@ VA - Chillout Electronic: Relax Set (2021) [MP3|320 Kbps] <Chillout, Ambient, Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:580C3413313303F5C5C0FD2A3C949B8D5F9D2EAC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442071   (1036946) от 24.01.2021
-
-VA - Beatport Techno: Electro Sound Pack #223 (2021) [MP3|320 Kbps] <Techno, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1036946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Техно с "глубоким" звуком - элементами реверберации, эмбиента и минимала в 223-м сборнике от Beatport. В Вашем распоряжении 120 треков современного техно минимала высокого качества круглосуточно!001. Ensor - Natural Disorder
-002. Pwcca - Die Fliege
-003. Pablo Rios - The Big Bang Teory
-004. Squeeze Dj - Fearless(   Читать дальше...   )Жанр: Techno, MinimalПродолжительность: 12:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30F62BE2B98CE75DA44F6B3A7219D1F70F0A734
 ```
 
 

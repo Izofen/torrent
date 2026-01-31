@@ -1,3 +1,30 @@
+###  Публикация: 1092890   (937411) от 13.01.2017
+
+VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alkalino - Distant Future [6:42]
+02. Ritmo Du Vela - It's Good [6:00]
+03. Dany Cohiba - Just Be Real [6:24]
+04. Twism & B3rao - Don't Hold Back [6:46](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D51D6B0D2CF5D4DB3BFE0B11022352F767B0F2
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093086   (937415) от 13.01.2017
 
 VA - Chill On the Board (2017) [MP3|320 Kbps] <Deep House>
@@ -670,33 +697,6 @@ VA - Nu-Discoteque (Finest Nudisco and House) (2017) [FLAC|Lossless|tracks] <Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:701CFC253F8CD82D9B64D8FB7C2F2B3AC79FA93A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092246   (940247) от 11.01.2017
-
-VA - Music for Pregnant Women: Soft Relaxing Chill for those expecting a baby (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_940247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.I.B. - Games Rain - Chillout Mix
-02. Georgy Om - Ocean
-03. The Orange - Anywhere Anytime Is You - Chillout Mix
-04. Tony Sit - Expectation - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A1A4A36F7A8D446F4EBF6F8860D354DABBFE08
 ```
 
 

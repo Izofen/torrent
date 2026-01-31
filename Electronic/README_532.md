@@ -1,3 +1,30 @@
+###  Публикация: 1438426   (1041155) от 08.01.2021
+
+VA - Markus Schulz - Global DJ Broadcast (Deeper Shades) (2021) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Massane - No Return
+02. Marsh & Phenoir featuring Mariel Beausejour - Don't Wait
+03. Beije - Standing Between the Worlds
+04. Markus Schulz & Adina Butar - In Search of Sunrise (Watercraft Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AEE758610A12A7DAB5E3476BA49A44CCA183795
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610968   (1041173) от 12.02.2023
 
 VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -668,33 +695,6 @@ VA - Move Ibiza Radio Annual: Progressive House (2023) [MP3|320 Kbps] <House, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CA707160F5B583FC8221D3DFB57E9C36486A340
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436867   (1042728) от 02.01.2021
-
-David Guetta - United at Home - Paris Edition from the Louvre (2020-12-31) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta & MORTEN ft. Lanie Gardner - Dreams
-02. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
-03. Jack Back - Performance
-04. David Guetta & MORTEN & Lovespeake vs. Fatboy Slim - Save My Life vs. Sunset (Bird Of Prey) (David Guetta & MORTEN Edit)Жанр: Electro House, Progressive HouseПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACFEC223EC5D67EE2458F110FAA7F0A44EE70D9F
 ```
 
 

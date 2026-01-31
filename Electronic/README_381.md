@@ -1,3 +1,30 @@
+###  Публикация: 1280127   (763648) от 01.02.2019
+
+VA - Best Aerobic Remixes 2019 [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Minds - Broken (Fitness Version 135 BPM)
+02. Morgana - Ruin My Life (Fitness Version 135 BPM)
+03. Kyria - Party for One (Fitness Version 135 BPM)
+04. Kino - Money (Fitness Version 135 BPM)(   Читать дальше...   )Жанр: Funky, Club House, DanceПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89EAFF7A029FEC1EF88CE2BE0858E735E05062CB
+```
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280072   (763652) от 01.02.2019
 
 Ian Brown - Ripples (2019) [MP3|320 Kbps] <Indie, Alternative>
@@ -666,33 +693,6 @@ Tzolk'in - Discography 4 Releases (2004-2013) Divine Comedy Records, Ant-Zen [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DBBDBFCC9FB2C76D05426CB8B531559AF4630A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279892   (764460) от 31.01.2019
-
-VA - Night Flight Lounge (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Lounge, Electronica>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Butler - Cloud No 9 (Original Mix)
-02. Martin Liege - Baby Come On (Original Mix)
-03. Roberto Sol & Florito feat. Ines Prados - Asi Es (Remix)
-04. Svendaq - Each Moment (Original Mix)(   Читать дальше...   )Жанр: Downtempo, ChillOut, Lounge, ElectronicaПродолжительность: 02:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27E261865DB50CCD3FCA4379A51A61613211CE4D
 ```
 
 
